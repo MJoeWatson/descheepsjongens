@@ -1,17 +1,22 @@
 ---
-title: Descheepsjongens.Nl
+title: descheepsjongens
 timezone: Europe/Amsterdam
-collections_dir: collections
 collections:
-  routes:
-    title: Routes
-    output: true
-  voorwaarden:
-    title: Voorwaarden
-    output: true
   contact:
     title: Contact
     output: true
   gallerij:
     title: Gallerij
+    output: true
+  posts:
+    title: Posts
+    output: true
+  routes:
+    title: Routes
+    output: true
+  uploads:
+    title: Uploads
+    output: true
+  voorwaarden:
+    title: Voorwaarden
     output: true
