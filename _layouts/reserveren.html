@@ -1,0 +1,81 @@
+<!DOCTYPE html>
+<html lang="en">
+  {% include head.html %}
+  <body>
+    <div class="wrapper">
+      <div class="header-wrapper">
+        {% include header.html %}
+      </div>
+      <div class="title"> <h1>Reserveren<h1> </div>
+      <section id="home" class="content">
+        <div class="information">
+          <div class="content1">
+            <div class="centre">
+              <div id="formwarning" class="centre" style="color: #0A5CA0;">
+                {{ content }}
+              </div>
+              <input class="forminput centre" type="text" id="voornaam" name="voornaam" placeholder="Voornaam">
+              <input class="forminput centre" type="text" id="achternaam" name="achternaam" placeholder="Achternaam">
+              <input class="forminput centre" type="text" id="adres" name="adres" placeholder="Adres">
+              <input class="forminput centre" type="email" id="email" name="email" placeholder="Email">
+              <input class="forminput centre" type="text" id="woonplaats" name="woonplaats" placeholder="Woonplaats">
+              <input class="forminput centre" type="tel" id="tel" name="tel" placeholder="Telefoon Nummer">
+              <select class="forminput centre" id="dagdeel" name="dagdeel">
+                <option value="dag"> Hele Dag (10:00 - 18.00)</option>
+                <option value="ochtend"> Ochtend (10:00 - 13.00)</option>
+                <option value="midday"> Middag (13:30 - 18.00)</option>
+                <option value="avond"> Avond (18:30 - 21.00)</option>
+
+              </select>
+              <input type='text' class='datepicker-here forminput centre' id="date" data-language='en' placeholder="Datum" />
+              <select class="forminput centre" id="boot" name="boot">
+                <option style="color:grey !important;" value="" hidden>Voorkeur voor sloep (op basis van beschikbaarheid)</option>
+                <option value="geen">Geen Voorkeur</option>
+                <optgroup label="Elektrisch"></option>
+                  <option>Oudenrijn (max. 10 personen)</option>
+                  <option>Nicky (max. 10 personen)</option>
+                <optgroup label="Buitenboordmotor"></option>
+                  <option>Antaris (max. 7 personen)</option>
+                  <option>Mythos (max. 9 personen)</option>
+              </select>
+              <input class="forminput centre" type="number" id="person" name="person" placeholder="Aantal Personen">
+              <input class="centre" type="text" id="bericht" name="bericht" placeholder="Bericht">
+              <input class="button centre" type="button" onclick="validateForm()"value="Reservering" placeholder="submit"></input>
+              <p id="formwarning" class="centre" style="display:none; color: red;"> Verplichte velden zijn onjuist of leeg </p>
+              <p id="formsuccess" class="centre" style="display:none; color: green;"> Bericht verzonden! We sturen verdere informatie naar het opgegeven email adres. Geen bericht ontvangen? kijk bij spam of neem contact met ons op. </p>
+              <p id="contactsupport" class="centre" style="display:none; color: red;">Gelieve ons te contacteren! Er is iets fout gegaan </p>
+            </div>
+
+          </div>
+        </div>
+      </section>
+      {% include footer.html %}
+    </div>
+    {% include goToPage.html %}
+    <script defer src="{{ "//js/aws-sdk-2.361.0.min.js" | prepend: site.baseurl }}"> </script>
+    <script defer src="{{ "//js/form.js" | prepend: site.baseurl }}"></script>
+    <script src="{{ "//js/pikaday.js" | prepend: site.baseurl }}"></script>
+    <script>
+        var monthNames = ['Januari', 'Februari', 'Maart', 'April', 'Mei', 'Juni', 'Juli', 'Augutus', 'September', 'Oktober', 'November', 'December']
+        var picker = new Pikaday({
+          numberOfMonths: 1,
+          field: document.getElementById('date'),
+          firstDay: 1,
+          minDate: new Date(2000, 0, 1),
+          maxDate: new Date(2022, 12, 31),
+          yearRange: [2000, 2022],
+          i18n: {
+            previousMonth: 'Vorige maand',
+            nextMonth    : 'Volgende maand',
+            months       : monthNames,
+            weekdays     : ['Maandag', 'Dinsday', 'Woensdag', 'Dondersdag', 'Vrijdag', 'Zaterdag', 'Zondag'],
+            weekdaysShort: ['Ma', 'Di', 'Wo', 'Do', 'Vr', 'Za', 'Zo']
+          },
+          toString: function(date) {
+            var parts = [date.getDate(), monthNames[date.getMonth()], date.getFullYear()];
+            return parts.join(" ");
+          }
+        });
+    </script>
+  </body>
+</html>

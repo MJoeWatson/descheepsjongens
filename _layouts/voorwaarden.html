@@ -1,0 +1,26 @@
+<!DOCTYPE html>
+<html lang="en">
+  {% include head.html %}
+  <body>
+    <div class="wrapper">
+      <div class="header-wrapper">
+        {% include header.html %}
+      </div>
+      <div class="title"> <h1>Voorwaarden<h1> </div>
+      <section id="home" class="content">
+        <div class="information">
+          <h2 class="subheader head">Algemene voorwaarden en reglementen De Scheepsjongens</h2>
+        </div>
+        {% for section in site.voorwaarden %}
+          <div class="information">
+            <div class="content1 voorwaarden">
+              <h4 class="head" style="padding-left: 2em;">{{ section.title }}</h4>
+              {{ section.content }}
+            </div>
+          </div>
+        {% endfor %}
+      {% include footer.html %}
+    </div>
+    {% include goToPage.html %}
+  </body>
+</html>

@@ -1,0 +1,23 @@
+<!DOCTYPE html>
+<html lang="en">
+  {% include head.html %}
+  <body>
+    <div class="wrapper">
+      <div class="header-wrapper">
+        {% include header.html %}
+      </div>
+      <div class="title"> <h1>Prijzen<h1> </div>
+      <section id="home" class="content">
+        <div class="information">
+          <div class="content1">
+            <div class="centre">
+              {{ content }}
+            </div>
+          </div>
+        </div>
+      </section>
+      {% include footer.html %}
+    </div>
+    {% include goToPage.html %}
+  </body>
+</html>
