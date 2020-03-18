@@ -71,6 +71,13 @@
             weekdays     : ['Maandag', 'Dinsday', 'Woensdag', 'Dondersdag', 'Vrijdag', 'Zaterdag', 'Zondag'],
             weekdaysShort: ['Ma', 'Di', 'Wo', 'Do', 'Vr', 'Za', 'Zo']
           },
+          disableDayFn: function(date) {
+            var DD = ('0' + date.getDate()).slice(-2);
+            var MM = ('0' + (date.getMonth() + 1)).slice(-2);
+            var YYYY = date.getFullYear();
+            var DDMMYYYY = DD + '/' + MM + '/' + YYYY;
+            if(DDMMYYYY == '26/06/2020') { return date; }
+          },
           toString: function(date) {
             var parts = [date.getDate(), monthNames[date.getMonth()], date.getFullYear()];
             return parts.join(" ");
