@@ -52,9 +52,9 @@
       {% include footer.html %}
     </div>
     {% include goToPage.html %}
-    <script defer src="{{ "//js/aws-sdk-2.361.0.min.js" | prepend: site.baseurl }}"> </script>
-    <script defer src="{{ "//js/form.js" | prepend: site.baseurl }}"></script>
-    <script src="{{ "//js/pikaday.js" | prepend: site.baseurl }}"></script>
+    <script defer src="{{site.baseurl}}/js/aws-sdk-2.361.0.min.js"> </script>
+    <script defer src="{{site.baseurl}}/js/form.js"></script>
+    <script src="{{site.baseurl}}/js/pikaday.js"></script>
     <script>
         var monthNames = ['Januari', 'Februari', 'Maart', 'April', 'Mei', 'Juni', 'Juli', 'Augutus', 'September', 'Oktober', 'November', 'December']
         var picker = new Pikaday({
