@@ -8,6 +8,7 @@ oudenrijnsoldout:
 antarissoldout:
 - 26/06/2020
 mythossoldout:
+- 25/06/2020
 layout: reserveren
 ---
 
