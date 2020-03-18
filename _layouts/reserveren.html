@@ -27,6 +27,7 @@
                 <option value="avond"> Avond (18:30 - 21.00)</option>
 
               </select>
+              <input type='text' class='datepicker-here forminput centre' id="date" data-language='en' placeholder="Datum" />
               <select class="forminput centre" id="boot" name="boot">
                 <option style="color:grey !important;" value="" hidden>Voorkeur voor sloep (op basis van beschikbaarheid)</option>
                 <option value="geen">Geen Voorkeur</option>
@@ -37,7 +38,6 @@
                   <option>Antaris (max. 7 personen)</option>
                   <option>Mythos (max. 9 personen)</option>
               </select>
-              <input type='text' class='datepicker-here forminput centre' id="date" data-language='en' placeholder="Datum" />
               <input class="forminput centre" type="number" id="person" name="person" placeholder="Aantal Personen">
               <input class="centre" type="text" id="bericht" name="bericht" placeholder="Bericht">
               <input class="button centre" type="button" onclick="validateForm()"value="Reservering" placeholder="submit"></input>
@@ -56,6 +56,19 @@
     <script defer src="{{site.baseurl}}/js/form.js"></script>
     <script src="{{site.baseurl}}/js/pikaday.js"></script>
     <script>
+        function disable(date, array, string) {
+          const op = document.getElementById("boot").getElementsByTagName("option");
+          if (array && array.indexOf(date) !== -1) {
+            var disabled = true;
+          } else {
+            var  disabled = false;
+          }
+          for (var i = 0; i < op.length; i++) {
+            if (op[i].value == string) {
+              op[i].disabled = disabled
+            }
+          }
+        }
         var monthNames = ['Januari', 'Februari', 'Maart', 'April', 'Mei', 'Juni', 'Juli', 'Augutus', 'September', 'Oktober', 'November', 'December']
         var picker = new Pikaday({
           numberOfMonths: 1,
@@ -77,6 +90,8 @@
             var YYYY = date.getFullYear();
             var DDMMYYYY = DD + '/' + MM + '/' + YYYY;
 
+
+            var x = document.querySelector('#boot');
             {% for date in page.nickysoldout %}
               if( DDMMYYYY == "{{ date }}" && document.querySelector('#boot').value == 'Nicky (max. 10 personen)'  ) { return date; }
             {% endfor %}
@@ -96,6 +111,20 @@
           toString: function(date) {
             var parts = [date.getDate(), monthNames[date.getMonth()], date.getFullYear()];
             return parts.join(" ");
+          },
+          onSelect: function(date) {
+            var DD = ('0' + date.getDate()).slice(-2);
+            var MM = ('0' + (date.getMonth() + 1)).slice(-2);
+            var YYYY = date.getFullYear();
+            var DDMMYYYY = DD + '/' + MM + '/' + YYYY;
+            const antarissoldout = [{{ page.antarissoldout | split: " " }}][0]
+            const oudenrijnsoldout = [{{ page.oudenrijnsoldout | split: " " }}][0]
+            const mythossoldout = [{{ page.mythossoldout | split: " " }}][0]
+            const nickysoldout = [{{ page.nickysoldout | split: " " }}][0]
+            disable(DDMMYYYY, antarissoldout, "Antaris (max. 7 personen)")
+            disable(DDMMYYYY, oudenrijnsoldout, "Oudenrijn (max. 10 personen)")
+            disable(DDMMYYYY, mythossoldout, "Mythos (max. 9 personen)")
+            disable(DDMMYYYY, nickysoldout, "Nicky (max. 10 personen)")
           }
         });
     </script>
