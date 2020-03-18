@@ -1,10 +1,10 @@
 ---
 title: Reserveren
 permalink: "/reserveren"
-nickysoldout:
-oudenrijnsoldout:
-antarissoldout:
-mythossoldout:
+nickysoldout: 
+oudenrijnsoldout: 
+antarissoldout: 
+mythossoldout: 
 layout: reserveren
 ---
 
