@@ -27,7 +27,6 @@
                 <option value="avond"> Avond (18:30 - 21.00)</option>
 
               </select>
-              <input type='text' class='datepicker-here forminput centre' id="date" data-language='en' placeholder="Datum" />
               <select class="forminput centre" id="boot" name="boot">
                 <option style="color:grey !important;" value="" hidden>Voorkeur voor sloep (op basis van beschikbaarheid)</option>
                 <option value="geen">Geen Voorkeur</option>
@@ -38,6 +37,7 @@
                   <option>Antaris (max. 7 personen)</option>
                   <option>Mythos (max. 9 personen)</option>
               </select>
+              <input type='text' class='datepicker-here forminput centre' id="date" data-language='en' placeholder="Datum" />
               <input class="forminput centre" type="number" id="person" name="person" placeholder="Aantal Personen">
               <input class="centre" type="text" id="bericht" name="bericht" placeholder="Bericht">
               <input class="button centre" type="button" onclick="validateForm()"value="Reservering" placeholder="submit"></input>
@@ -76,7 +76,22 @@
             var MM = ('0' + (date.getMonth() + 1)).slice(-2);
             var YYYY = date.getFullYear();
             var DDMMYYYY = DD + '/' + MM + '/' + YYYY;
-            if(DDMMYYYY == '26/06/2020') { return date; }
+
+            {% for date in page.nickysoldout %}
+              if( DDMMYYYY == "{{ date }}" && document.querySelector('#boot').value == 'Nicky (max. 10 personen)'  ) { return date; }
+            {% endfor %}
+
+            {% for date in page.oudenrijnsoldout %}
+              if( DDMMYYYY == "{{ date }}" && document.querySelector('#boot').value == 'Oudenrijn (max. 10 personen)'  ) { return date; }
+            {% endfor %}
+
+            {% for date in page.antarissoldout %}
+              if( DDMMYYYY == "{{ date }}" && document.querySelector('#boot').value == 'Antaris (max. 7 personen)'  ) { return date; }
+            {% endfor %}
+
+            {% for date in page.mythossoldout %}
+              if( DDMMYYYY == "{{ date }}" && document.querySelector('#boot').value == 'Mythos (max. 9 personen)'  ) { return date; }
+            {% endfor %}
           },
           toString: function(date) {
             var parts = [date.getDate(), monthNames[date.getMonth()], date.getFullYear()];
