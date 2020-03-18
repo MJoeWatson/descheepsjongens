@@ -1,6 +1,8 @@
 ---
 title: Reserveren
 permalink: "/reserveren"
+Sold Out Dates:
+- 25/06/2020
 layout: reserveren
 ---
 
