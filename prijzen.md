@@ -20,4 +20,3 @@ layout: prijzen
 
 #### 10:00 - 18:00
 
-### Hello hoiiii
