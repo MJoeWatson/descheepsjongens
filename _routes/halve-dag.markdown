@@ -4,7 +4,8 @@ date: 2020-03-18 16:02:00 +01:00
 ---
 
 ### Harmelen
-#### Tijd: Heen en weer, 2,5 uur
+#### Tijd: Heen en weer, 2,5 uur met wind tegen
+
 **Te Doen:**
 
 1. Eetgelegenheid De Kloosterhoeve
