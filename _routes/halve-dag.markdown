@@ -14,13 +14,14 @@ date: 2020-03-18 16:02:00 +01:00
 
 **Brug en Sluistijden:**
 Alle bruggen zijn hoog genoeg voor de sloep om eronderdoor te kunnen. Bereid jullie wel voor om soms te bukken! 
-De Haanwijker sluis in Harmelen is een goed punt om om te draaien. Aanleggen kan aan de aanlegpalen bij het huis aan de rechter kade. 
+De Haanwijker sluis in Harmelen is een goed punt om om te draaien. Aanleggen kan aan de aanlegpalen bij het huis aan de rechter kade.
+ 
 **Beschrijving:**
 
 Geniet van een mooie, rustige en groene route naar
    het dorpje Harmelen. Leg aan bij de sluis en loop
    5 minuten naar het centrum, of geniet van de rust
-   in natuurgebied De Kievit. Door de vele langs het
+   in natuurgebied De Kievit. Door de vele bomen langs het
    water, kunt u heerlijk genieten van wat schaduw.
 
 
@@ -37,6 +38,7 @@ Geniet van een mooie, rustige en groene route naar
 **Brug en Sluistijden:**
 
 **Beschrijving:**
+Naast dat midden op de dag een fijne tijd is om te varen, is deze route ook nog eens erg afwisselend. In beide van deze historische oude dorpen is er de mogelijkheid om aan te leggen voor een korte pauze. Let wel goed op de tijd, en keer op tijd om om op de afgesproken tijd terug te zijn.
 
 ### Nieuwerbrug, Bodegraven
 #### Tijd: Heen en weer, 4 uur
