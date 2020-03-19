@@ -5,8 +5,6 @@ nickysoldout:
 - 20/05/2020
 oudenrijnsoldout:
 - 27/06/2020
-antarissoldout:
-- 
 mythossoldout:
 - 25/06/2020
 layout: reserveren
