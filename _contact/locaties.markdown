@@ -9,4 +9,4 @@ Ons verhuuradres in Woerden bevind zich aan de kade tussen Singel 64 en 65. Er z
 
 ### Harmelen
 
-Voor varen vanuit Harmelen, kunt u terrecht op Haanwijk 4. Hier zijn parkeerplekken beperkt
+Voor vaartochten vanuit Harmelen, kunt u terrecht op Haanwijk 4. Hier zijn parkeerplekken beperkt, dus kom zo veel mogelijk op de fiets.
