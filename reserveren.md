@@ -1,8 +1,8 @@
 ---
 title: Reserveren
 permalink: "/reserveren"
-Elektrisch vol: 24/06/2020
-buitenboord vol: 22/06/2020
+electricsoldout: 22/03/2020
+buitenboordsoldout: 22/03/2020
 layout: reserveren
 ---
 
