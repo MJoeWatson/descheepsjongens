@@ -8,7 +8,8 @@
       </div>
       <div class="title"> <h1>Routes<h1> </div>
       <section id="home" class="content">
-        {% for section in site.routes %}
+        {% assign sortedRoutes = site.routes | sort: 'title' %}
+        {% for section in sortedRoutes %}
           <div class="information">
             <div class="content1 subheader">
               <h2 class="head">{{ section.title }}</h2>
