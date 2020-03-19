@@ -1,9 +1,13 @@
 ---
 title: Reserveren
 permalink: "/reserveren"
-nickysoldout: |
+nickysoldout: |+
   20/05/2020
   20/05/2020
+
+
+
+
 oudenrijnsoldout:
 - 27/06/2020
 mythossoldout:
