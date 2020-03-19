@@ -13,7 +13,8 @@ date: 2020-03-18 16:02:00 +01:00
 4. Schoon zwemwater
 
 **Brug en Sluistijden:**
-
+Alle bruggen zijn hoog genoeg voor de sloep om eronderdoor te kunnen. Bereid jullie wel voor om soms te bukken! 
+De Haanwijker sluis in Harmelen is een goed punt om om te draaien. Aanleggen kan aan de aanlegpalen bij het huis aan de rechter kade. 
 **Beschrijving:**
 
 Geniet van een mooie, rustige en groene route naar
