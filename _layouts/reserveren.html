@@ -117,9 +117,9 @@
             var MM = ('0' + (date.getMonth() + 1)).slice(-2);
             var YYYY = date.getFullYear();
             var DDMMYYYY = DD + '/' + MM + '/' + YYYY;
-            const antarissoldout = [{{ page.antarissoldout | split: " " }}][0]
-            const oudenrijnsoldout = [{{ page.oudenrijnsoldout | split: " " }}][0]
-            const mythossoldout = [{{ page.mythossoldout | split: " " }}][0]
+            const antarissoldout = [{% if  page.antarissoldout %} {{ page.antarissoldout | split: " " }} {% endif %}][0]
+            const oudenrijnsoldout = [ {% if  page.oudenrijnsoldout %} {{ page.oudenrijnsoldout | split: " " }} {% endif %}][0]
+            const mythossoldout = [{% if  page.mythossoldout %} {{ page.mythossoldout | split: " " }} {% endif %}][0]
             const nickysoldout = [{% if  page.nickysoldout %} {{ page.nickysoldout | split: " " }} {% endif %}][0]
             disable(DDMMYYYY, antarissoldout, "Antaris (max. 7 personen)")
             disable(DDMMYYYY, oudenrijnsoldout, "Oudenrijn (max. 10 personen)")
