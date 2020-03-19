@@ -1,7 +1,7 @@
 ---
 title: Reserveren
 permalink: "/reserveren"
-electricsoldout: 26/06/2020
+electricsoldout: 
 buitenboordsoldout: 21/06/2020
 layout: reserveren
 ---
