@@ -1,7 +1,7 @@
 ---
 title: Reserveren
 permalink: "/reserveren"
-nickysoldout: |+
+nickysoldout: |2+
 
 
 
