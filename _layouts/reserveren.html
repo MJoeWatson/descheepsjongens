@@ -120,7 +120,7 @@
             const antarissoldout = [{{ page.antarissoldout | split: " " }}][0]
             const oudenrijnsoldout = [{{ page.oudenrijnsoldout | split: " " }}][0]
             const mythossoldout = [{{ page.mythossoldout | split: " " }}][0]
-            const nickysoldout = [{{ page.nickysoldout | split: " " }}][0]
+            const nickysoldout = [{% if  page.nickysoldout != nil %} {{ page.nickysoldout | split: " " }} {% endif %}][0]
             disable(DDMMYYYY, antarissoldout, "Antaris (max. 7 personen)")
             disable(DDMMYYYY, oudenrijnsoldout, "Oudenrijn (max. 10 personen)")
             disable(DDMMYYYY, mythossoldout, "Mythos (max. 9 personen)")
