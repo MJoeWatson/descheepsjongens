@@ -19,6 +19,6 @@ layout: prijzen
 
 ### Hele Dag €170,-
 
-
+#### 8 uur
 #### 10:00 - 18:00
 
