@@ -2,8 +2,6 @@
 title: Reserveren
 permalink: "/reserveren"
 nickysoldout: |+
-  20/05/2020
-  20/05/2020
 
 
 

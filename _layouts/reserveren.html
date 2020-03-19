@@ -31,12 +31,8 @@
               <select class="forminput centre" id="boot" name="boot">
                 <option style="color:grey !important;" value="" hidden>Voorkeur voor sloep (op basis van beschikbaarheid)</option>
                 <option value="geen">Geen Voorkeur</option>
-                <optgroup label="Elektrisch"></option>
-                  <option>Oudenrijn (max. 10 personen)</option>
-                  <option>Nicky (max. 10 personen)</option>
-                <optgroup label="Buitenboordmotor"></option>
-                  <option>Antaris (max. 7 personen)</option>
-                  <option>Mythos (max. 9 personen)</option>
+                <option value="geen">Elektrisch</option>
+                <option value="geen">Buitenboordmotor</option>
               </select>
               <input class="forminput centre" type="number" id="person" name="person" placeholder="Aantal Personen">
               <input class="centre" type="text" id="bericht" name="bericht" placeholder="Bericht">
@@ -92,21 +88,17 @@
 
 
             var x = document.querySelector('#boot');
-            {% for date in page.nickysoldout %}
-              if( DDMMYYYY == "{{ date }}" && document.querySelector('#boot').value == 'Nicky (max. 10 personen)'  ) { return date; }
+            {% assign electricsoldout = page.electricsoldout | split: " " %}
+            {% for date in electricsoldout %}
+              if( DDMMYYYY == "{{ date }}" && document.querySelector('#boot').value == 'Elektrisch'  ) { return date; }
             {% endfor %}
 
-            {% for date in page.oudenrijnsoldout %}
-              if( DDMMYYYY == "{{ date }}" && document.querySelector('#boot').value == 'Oudenrijn (max. 10 personen)'  ) { return date; }
+            {% assign buitenboordsoldout = page.buitenboordsoldout | split: " " %}
+            {% for date in buitenboordsoldout %}
+              if( DDMMYYYY == "{{ date }}" && document.querySelector('#boot').value == 'Buitenboordmotor'  ) { return date; }
             {% endfor %}
 
-            {% for date in page.antarissoldout %}
-              if( DDMMYYYY == "{{ date }}" && document.querySelector('#boot').value == 'Antaris (max. 7 personen)'  ) { return date; }
-            {% endfor %}
 
-            {% for date in page.mythossoldout %}
-              if( DDMMYYYY == "{{ date }}" && document.querySelector('#boot').value == 'Mythos (max. 9 personen)'  ) { return date; }
-            {% endfor %}
           },
           toString: function(date) {
             var parts = [date.getDate(), monthNames[date.getMonth()], date.getFullYear()];
@@ -117,14 +109,10 @@
             var MM = ('0' + (date.getMonth() + 1)).slice(-2);
             var YYYY = date.getFullYear();
             var DDMMYYYY = DD + '/' + MM + '/' + YYYY;
-            const antarissoldout = [{% if  page.antarissoldout[0] %} {{ page.antarissoldout | split: " " }} {% endif %}][0]
-            const oudenrijnsoldout = [ {% if  page.oudenrijnsoldout[0] %} {{ page.oudenrijnsoldout | split: " " }} {% endif %}][0]
-            const mythossoldout = [{% if  page.mythossoldout[0] %} {{ page.mythossoldout | split: " " }} {% endif %}][0]
-            const nickysoldout = [{% if  page.nickysoldout[0] %} {{ page.nickysoldout | split: " " }} {% endif %}][0]
-            disable(DDMMYYYY, antarissoldout, "Antaris (max. 7 personen)")
-            disable(DDMMYYYY, oudenrijnsoldout, "Oudenrijn (max. 10 personen)")
-            disable(DDMMYYYY, mythossoldout, "Mythos (max. 9 personen)")
-            disable(DDMMYYYY, nickysoldout, "Nicky (max. 10 personen)")
+            const electricsoldout = [{{ electricsoldout | split: " " }}][0]
+            const buitenboordsoldout = [{{ buitenboordsoldout | split: " " }}][0]
+            disable(DDMMYYYY, electricsoldout, "Elektrisch")
+            disable(DDMMYYYY, buitenboordsoldout, "Buitenboordmotor")
           }
         });
     </script>
