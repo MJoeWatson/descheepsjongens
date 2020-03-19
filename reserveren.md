@@ -2,7 +2,7 @@
 title: Reserveren
 permalink: "/reserveren"
 electricsoldout: 22/03/2020
-buitenboordsoldout: 22/03/2020
+buitenboordsoldout: 23/03/2020
 layout: reserveren
 ---
 
