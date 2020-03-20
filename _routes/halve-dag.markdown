@@ -5,7 +5,7 @@ position: 1
 ---
 
 ### Harmelen
-#### Tijd: Heen en weer, 2,5 uur
+#### Tijd: Heen en weer, 2,5 uur met wind tegen
 
 **Te Doen:**
 
@@ -28,6 +28,8 @@ Geniet van een mooie, rustige en groene route naar
 
 
 ### Linschoten, Oudewater
+[/uploads/route%20Oudewater%20De%20Scheepsjongens-841c8e.pdf]
+
 #### Tijd: Heen en weer, 4,5 uur
 **Te Doen:**
 
