@@ -89,7 +89,7 @@
 
             var x = document.querySelector('#boot');
 
-            {% assign soldout = page.electricsoldout | split: " " %}
+            {% assign soldout = page.soldout | split: " " %}
             {% for date in soldout %}
               if( DDMMYYYY == "{{ date }}" ) { return date; }
             {% endfor %}
