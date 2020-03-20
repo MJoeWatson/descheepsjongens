@@ -28,9 +28,10 @@ Geniet van een mooie, rustige en groene route naar
 
 
 ### Linschoten, Oudewater
-[Oudewater](/uploads/route%20Oudewater%20De%20Scheepsjongens-841c8e.pdf)
-
 #### Tijd: Heen en weer, 4,5 uur
+
+**Vaarkaarten**
+[Oudewater](/uploads/route%20Oudewater%20De%20Scheepsjongens-841c8e.pdf)
 **Te Doen:**
 
 1. Linschoten: Het Wapen van Linschoten
