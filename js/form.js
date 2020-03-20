@@ -16,7 +16,7 @@ LPAWS.sendToTopic = function() {
                 'Gewenste Vaardag: ' +  document.querySelector('#date').value + '\n' +
                 'Dagdeel: ' +  document.querySelector('#dagdeel').value + '\n' +
                 'Boot: ' +  document.querySelector('#boot').value +'\n' +
-                'Personen: ' +  document.querySelector('#person').value + '\n' +
+                'Personen: ' +  document.querySelector('#person').value + 'a.p.\n' +
                 'Bericht: ' +  document.querySelector('#bericht').value,
         Subject: 'Boot Reserveren - ' + document.querySelector('#voornaam').value + ' ' + document.querySelector('#achternaam').value,
         TopicArn: 'arn:aws:sns:eu-west-1:257995789702:descheepsjongens_reserv'
