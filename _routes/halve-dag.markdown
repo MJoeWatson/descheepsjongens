@@ -5,7 +5,7 @@ position: 1
 ---
 
 ### Harmelen
-#### Tijd: Heen en weer, 2,5 uur met wind tegen
+#### Tijd: Heen en weer, 2,5 uur
 
 **Te Doen:**
 
