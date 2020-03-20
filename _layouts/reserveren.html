@@ -117,8 +117,13 @@
             var DDMMYYYY = DD + '/' + MM + '/' + YYYY;
             const electricsoldout = [{{ electricsoldout | split: " " }}][0]
             const buitenboordsoldout = [{{ buitenboordsoldout | split: " " }}][0]
+            const soldout = [{{ soldout | split: " " }}][0]
             disable(DDMMYYYY, electricsoldout, "Elektrisch")
             disable(DDMMYYYY, buitenboordsoldout, "Buitenboordmotor")
+
+            disable(DDMMYYYY, soldout, "geen")
+            disable(DDMMYYYY, soldout, "Elektrisch")
+            disable(DDMMYYYY, soldout, "Buitenboordmotor")
           }
         });
     </script>
