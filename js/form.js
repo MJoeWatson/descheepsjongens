@@ -42,7 +42,7 @@ SES.sendEmail = function() {
       Source: 'descheepsjongens@gmail.com',
       ConfigurationSetName: 'descheepsjongens',
       Template: 'reservation',
-      TemplateData: `{ \"name\": \"${document.querySelector('#voornaam').value}\",
+      TemplateData: `{ \"name\": \"${document.querySelector('#voornaam').value} ${document.querySelector('#achternaam').value}\",
         \"address\": \"${document.querySelector('#adres').value}\",
         \"city\": \"${document.querySelector('#woonplaats').value}\",
         \"email\": \"${document.querySelector('#email').value}\",
