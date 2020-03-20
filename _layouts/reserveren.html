@@ -88,6 +88,12 @@
 
 
             var x = document.querySelector('#boot');
+
+            {% assign soldout = page.electricsoldout | split: " " %}
+            {% for date in soldout %}
+              if( DDMMYYYY == "{{ date }}" ) { return date; }
+            {% endfor %}
+
             {% assign electricsoldout = page.electricsoldout | split: " " %}
             {% for date in electricsoldout %}
               if( DDMMYYYY == "{{ date }}" && document.querySelector('#boot').value == 'Elektrisch'  ) { return date; }
