@@ -51,7 +51,7 @@ SES.sendEmail = function() {
         \"day\": \"${document.querySelector('#date').value}\",
         \"time\": \"${document.querySelector('#dagdeel').value}\",
         \"boat\": \"${document.querySelector('#boot').value}\",
-        \"number\": \"${document.querySelector('#person').value}\",
+        \"number\": \"${document.querySelector('#person').value}a.p.\",
         \"message\": \"${document.querySelector('#bericht').value}\"
 
       }`
