@@ -120,10 +120,6 @@
             const soldout = [{{ soldout | split: " " }}][0]
             disable(DDMMYYYY, electricsoldout, "Elektrisch")
             disable(DDMMYYYY, buitenboordsoldout, "Buitenboordmotor")
-
-            disable(DDMMYYYY, soldout, "geen")
-            disable(DDMMYYYY, soldout, "Elektrisch")
-            disable(DDMMYYYY, soldout, "Buitenboordmotor")
           }
         });
     </script>
