@@ -6,7 +6,7 @@ position: 1
 
 ### Harmelen
 #### Tijd: Heen en weer, 2,5 uur
-
+(/uploads/route%20Harmelen.jpg)
 ![route Harmelen.jpg](/uploads/route%20Harmelen.jpg)
 
 **Brug en Sluistijden:**
