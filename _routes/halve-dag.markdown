@@ -5,14 +5,9 @@ position: 1
 ---
 
 ### Harmelen
-#### Tijd: Heen en weer, 2,5 uur met wind tegen
+#### Tijd: Heen en weer, 2,5 uur
+[/uploads/route%20Harmelen.jpg]
 
-**Te Doen:**
-
-1. Eetgelegenheid De Kloosterhoeve
-2. Natuurgebied De Kievit
-3. Picknicktafel aan het Jaagpad
-4. Schoon zwemwater
 
 **Brug en Sluistijden:**
 Alle bruggen zijn hoog genoeg voor de sloep om eronderdoor te kunnen. Bereid jullie wel voor om soms te bukken! 
