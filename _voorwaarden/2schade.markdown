@@ -10,9 +10,9 @@ De Scheepsjongens zijn niet aansprakelijk voor geleden schade van de huurder;  h
 3. 7)In sluizen de sloep niet vastbinden; Niet samen met een andere boot onder een brug i.v.m. golfslag
 4. 8) Bij aanvang wordt € 150,- borg en €10,- schoonmaakborg extra betaald, dat mits de sloep onbeschadigd en netjes gebleven is, terug ontvangen wordt
 
-  5. 2) Eventuele schade aan de sloep, kussenset, kap .ed. of aan derden wordt verhaald op de huurder. 
+  5. 9) Eventuele schade aan de sloep, kussenset, kap .ed. of aan derden wordt verhaald op de huurder. 
 Kleine beschadigingen worden van de borg ingehouden.
-6. 3) Nader kanten heel voorzichtig en zorg daarom dat bij aanmeren altijd de stootwillen tussen wal en t schip hangen ! gebruik  de  haakstok
-7. 4) Pas op met roken in de boot (ivm brandgaatjes) en scherpe voorwerpen in en aan kleding
+6. 10) Nader kanten heel voorzichtig en zorg daarom dat bij aanmeren altijd de stootwillen tussen wal en t schip hangen ! gebruik  de  haakstok
+7. 11) Pas op met roken in de boot (ivm brandgaatjes) en scherpe voorwerpen in en aan kleding
 
     * 1. a. Zonnebrand crème maakt akelige vlekken op de kussens die er niet meer uit gaan, dus pas op! Neem hiervoor een handdoek mee om op te zitten
