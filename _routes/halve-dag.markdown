@@ -31,14 +31,6 @@ Geniet van een mooie, rustige en groene route naar
 
 1. [Oudewater](/uploads/route%20Oudewater%20De%20Scheepsjongens-841c8e.pdf)
 
-**Te Doen:**
-
-1. Linschoten: Het Wapen van Linschoten
-1. Linschoten: Restaurant De Burgemeester
-1. Oudewater: IJssalon Roberto
-1. Oudewater: Brasserie Joia
-1. Oudewater: Eetcafè Lumiére
-
 **Brug en Sluistijden:**
 
 **Beschrijving:**
@@ -46,10 +38,7 @@ Naast dat midden op de dag een fijne tijd is om te varen, is deze route ook nog 
 
 ### Nieuwerbrug, Bodegraven
 #### Tijd: Heen en weer, 4 uur
-**Te Doen:**
 
-1. Nieuwerbrug: Proeverij de Koffietuin
-1. Bodegraven: Café de Brouwmolen
 
 **Brug en Sluistijden: Brug Bodegraven (Vrije doorgang)**
 
