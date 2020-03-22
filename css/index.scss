@@ -153,6 +153,10 @@ li:hover > .dropdown {
    "content1"
    "content2";
   grid-auto-columns: 1fr;
+
+  img {
+    max-width: 100%;
+  }
 }
 .content1, .content2  {
   padding-bottom: 1em;
