@@ -156,6 +156,10 @@ li:hover > .dropdown {
 
   img {
     max-width: 100%;
+    transition: .2s;
+  }
+  img:hover {
+    -webkit-transform: scale(1.5);
   }
 }
 .content1, .content2  {
