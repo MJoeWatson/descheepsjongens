@@ -1,6 +1,5 @@
 ---
 title: descheepsjongens
-url: https://mattwatson-.github.io/descheepsjongens
 timezone: Europe/Amsterdam
 collections:
   contact:
@@ -21,3 +20,4 @@ collections:
   voorwaarden:
     title: Voorwaarden
     output: true
+url: https://mattwatson-.github.io/descheepsjongens
