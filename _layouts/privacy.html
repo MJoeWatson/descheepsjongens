@@ -1,0 +1,23 @@
+<!DOCTYPE html>
+<html lang="en">
+  {% include head.html %}
+  <body>
+    <div class="wrapper">
+      <div class="header-wrapper">
+        {% include header.html %}
+      </div>
+      <div class="title"> <h1>Privacy<h1> </div>
+      <section id="home" class="content">
+        {% for section in site.privacy %}
+          <div style="margin-bottom: 13em;" class="information">
+            <div class="content1">
+              <h4 class="head" style="padding-left: 2em;">{{ section.title }}</h4>
+              {{ section.content }}
+            </div>
+          </div>
+        {% endfor %}
+      {% include footer.html %}
+    </div>
+    {% include goToPage.html %}
+  </body>
+</html>

@@ -23,4 +23,7 @@ collections:
   covid:
     title: Covid
     output: true
+  privacy:
+    title: Privacy
+    output: true
 url: https://mattwatson-.github.io/descheepsjongens
