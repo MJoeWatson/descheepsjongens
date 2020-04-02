@@ -27,7 +27,7 @@ Geniet van een mooie, rustige en groene route naar
 
 **Vaarkaarten:**
 
-1. [Oudewater](/uploads/route%20Oudewater%20De%20Scheepsjongens-841c8e.pdf)
+1. [Rondje Oudewater - Montfoort.pdf](/descheepsjongens/uploads/rondje%20Oudewater%20-%20Montfoort.pdf)
 
 **Brug en Sluistijden:**
 
