@@ -7,8 +7,7 @@ position: 1
 ### Harmelen
 #### Tijd: Heen en weer, 2,5 uur
 
-
-![route Harmelen.jpg](/descheepsjongens/uploads/route%20Harmelen.jpg)
+[Klik hier voor Harmelen](/Descheepsjongens/uploads/route%20harmelen.pdf)
 
 **Brug en Sluistijden:**
 Alle bruggen zijn hoog genoeg voor de sloep om eronderdoor te kunnen. Bereid jullie wel voor om soms te bukken! 
@@ -28,7 +27,7 @@ Geniet van een mooie, rustige en groene route naar
 
 **Vaarkaarten:**
 
-[Klik hier voor Rondje Oudewater - Montfoort kaart](/descheepsjongens/uploads/rondje%20Oudewater%20-%20Montfoort.pdf)
+[Klik hier voor Oudewater kaart](/uploads/route%20Oudewater%20De%20Scheepsjongens.pdf)
 
 **Brug en Sluistijden:**
 
@@ -40,9 +39,8 @@ Naast dat midden op de dag een fijne tijd is om te varen, is deze route ook nog 
 
 **Vaarkaarten**
 
-[Klik hier voor Rondje Bodegraven kaart](/descheepsjongens/uploads/route%20Bodegraven%20De%20Scheepsjongens%20%20%20/.pdf)
+[Klik hier voor Bodegraven kaart](/uploads/route%20Hekendorp%20De%20Scheepsjongens.pdf)
 
-[route Bodegraven De Scheepsjongens   ...pdf](/uploads/route%20Bodegraven%20De%20Scheepsjongens%20%20%20.pdf)
 
 **Brug en Sluistijden: Brug Bodegraven (Vrije doorgang)**
 
