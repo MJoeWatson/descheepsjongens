@@ -20,4 +20,7 @@ collections:
   voorwaarden:
     title: Voorwaarden
     output: true
+  covid:
+    title: Covid
+    output: true
 url: https://mattwatson-.github.io/descheepsjongens

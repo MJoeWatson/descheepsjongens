@@ -41,7 +41,7 @@ input, select, option {
     text-decoration: none;
     display: inline-block;
     font-size: 16px;
-    font-family: "Crimson Text"
+    font-family: "Montserrat"
 }
 
 textarea:focus, input:focus, select:focus {
@@ -57,7 +57,7 @@ input:focus::-webkit-input-placeholder {
 h1 {
   margin: 0.2em;
   font-weight: 100;
-  letter-spacing: 0.07em;
+  letter-spacing: 0.05em;
   padding-left: 0em;
 }
 h2 {
@@ -73,7 +73,7 @@ a {
 }
 
 button, h1, h2, h3, h4 {
-  font-family: "Playfair Display";
+  font-family: "Montserrat";
 }
 
 h3 {
@@ -83,7 +83,7 @@ h3 {
 }
 
 p, input, select, option {
-  font-family: "Crimson Text"
+  font-family: "Montserrat"
 }
 
 ul {
@@ -261,6 +261,9 @@ nav {
   float: right;
   line-height: 50px;
   width: 3em;
+  li {
+    margin: 0px;
+  }
 }
 
 #dropdown-button {
@@ -281,7 +284,7 @@ nav {
   height: 100%;
   width: 100%;
   display: inline-block;
-  margin-top: 1px;
+  margin-top: 0px;
 }
 
 .nav-dropdown-button {
@@ -293,7 +296,6 @@ nav {
 .nav-button-right {
   float: right;
   height: 100%;
-  letter-spacing: 0.9px;
 }
 
 .nav-dropdown-button:hover,
