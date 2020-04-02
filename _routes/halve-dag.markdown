@@ -7,6 +7,7 @@ position: 1
 ### Harmelen
 #### Tijd: Heen en weer, 2,5 uur
 
+
 ![route Harmelen.jpg](/descheepsjongens/uploads/route%20Harmelen.jpg)
 
 **Brug en Sluistijden:**
@@ -27,7 +28,7 @@ Geniet van een mooie, rustige en groene route naar
 
 **Vaarkaarten:**
 
-1. [Rondje Oudewater - Montfoort.pdf](/descheepsjongens/uploads/rondje%20Oudewater%20-%20Montfoort.pdf)
+1. [Klik hier voor Rondje Oudewater - Montfoort kaart](/descheepsjongens/uploads/rondje%20Oudewater%20-%20Montfoort.pdf)
 
 **Brug en Sluistijden:**
 
