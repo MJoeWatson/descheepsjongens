@@ -11,6 +11,6 @@ date: 2020-03-18 16:02:00 +01:00
 
 ### Mythos
 
-![mythos.jpeg](/descheepsjongens/uploads/mythos.jpeg)
+![mythos.jpeg](/uploads/mythos.jpeg)
 
 1. 1. Comfortabele Buitenboordotorsloep voor max. 8 personen
