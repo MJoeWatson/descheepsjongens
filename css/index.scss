@@ -95,7 +95,7 @@ ul {
 }
 
 ul, li {
-  height: 100%;
+  height: auto;
   width: inherit;
 }
 li {
@@ -157,10 +157,10 @@ li:hover > .dropdown {
 
   img {
     max-width: 100%;
-    transition: .2s;
+    transition: .5s;
   }
   img:hover {
-    -webkit-transform: scale(1.5);
+    -webkit-transform: scale(1.04);
   }
 }
 
