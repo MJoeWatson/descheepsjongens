@@ -7,7 +7,7 @@ position: 1
 ### Harmelen
 #### Tijd: Heen en weer, 2,5 uur
 
-[Klik hier voor Harmelen](/Descheepsjongens/uploads/route%20harmelen.pdf)
+[Klik hier voor Harmelen](/uploads/route%20harmelen.pdf)
 
 **Brug en Sluistijden:**
 Alle bruggen zijn hoog genoeg voor de sloep om eronderdoor te kunnen. Bereid jullie wel voor om soms te bukken! 

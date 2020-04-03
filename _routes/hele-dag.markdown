@@ -9,7 +9,7 @@ position: 2
 
 **Vaarkaarten**
 
-[Klik hier voor Nieuwkoopse plassen kaart](/Descheepsjongens/uploads/route%20Nieuwkoopse%20plassen%20De%20Scheepsjongens.pdf)
+[Klik hier voor Nieuwkoopse plassen kaart](/uploads/route%20Nieuwkoopse%20plassen%20De%20Scheepsjongens.pdf)
 
 **Brug en Sluistijden:**
 
@@ -32,7 +32,7 @@ Vaar over de Grecht een rondje naar de Nieuwkoopse plassen.
 
 **Vaarkaarten:**
 
-[Klik hier voor Rondje Oudewater](/Descheepsjongens/uploads/rondje%20Oudewater%20-%20Montfoort.pdf)
+[Klik hier voor Rondje Oudewater](/uploads/rondje%20Oudewater%20-%20Montfoort.pdf)
 
 **Brug en Sluistijden:**
 1. Sluis Montfoort: 
