@@ -5,11 +5,17 @@ collections:
   contact:
     title: Contact
     output: true
+  covid:
+    title: Covid
+    output: true
   gallerij:
     title: Gallerij
     output: true
   posts:
     title: Posts
+    output: true
+  privacy:
+    title: Privacy
     output: true
   routes:
     title: Routes
@@ -19,11 +25,5 @@ collections:
     output: true
   voorwaarden:
     title: Voorwaarden
-    output: true
-  covid:
-    title: Covid
-    output: true
-  privacy:
-    title: Privacy
     output: true
 url: https://mattwatson-.github.io/descheepsjongens
