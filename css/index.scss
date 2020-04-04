@@ -360,7 +360,7 @@ button:active {
     transform: scale(0.99);
 }
 
-@media (min-width: 870px) {
+@media (min-width: 890px) {
   #nav-dropdown {
    display: none;
   }
@@ -369,7 +369,7 @@ button:active {
   }
 }
 
-@media (max-width: 870px) {
+@media (max-width: 890px) {
   .nav-button-right {
    display: none;
   }
