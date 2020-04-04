@@ -8,14 +8,14 @@
       </div>
       <div class="title"> <h1>Privacy<h1> </div>
       <section id="home" class="content">
-        {% for section in site.privacy %}
-          <div style="margin-bottom: 25em;" class="information">
-            <div class="content1">
-              <h4 class="head" style="padding-left: 2em;">{{ section.title }}</h4>
-              {{ section.content }}
+        <div class="information">
+          <div class="content1">
+            <div class="centre">
+              {{ content }}
             </div>
           </div>
-        {% endfor %}
+        </div>
+      </section>
       {% include footer.html %}
     </div>
     {% include goToPage.html %}
