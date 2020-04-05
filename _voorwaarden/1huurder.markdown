@@ -10,7 +10,7 @@ date: 2020-03-18 12:25:00 +01:00
 -Wordt de sloep aan het eind van de verhuurperiode te laat teruggebracht zijn er kosten aan verbonden;
 als de sloep verhuurd is wordt het hele volgende dagdeel in rekening gebracht,
 -bij geen volgend verhuur dan zijn de extra kosten € 10,- per 15 min.
- b. Langer varen kan soms, maar dit in overleg van tevoren.
+Langer varen kan soms, maar dit in overleg van tevoren.
 
 3) De toegestane maximum snelheid is 6 km/uur, dat is echt heel rustig (wandelsnelheid).
 
