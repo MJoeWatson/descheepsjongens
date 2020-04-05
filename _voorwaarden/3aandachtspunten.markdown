@@ -11,7 +11,6 @@ date: 2020-03-18 12:25:00 +01:00
 5. Paraplu: €12,50
 6. **Lenen is gratis**
 
-
 13) De huurder moet er voor zorg dragen dat er géén afval in de natuur terecht komt.  ~Afval zelf mee naar huis nemen.
 
 14) De sloep a.u.b. netjes achter laten: Een doekje en stoffer en blik en een doekje zijn beschikbaar bij terugkomst.  Wij willen het voor je doen,  dan wordt € 10,- verrekend met de borg.
@@ -22,7 +21,7 @@ date: 2020-03-18 12:25:00 +01:00
 
  *  Met zon is het net zo warm onder de kap,  je hebt weinig zicht,  sommige bruggen kan je zo niet onderdoor, dus beter zo te laten
 
-17) Touwen binnenboord!!! Anders komen ze in de schroef terecht en draait de motor stuk.
+17) Touwen binnenboord! Anders komen ze in de schroef terecht en draait de motor stuk.
 
 18) Als de sloep iets in de schroef heeft en niet goed vaart, dan kun je de sloep even in z’n achteruit zetten. Meestal draait het weer los. Zo niet, motor uitzetten en ons bellen om te voorkomen dat de motor in de soep draait!
 
