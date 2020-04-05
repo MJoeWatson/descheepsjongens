@@ -5,11 +5,11 @@ collections:
   contact:
     title: Contact
     output: true
-  news:
-    title: News
-    output: true
   gallerij:
     title: Gallerij
+    output: true
+  news:
+    title: News
     output: true
   posts:
     title: Posts
