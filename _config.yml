@@ -5,8 +5,8 @@ collections:
   contact:
     title: Contact
     output: true
-  covid:
-    title: Covid
+  news:
+    title: News
     output: true
   gallerij:
     title: Gallerij
