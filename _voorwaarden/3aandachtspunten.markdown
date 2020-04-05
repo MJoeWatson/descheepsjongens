@@ -4,9 +4,6 @@ date: 2020-03-18 12:25:00 +01:00
 ---
 
 12) Bij verlies worden de volgende kosten van de borg ingehouden:
-
-1. vaarkaart
-
 1. Vaarkaart: €5,-
 2. Stootwil: €30,-
 3. Afzetstok: €30,-
