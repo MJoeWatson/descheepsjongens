@@ -39,8 +39,7 @@ Naast dat midden op de dag een fijne tijd is om te varen, is deze route ook nog 
 
 **Vaarkaarten**
 
-[Klik hier voor Bodegraven kaart](/uploads/route%20Hekendorp%20De%20Scheepsjongens.pdf)
-
+[Klik hier voor Bodegraven kaart](/uploads/route-Bodegraven-De-Scheepsjongens.pdf)
 
 **Brug en Sluistijden: Brug Bodegraven (Vrije doorgang)**
 
