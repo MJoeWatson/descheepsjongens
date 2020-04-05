@@ -10,7 +10,7 @@ date: 2020-03-18 12:25:00 +01:00
     * 3. Afzetstok: €30,-
     * 4. Zwemvest: €35,-
     * 5. Paraplu: €12,50
-    * 6. **Lenen is gratis!**
+    * 6. **Lenen is gratis**
 
 
 13) De huurder moet er voor zorg dragen dat er géén afval in de natuur terecht komt.  ~Afval zelf mee naar huis nemen.
