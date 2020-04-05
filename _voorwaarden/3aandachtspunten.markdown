@@ -18,8 +18,8 @@ date: 2020-03-18 12:25:00 +01:00
 5. 16) De kappen zijn netjes naar beneden gevouwen,  graag zo houden.  * Alleen bij regen eventueel te gebruiken. - De kap moet altijd binnenboord opgevouwen zijn (i.v.m. beschadigen)
 
  * 1. a. Met zon is het net zo warm onder de kap,  je hebt weinig zicht,  sommige bruggen kan je zo niet onderdoor, dus beter zo te laten
-6. 17) Touwen binnenboord!!! Anders komen ze in de schroef terecht en draait de motor stuk
-7. 18) Als de sloep iets in de schroef heeft en niet goed vaart, dan kun je de sloep even in z’n achteruit zetten. Meestal draait het weer los. Zo niet, motor uitzetten en ons bellen om te voorkomen dat de motor in de soep draait!
+17) Touwen binnenboord!!! Anders komen ze in de schroef terecht en draait de motor stuk
+ 18) Als de sloep iets in de schroef heeft en niet goed vaart, dan kun je de sloep even in z’n achteruit zetten. Meestal draait het weer los. Zo niet, motor uitzetten en ons bellen om te voorkomen dat de motor in de soep draait!
 8. 19) Als je door een sluis of brug vaart, moet er goed rekening gehouden worden met de openingstijden:   ~sluizen en bruggen worden soms op vaste tijden geopend. Let goed op de laatste doorvaar mogelijkheid en dat je de goede route vaart
 9. 20) Er wordt  bij sluizen en bruggen vaak een paar euro tol gevraagd en bij de Nieuwkoopse plassen een bijdrage voor natuurbeheer
 10. 21) We onderhouden de sloepen goed en het gebeurd niet vaak, maar een technische storing of pech kán voorkomen, dat is overmacht. We proberen het dan uiteraard zo goed mogelijk op te lossen. We vragen dan ook jullie begrip hiervoor
