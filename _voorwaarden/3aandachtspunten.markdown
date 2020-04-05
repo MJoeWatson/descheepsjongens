@@ -4,13 +4,12 @@ date: 2020-03-18 12:25:00 +01:00
 ---
 
 12) Bij verlies worden de volgende kosten van de borg ingehouden:
-
-    * 1. Vaarkaart: €5,-
-    * 2. Stootwil: €30,-
-    * 3. Afzetstok: €30,-
-    * 4. Zwemvest: €35,-
-    * 5. Paraplu: €12,50
-    * 6. **Lenen is gratis!**
+1. Vaarkaart: €5,-
+2. Stootwil: €30,-
+3. Afzetstok: €30,-
+4. Zwemvest: €35,-
+5. Paraplu: €12,50
+6. **Lenen is gratis**
 
 13) De huurder moet er voor zorg dragen dat er géén afval in de natuur terecht komt.  ~Afval zelf mee naar huis nemen.
 
@@ -22,9 +21,9 @@ date: 2020-03-18 12:25:00 +01:00
 
  *  Met zon is het net zo warm onder de kap,  je hebt weinig zicht,  sommige bruggen kan je zo niet onderdoor, dus beter zo te laten
 
-17) Touwen binnenboord!!! Anders komen ze in de schroef terecht en draait de motor stuk.
+17) Touwen binnenboord! Anders komen ze in de schroef terecht en draait de motor stuk.
 
- 18) Als de sloep iets in de schroef heeft en niet goed vaart, dan kun je de sloep even in z’n achteruit zetten. Meestal draait het weer los. Zo niet, motor uitzetten en ons bellen om te voorkomen dat de motor in de soep draait!
+18) Als de sloep iets in de schroef heeft en niet goed vaart, dan kun je de sloep even in z’n achteruit zetten. Meestal draait het weer los. Zo niet, **motor uitzetten** en ons bellen om te voorkomen dat de motor in de soep draait!
 
 19) Als je door een sluis of brug vaart, moet er goed rekening gehouden worden met de openingstijden:   ~sluizen en bruggen worden soms op vaste tijden geopend. Let goed op de laatste doorvaar mogelijkheid en dat je de goede route vaart
 
