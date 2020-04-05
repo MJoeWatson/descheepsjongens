@@ -12,9 +12,9 @@ date: 2020-03-18 12:25:00 +01:00
  - bij geen volgend verhuur dan zijn de extra kosten € 10,- per 15 min.
    Langer varen kan soms, maar dit in overleg van tevoren.
 
-1. De toegestane maximum snelheid is 6 km/uur, dat is echt heel rustig (wandelsnelheid).
+3. De toegestane maximum snelheid is 6 km/uur, dat is echt heel rustig (wandelsnelheid).
 
 -Het is ook belangrijk je daar aan te houden om beschadiging aan de natuur, de oevers, andere boten én een boete te voorkomen.
 -Elke boot is uitgerust met een GPS volg systeem.
 
-1. De bestuurder mag geen alcohol drinken. Overmatig alcoholgebruik wordt ook niet toegestaan in de sloep, er wordt op gecontroleerd!
+4. De bestuurder mag geen alcohol drinken. Overmatig alcoholgebruik wordt ook niet toegestaan in de sloep, er wordt op gecontroleerd!
