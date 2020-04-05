@@ -23,7 +23,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 17) Touwen binnenboord! Anders komen ze in de schroef terecht en draait de motor stuk.
 
-18) Als de sloep iets in de schroef heeft en niet goed vaart, dan kun je de sloep even in z’n achteruit zetten. Meestal draait het weer los. Zo niet, *motor uitzetten* en ons bellen om te voorkomen dat de motor in de soep draait!
+18) Als de sloep iets in de schroef heeft en niet goed vaart, dan kun je de sloep even in z’n achteruit zetten. Meestal draait het weer los. Zo niet, **motor uitzetten** en ons bellen om te voorkomen dat de motor in de soep draait!
 
 19) Als je door een sluis of brug vaart, moet er goed rekening gehouden worden met de openingstijden:   ~sluizen en bruggen worden soms op vaste tijden geopend. Let goed op de laatste doorvaar mogelijkheid en dat je de goede route vaart
 
