@@ -5,7 +5,7 @@ position: 0
 ---
 
 ### Ouderijn
-![foto elek.jpg]({{site.baseurl}}/assets/images/boats/ouderijn/ouderijn-far.jpg){:class="centre"}
+![foto elek.jpg]({{site.baseurl}}/assets/images/boats/ouderijn/foto elek.jpg){:class="centre"}
 1. 1. Fluistersloep voor max. 10 personen
 
 
