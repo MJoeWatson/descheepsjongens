@@ -6,10 +6,10 @@ position: 0
 
 ### Ouderijn
 ![ouderijn-far.jpg]({{site.baseurl}}/assets/images/boats/ouderijn/ouderijn-far.jpg){:class="centre"}
-1. 1. Comfortabele fluistersloep voor max. 10 personen
+1. 1. Fluistersloep voor max. 10 personen
 
 ### Nicky
 ![nicky-far.jpeg]({{site.baseurl}}/assets/images/boats/nicky/nicky-far.jpeg){:class="centre"}
-1. 1.  Ruime fluistersloep voor max. 10 personen.
+1. 1.  Fluistersloep voor max. 10 personen.
 
 
