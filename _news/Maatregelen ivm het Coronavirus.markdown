@@ -15,19 +15,19 @@ date: 2020-03-18 12:25:00 +01:00
  5. Volg  de richtlijnen van het RIVM
 
 
- 7. ** Voelt u zich niet lekker of bent u verkouden of heeft u koorts, ga er niet op uit!
+ 7. * * Voelt u zich niet lekker of bent u verkouden of heeft u koorts, ga er niet op uit!
 
- 8. * Houd minimaal 1,5 meter afstand.
+ 8. * * Houd minimaal 1,5 meter afstand.
 
- 9. * Zo veel mogelijk alle vragen telefonisch of per mail stellen.
+ 9. * * Zo veel mogelijk alle vragen telefonisch of per mail stellen.
 
-10. * Bij voorkeur contactloos betalen of via telefoon overmaken.
+10. * * Bij voorkeur contactloos betalen of via telefoon overmaken.
 
-11. * Beperk de verblijfsduur op ons terrein zo veel mogelijk.
+11. * * Beperk de verblijfsduur op ons terrein zo veel mogelijk.
 
-12. * Onderweg niet uitstappen, neem zelf je picknickmand mee.
+12. * * Onderweg niet uitstappen, neem zelf je picknickmand mee.
 
-13. * Kom niet met het openbaar vervoer.
+13. * * Kom niet met het openbaar vervoer.
 
 14. Aangezien de situatie blijft veranderen kunnen onze maatregelen nog verder aangepast worden. Gemaakte reserveringen worden in overleg dan verplaatst of geannuleerd.
 
