@@ -3,7 +3,7 @@ title: Maatregelen ivm het Coronavirus
 date: 2020-03-18 12:25:00 +01:00
 ---
 
-1. Onze sloepen verhuur gaat vooralsnog binnenkort van start  tenzij de overheid anders beslist. We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid.
+1. Onze sloepen verhuur gaat vooralsnog van start  tenzij de overheid anders beslist. We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid.
 
 2. Gezinnen mogen varen en in andere gezelschappen mogen er max 3  personen in de sloep, zodat de afstand van 1.5 meter aan boord gewaarborgd kan blijven.
 
@@ -14,13 +14,13 @@ De tijden worden aangepast en de vaartijd, vertrek en aankomst zijn in overleg, 
 
 5. Volg  de richtlijnen van het RIVM
 
-5. 1. Voelt u zich niet lekker of bent u verkouden en/of koorts) en ga er niet op uit!
-5. 2. Houd minimaal 1,5 meter afstand
-5. 3. Zo veel mogelijk alle vragen telefonisch of per mail stellen
-5. 4. Bij voorkeur contactloos betalen of via telefoon overmaken,
-5. 5. Beperk de verblijfsduur op ons terrein zo veel mogelijk.
-5. 6. Onderweg niet uitstappen maar neem zelf je picknickmand mee.
-5. 7. Kom niet met het openbaar vervoer.
-5. 8. Aangezien de situatie blijft veranderen kunnen onze maatregelen nog verder aangepast worden. Gemaakte reserveringen worden in overleg dan verplaatst of geannuleerd.
+5. - 1. Voelt u zich niet lekker of bent u verkouden en/of koorts) en ga er niet op uit!
+5. - 2. Houd minimaal 1,5 meter afstand
+5. - 3. Zo veel mogelijk alle vragen telefonisch of per mail stellen
+5. - 4. Bij voorkeur contactloos betalen of via telefoon overmaken,
+5. - 5. Beperk de verblijfsduur op ons terrein zo veel mogelijk.
+5. - 6. Onderweg niet uitstappen maar neem zelf je picknickmand mee.
+5. - 7. Kom niet met het openbaar vervoer.
+5. - 8. Aangezien de situatie blijft veranderen kunnen onze maatregelen nog verder aangepast worden. Gemaakte reserveringen worden in overleg dan verplaatst of geannuleerd.
 
 6. We wensen iedereen een goede gezondheid toe.
