@@ -12,23 +12,23 @@ De tijden worden aangepast en de vaartijd, vertrek en aankomst zijn in overleg, 
 
 4. Uitleg wordt bij voorkeur per mail of telefonisch gedaan, bij aankomst graag met 1 persoon contact (1,5 m) en zal de uitleg van de route en boot buiten op gepaste afstand worden gegeven. Zoals altijd maken we de boten voor en na iedere vaart schoon.  De sloepen worden nu extra gedesinfecteerd en u kunt zelf gebruik maken van het desinfectiemiddel.
 
-5. Volg de richtlijnen van het RIVM
-  
-* Voelt u zich niet lekker of bent u verkouden en/of koorts) en ga er niet op uit!
+5. Volg  de richtlijnen van het RIVM
+1.  
+5.  * Voelt u zich niet lekker of bent u verkouden en/of koorts) en ga er niet op uit!
 
-* Houd minimaal 1,5 meter afstand
+5.  * Houd minimaal 1,5 meter afstand
 
-* Zo veel mogelijk alle vragen telefonisch of per mail stellen
+5.  * Zo veel mogelijk alle vragen telefonisch of per mail stellen
 
-* Bij voorkeur contactloos betalen of via telefoon overmaken,
+5.  * Bij voorkeur contactloos betalen of via telefoon overmaken,
 
-* Beperk de verblijfsduur op ons terrein zo veel mogelijk.
+5.  * Beperk de verblijfsduur op ons terrein zo veel mogelijk.
 
-* Onderweg niet uitstappen maar neem zelf je picknickmand mee.
+5.  * Onderweg niet uitstappen maar neem zelf je picknickmand mee.
 
-* Kom niet met het openbaar vervoer.
+5.  * Kom niet met het openbaar vervoer.
 
-Aangezien de situatie blijft veranderen kunnen onze maatregelen nog verder aangepast worden. Gemaakte reserveringen worden in overleg dan verplaatst of geannuleerd.
+5.   Aangezien de situatie blijft veranderen kunnen onze maatregelen nog verder aangepast worden. Gemaakte reserveringen worden in overleg dan verplaatst of geannuleerd.
 
 
 6. We wensen iedereen een goede gezondheid toe.
