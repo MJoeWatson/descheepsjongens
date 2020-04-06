@@ -15,7 +15,7 @@ date: 2020-03-18 12:25:00 +01:00
  5. Volg  de richtlijnen van het RIVM
 
 
- 7. * Voelt u zich niet lekker of bent u verkouden en/of koorts) en ga er niet op uit!
+ 7. ** Voelt u zich niet lekker of bent u verkouden en/of koorts) en ga er niet op uit!
 
  8. * Houd minimaal 1,5 meter afstand
 
