@@ -10,3 +10,6 @@ De cadeaubonnen zijn op afspraak te halen in Harmelen of Woerden, Je krijgt dan 
 Wanneer het plan er is om te varen kan er op de gewenste dag een reservering gemaakt te worden via de site.
 
 ![cadeaubon met kapiteinspet-77fad7.png](/uploads/cadeaubon%20met%20kapiteinspet-77fad7.png)
+
+
+![cadeaubon met kapiteinspet222222222222222.png](/uploads/cadeaubon%20met%20kapiteinspet222222222222222.png)
