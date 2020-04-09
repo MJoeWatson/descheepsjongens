@@ -4,7 +4,7 @@ permalink: "/reserveren"
 soldout: '25/03/2020
 
 '
-electricsoldout: 22/03/2020
+electricsoldout: 12/04/2020
 buitenboordsoldout: 23/03/2020
 layout: reserveren
 ---
