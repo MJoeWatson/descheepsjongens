@@ -8,17 +8,5 @@ Het is ook mogelijk om cadeaubonnen te kopen bij ons. Want hoe leuk is het om al
 De cadeaubonnen zijn op afspraak te halen in Harmelen of Woerden, Je krijgt dan een leuke kapiteinspet bij een bon voor een halve of een hele dag!
 
 Wanneer het plan er is om te varen kan er op de gewenste dag een reservering gemaakt te worden via de site.
-![Naamloos345r67890-.png](/uploads/Naamloos345r67890-.png)
-
-
-
-
-
-
-
-
-
-
-
 
 ![cadeaubon met kapiteinspet-77fad7.png](/uploads/cadeaubon%20met%20kapiteinspet-77fad7.png)
