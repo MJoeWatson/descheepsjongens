@@ -18,7 +18,7 @@
               <input class="forminput centre" type="text" id="voornaam" name="voornaam" placeholder="Voornaam">
               <input class="forminput centre" type="text" id="achternaam" name="achternaam" placeholder="Achternaam">
               <input class="forminput centre" type="text" id="adres" name="adres" placeholder="Adres">
-              <input class="forminput centre" type="email" id="email" name="email" placeholder="Email">
+              <input onchange="emailVali()" class="forminput centre" type="email" id="email" name="email" placeholder="Email"><span id='emailSpan' class="forminput centre" style="color:red;display:none">Ongedldige emailadres</span>
               <input class="forminput centre" type="text" id="woonplaats" name="woonplaats" placeholder="Woonplaats">
               <input class="forminput centre" type="tel" id="tel" name="tel" placeholder="Telefoon Nummer">
               <select class="forminput centre" id="dagdeel" name="dagdeel">
@@ -53,6 +53,17 @@
     <script defer src="{{site.baseurl}}/js/form.js"></script>
     <script src="{{site.baseurl}}/js/pikaday.js"></script>
     <script>
+        function emailVali() {
+          var email = document.getElementById("email").value
+          var emailSpan = document.getElementById("emailSpan")
+          var re = /^(([^<>()[\]\\.,;:\s@\"]+(\.[^<>()[\]\\.,;:\s@\"]+)*)|(\".+\"))@((\[[0-9]{1,3}\.[0-9]{1,3}\.[0-9]{1,3}\.[0-9]{1,3}\])|(([a-zA-Z\-0-9]+\.)+[a-zA-Z]{2,}))$/;
+          if (!re.test(email)) {
+            emailSpan.style.display = "block"
+          }
+          else {
+            emailSpan.style.display = "none"
+          }
+        }
         function disable(date, array, string) {
           const op = document.getElementById("boot").getElementsByTagName("option");
           if (array && array.indexOf(date) !== -1) {
