@@ -38,6 +38,9 @@ Door de vele bomen langs het water, is er op warme dagen ook wat schaduw.
 
 **Brug en Sluistijden:**
 
+In een halve dag kun je ivm de tijd wat het kost, niet door de sluis in Oudewater.
+
+
 **Beschrijving:**
 In beide van deze oude dorpen is er de mogelijkheid om aan te leggen voor een korte pauze. Let wel goed op de tijd, en keer op tijd om om op de afgesproken tijd terug te zijn.
 
