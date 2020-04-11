@@ -14,7 +14,7 @@ Vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremminge
 
 Reserveren is eenvoudig via onderstaand formulier.
 
-~**as zondag 12 april is de Antaris nog beschikbaar**~
+~**as zondag 12 april zijn de electrische sloepen al uit varen, mototsloep nog wel vrij**~
 
 De reservering is pas gemaakt wanneer we deze bevestigd hebben;
 
