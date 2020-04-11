@@ -31,7 +31,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 14. ~Zo veel mogelijk alle vragen telefonisch of per mail stellen.
 
-15. ~ let wel,Bruggen en sluizen worden nog niet altijd bediend. 
+15. Let wel, bruggen en sluizen worden nog niet altijd bediend. 
 
 16. Aangezien de situatie blijft veranderen kunnen onze maatregelen nog verder aangepast worden. Gemaakte reserveringen worden in overleg dan verplaatst of geannuleerd.
 
