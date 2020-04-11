@@ -14,7 +14,7 @@ Vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremminge
 
 Reserveren is eenvoudig via onderstaand formulier.
 
-~** as zondag 12 april is de Antaris nog beschikbaar **~
+~**as zondag 12 april is de Antaris nog beschikbaar**~
 
 De reservering is pas gemaakt wanneer we deze bevestigd hebben;
 
