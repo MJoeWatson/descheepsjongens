@@ -5,7 +5,9 @@ position: 1
 ---
 
 Let op, 
+
 ~ Niet aanleggen en niet uitstappen zolang er Corona maatregelen zijn. zie "nieuws"
+
 ~ Er kunnen stremmingen zijn.
 
 ### Harmelen
