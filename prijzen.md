@@ -4,6 +4,10 @@ permalink: "/prijzen"
 layout: prijzen
 ---
 
+De vaartijden worden iets aangepast ivm Het corona virus
+dit in overleg via de reservering/mail
+
+
 ### Ochtend €85,- 
 
 #### 10:00 - 13:00 (3 uur)
