@@ -112,9 +112,9 @@ function validateForm() {
     var formsuccess = document.getElementById("formsuccess");
     console.log(w)
     for (i = 0; i < x.length; i++) {
-      if(!x[i].value) {
+      if(!x[i].value && x[i].nodeName != 'SPAN') {
         x[i].style.border = "2px solid red";
-        var failed = true;
+        failed = true;
       } else {
         x[i].style.border = "";
       }
