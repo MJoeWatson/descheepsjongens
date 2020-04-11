@@ -22,9 +22,8 @@ position: 2
 **Beschrijving:**
 
 Vaar over de Grecht een rondje naar de Nieuwkoopse plassen.
-   Voor wie van rust en natuur houdt, is dit een mooie groene route door de rietkragen.
-   Op de plassen is er mogelijkheid om even een duik te nemen.
-   Vervolgens vaar je richting Zwammerdam en over de Ouderijn terug.
+Voor wie van rust en natuur houdt, is dit een mooie groene route langs de rietkragen.
+Vervolgens vaar je richting Zwammerdam en over de rijn weer terug.
 
 
 ### Linschoten, Oudewater, Montfoort
@@ -36,8 +35,13 @@ Vaar over de Grecht een rondje naar de Nieuwkoopse plassen.
 
 **Brug en Sluistijden:**
 1. Sluis Montfoort: 
-2. Deze sluis draait op zelfbediening. Druk op de knop, leg de sloep niet vast en houd handen binnenboord!
+2. Deze sluis draait op zelfbediening.
+Vaar de sloep tot in de sluis, volg de instructies ter plaatse, 
+Druk op de knop en dan moet je even geduld hebben, bij te vaak drukken kan er storing ontstaan;
+sloep niet vastbinden  maar het touw evt laten vieren ivm stijgen/ dalen van het water; je kan de haakstok gebruiken. en houd handen binnenboord!
 
 **Beschrijving:**
+
+Populaire en leuke route langs Historische dorpen / stadjes, Linschoten, Montfoort en Oudewater.
 
 
