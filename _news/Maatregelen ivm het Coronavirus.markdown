@@ -5,7 +5,7 @@ date: 2020-03-18 12:25:00 +01:00
 
  1. Onze sloepen verhuur gaat vooralsnog van start  tenzij de overheid anders beslist. We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid.
 
- 2. Gezinnen mogen varen en in andere gezelschappen mogen er max 3  personen in de sloep, zodat de afstand van 1.5 meter aan boord gewaarborgd kan blijven.
+ 2. Gezinnen -die met elkaar in een huis wonen- mogen varen en anders mogen er max 2 a 3  personen in de sloep, zodat de afstand van 1.5 meter aan boord gewaarborgd kan blijven.
 
  3. Aankomst en vertrek verlopen hierdoor iets anders dan u van ons gewend bent.
     De tijden worden aangepast en de vaartijd, vertrek en aankomst zijn in overleg, zodat er geen sloepen tegelijk vertrekken en aankomen.
@@ -19,17 +19,21 @@ date: 2020-03-18 12:25:00 +01:00
 
  8. ~ Houd minimaal 1,5 meter afstand.
 
- 9. ~ Zo veel mogelijk alle vragen telefonisch of per mail stellen.
+ 9. ~  Niet meer dan 3 personen (én 1,5 meter afstand), of alleen gezinnen die met elkaar wonen.
 
 10. ~ Bij voorkeur contactloos betalen of via telefoon overmaken.
 
 11. ~ Beperk de verblijfsduur op ons terrein zo veel mogelijk.
 
-12. ~ Onderweg niet uitstappen, neem zelf je picknickmand mee.
+12. ~ Onderweg niet aanleggen of uitstappen, neem zelf je picknickmand mee.
 
 13. ~ Kom niet met het openbaar vervoer.
 
-14. Aangezien de situatie blijft veranderen kunnen onze maatregelen nog verder aangepast worden. Gemaakte reserveringen worden in overleg dan verplaatst of geannuleerd.
+14. ~Zo veel mogelijk alle vragen telefonisch of per mail stellen.
+
+15. ~ let wel,Bruggen en sluizen worden nog niet altijd bediend. 
+
+16. Aangezien de situatie blijft veranderen kunnen onze maatregelen nog verder aangepast worden. Gemaakte reserveringen worden in overleg dan verplaatst of geannuleerd.
 
 
 1. We wensen iedereen een goede gezondheid toe.
