@@ -60,7 +60,7 @@ Voorheen heette deze route de Limes en was de noordgrens van het Romeinse Rijk.
 
 
 **Brug en Sluistijden:**
-Alle bruggen zijn hoog genoeg voor de sloep om eronderdoor te kunnen. Bereid jullie wel voor om soms te bukken! 
+
 De sluis in Montfoort wordt op afroep, door vrijwilligers, bediend; De sluis doorgaan kost wel wat tijd, en er wordt heen en terug een bijdrage gevraagd; Voor een halve dag aan te raden voor de sluis te blijven.
 **Beschrijving:**
 
