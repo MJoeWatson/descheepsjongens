@@ -30,3 +30,5 @@ date: 2020-03-18 12:25:00 +01:00
 20) Er wordt  bij sluizen en bruggen vaak een paar euro tol gevraagd en bij de Nieuwkoopse plassen een bijdrage voor natuurbeheer
 
 21) We onderhouden de sloepen goed en het gebeurd niet vaak, maar een technische storing of pech kán voorkomen, dat is overmacht. We proberen het dan uiteraard zo goed mogelijk op te lossen. We vragen dan ook jullie begrip hiervoor.
+
+22) Als de reservering gemaakt is gaat de huurder akkoord met deze voorwaarden.
