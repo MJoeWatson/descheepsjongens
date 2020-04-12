@@ -20,7 +20,8 @@ Om te reserveren, vragen we u om het reserveringsformulier in te vullen.
 
 ### Betaal gegevens:
 
-1. Rekening nr:  NL85 INGB 00017972 58
+1. Rekening nr:  NL85 INGB 00017972 58  1
+2. tnv. De Scheepsjongens 
 
-              1. tnv De Scheepsjongens
+             
 
