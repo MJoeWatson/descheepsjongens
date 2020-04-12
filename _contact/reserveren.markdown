@@ -3,8 +3,7 @@ title: Reserveren
 date: 2020-03-18 12:25:00 +01:00
 ---
 
-Om te reserveren, vragen we u om het reserveringsformulier in te vullen.
-
+1. Om te reserveren, vragen we u om het reserveringsformulier in te vullen.
 1. Zo hebben wij meteen uw naam en nummer en kunnen we in de agenda kijken.
 2. Heeft u vragen, dan zijn wij de hele week telefonisch voor u bereikbaar.
 
