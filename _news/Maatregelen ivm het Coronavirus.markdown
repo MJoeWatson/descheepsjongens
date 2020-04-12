@@ -5,7 +5,7 @@ date: 2020-03-18 12:25:00 +01:00
 
  1. Onze sloepen verhuur gaat vooralsnog van start  tenzij de overheid anders beslist. We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid.
 
- 2. Gezinnen -die met elkaar in een huis wonen- mogen varen en anders mogen er max 2 personen in de sloep, zodat de afstand van 1.5 meter aan boord gewaarborgd kan blijven.
+ 2. Gezinnen -die met elkaar in een huis wonen (!)- mogen varen en anders mogen er max 2 personen in de sloep, zodat de afstand van 1.5 meter aan boord gewaarborgd kan blijven.
 
  3. Aankomst en vertrek verlopen hierdoor iets anders dan u van ons gewend bent.
     De tijden worden aangepast en de vaartijd, vertrek en aankomst zijn in overleg, zodat er geen sloepen tegelijk vertrekken en aankomen.
