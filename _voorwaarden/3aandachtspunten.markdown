@@ -33,4 +33,4 @@ date: 2020-03-18 12:25:00 +01:00
 
 22) Er gelden voorlopig nieuwe regels ivm het corona virus die te lezen zijn bij nieuws / maatregelen mbt het corona virus / corona update. 
 
-23) Als de reservering gemaakt is gaat de huurder akkoord met deze voorwaarden.
+23) Als de reservering gemaakt is gaat de huurder akkoord met al deze voorwaarden.
