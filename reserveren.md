@@ -12,8 +12,6 @@ layout: reserveren
 Voor je reserveert, lees eerst het laatste nieuws.
 Vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremmingen;
 
-**De sloepen uit Woerden zijn vandaag allen al uit varen**
-
 Reserveren is eenvoudig via onderstaand formulier.
 
 De reservering is pas gemaakt wanneer we deze bevestigd hebben;
