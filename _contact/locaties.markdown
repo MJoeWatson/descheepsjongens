@@ -15,4 +15,4 @@ Vanaf bus- en treinstation Woerden is het 10 minuten lopen.
 
 Voor vaartochten vanuit Harmelen, kunt u terecht op Haanwijk
 
-4. Hier zijn parkeerplekken beperkt, dus kom zo veel mogelijk op de fiets.
+Hier zijn parkeerplekken beperkt, dus kom zo veel mogelijk op de fiets.
