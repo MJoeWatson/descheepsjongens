@@ -19,3 +19,5 @@ De reservering is pas gemaakt wanneer we deze bevestigd hebben;
 Om misverstanden te voorkomen sturen we iedereen een email terug.
 
 Leest u a.u.b de [voorwaarden](voorwaarden) goed door (opent in nieuw venster).
+
+Als de reservering is gemaakt gaat u ook akkoord met al deze voorwaarden.
