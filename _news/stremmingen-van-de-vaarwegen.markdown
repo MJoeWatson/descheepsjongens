@@ -9,9 +9,9 @@ Vanwege het Corona virus worden sluizen nog niet  optimaal bediend, dit verschil
 
 vaarmogelijkheden zijn momenteel:
 
--richting Harmelen
--richting Bodegraven
-Richting Oudewater
+-  Richting Harmelen
+-  Richting Bodegraven
+-  Richting Oudewater
 
 Voor nu
 
