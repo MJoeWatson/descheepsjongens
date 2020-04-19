@@ -31,6 +31,6 @@ date: 2020-03-18 12:25:00 +01:00
 
 21) We onderhouden de sloepen goed en het gebeurd niet vaak, maar een technische storing of pech kán voorkomen, dat is overmacht. We proberen het dan uiteraard zo goed mogelijk op te lossen. We vragen dan ook jullie begrip hiervoor.
 
-22) Er gelden voorlopig nieuwe regels ivm het corona virus die te lezen zijn bij nieuws / maatregelen mbt het corona virus / corona update. 
+22) Er gelden voorlopig nieuwe regels ivm het corona virus die te lezen zijn bij nieuws / maatregelen mbt het corona virus / corona update. Indien wij als onderneming een boete krijgen omdat er ondanks onze regels iets niet wordt nageleefd wordt dit verhaald op de huurder.
 
 23) Als de reservering gemaakt is gaat de huurder akkoord met al deze voorwaarden.
