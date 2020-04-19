@@ -19,7 +19,7 @@ date: 2020-03-18 12:25:00 +01:00
 
  8. ~ Houd minimaal 1,5 meter afstand.
 
- 9. ~  Niet meer dan 3 personen (én 1,5 meter afstand), of alleen gezinnen die met elkaar wonen.
+ 9. ~  Niet meer dan 2 personen (én 1,5 meter afstand indien niet samenwonend), of alleen gezinnen die met elkaar wonen.(I.D. bewijzen meenemen, Handhaving controleert.)
 
 10. ~ Bij voorkeur contactloos betalen of via telefoon overmaken.
 
@@ -29,7 +29,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 13. ~ Kom niet met het openbaar vervoer.
 
-14. ~Zo veel mogelijk alle vragen telefonisch of per mail stellen.
+14. ~Zo veel mogelijk alle vragen telefonisch of per mail stellen. Er wordt gecontroleerd
 
 15. Let wel, bruggen en sluizen worden nog niet altijd bediend. 
 
