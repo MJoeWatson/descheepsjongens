@@ -4,11 +4,14 @@ date: 2020-03-18 12:25:00 +01:00
 ---
 
  1. Onze sloepen verhuur is open dus er kan weer gevaren worden! Wel zijn de regels aangepast.
- We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid.
+
+We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid.
 
 2. Gezinnen/ huisgenoten -die officieel ook met elkaar in een huis wonen en ingeschreven staan - mogen met elkaar varen.
-2. Koppels die samen wonen mogen samen in de sloep, 
-2. of 2  personen die niet samen wonen mogen samen varen maar dan zo dat de afstand tussen elkaar 1.5 meter is.
+
+2. Koppels die samen wonen mogen samen in de sloep,
+ 
+2. 2  personen die niet samen wonen mogen samen varen maar dan zo dat de afstand tussen elkaar 1.5 meter is.
 
  3. Aankomst en vertrek verlopen hierdoor iets anders dan u van ons gewend bent.
     De tijden worden aangepast en de vaartijd, vertrek en aankomst zijn in overleg, zodat er geen sloepen tegelijk vertrekken en aankomen.
