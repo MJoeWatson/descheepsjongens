@@ -3,7 +3,8 @@ title: Maatregelen ivm het Coronavirus
 date: 2020-03-18 12:25:00 +01:00
 ---
 
- 1. Onze sloepen verhuur is open dus er kan weer gevaren worden! Wel zijn de regels aangepast.
+Onze sloepen verhuur is open dus er kan weer gevaren worden!
+Wel zijn de regels aangepast.
 
 We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid.
 
