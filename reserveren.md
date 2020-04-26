@@ -1,11 +1,11 @@
 ---
 title: Reserveren
 permalink: "/reserveren"
-soldout: '27/04/2020
+soldout: '27/03/2020
 
 '
-electricsoldout: 27/04/2020
-buitenboordsoldout: 27/04/2020
+electricsoldout: 27/03/2020
+buitenboordsoldout: 27/03/2020
 layout: reserveren
 ---
 
@@ -14,9 +14,9 @@ Vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremminge
 
 Reserveren is eenvoudig via onderstaand formulier.
 
-Maandag 27 april zijn alle sloepen in de middag al uit varen.
+** Maandag 27 april zijn alle sloepen in de middag al uit varen.
 
-in de ochtend is de Antaris nog beschikbaar.
+in de ochtend is de Antaris nog beschikbaar. **
 
 
 De reservering is pas gemaakt wanneer we deze bevestigd hebben;
