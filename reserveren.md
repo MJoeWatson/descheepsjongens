@@ -16,7 +16,8 @@ Reserveren is eenvoudig via onderstaand formulier.
 
 **Maandag 27 april zijn alle sloepen in de middag al uit varen.
 
-in de ochtend is de Antaris nog beschikbaar.**
+Alle andere dagen kan het nog wel :)**
+
 
 
 De reservering is pas gemaakt wanneer we deze bevestigd hebben;
