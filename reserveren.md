@@ -32,6 +32,6 @@ Met de vermelding "Borg, de reserveringnaam en de datum van de vaardag"
 
 ~ De huur kan ook worden overgeschreven met vermelding "Huur, de reserveringsnaam en de datum van de vaardag" 
 
-overmaken ruim van te voren, niet aan de kade,  zodat het vertrek van iedereen soepel vrloopt.
+overmaken ruim van te voren, (niet aan de kade),  zodat het vertrek van iedereen soepel kan verlopen.
 
 ~ De huur kan contant betaald worden voor vertrek.
