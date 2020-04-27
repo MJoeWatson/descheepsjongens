@@ -14,7 +14,7 @@ Vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremminge
 
 Reserveren is eenvoudig via onderstaand formulier.
 
-let op : De reservering is pas gemaakt indien de reservering per email bevestigd is en als de borg is overgemaakt;(dat is nieuw)
+let op : De reservering is pas gemaakt indien de reservering per email bevestigd is en als de borg is overgemaakt (dat is nieuw)
 
 Om misverstanden te voorkomen sturen we iedereen een email terug, of er wel of geen sloep beschikbaar is.
 
