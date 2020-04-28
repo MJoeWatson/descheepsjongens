@@ -16,7 +16,7 @@ Reserveren is eenvoudig via onderstaand formulier.
 
 let op : De reservering is pas gemaakt indien de reservering per email bevestigd is.
 
-Om misverstanden te voorkomen sturen we iedereen een email terug, of er wel of geen sloep beschikbaar is.
+Om misverstanden te voorkomen sturen we iedereen een email terug of er wel of geen sloep beschikbaar is.
 
 Leest u a.u.b de [voorwaarden](voorwaarden) goed door (opent in nieuw venster).
 
