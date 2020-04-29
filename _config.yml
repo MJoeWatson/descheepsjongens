@@ -26,4 +26,7 @@ collections:
   voorwaarden:
     title: Voorwaarden
     output: true
+  fotos-en-filmpjes:
+    title: foto's en filmpjes
+    output: true
 url: https://descheepsjongens.nl
