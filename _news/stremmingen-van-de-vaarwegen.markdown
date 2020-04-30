@@ -17,7 +17,7 @@ Voor nu
 
 -  De Blokhuisbrug wordt niet bediend
 -  De sluizen worden niet bediend
--  Afgesloten ivm werkzaamheden: richting Montfoort
+-  Soms stremming ivm werkzaamheden: richting Montfoort
 
 
 Actuele info is ook te lezen op vaarweginformatie.nl
