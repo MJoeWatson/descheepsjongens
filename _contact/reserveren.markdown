@@ -19,7 +19,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 ### Betaal gegevens:
 
-1. Rekening nr:  NL85 INGB 00017972 58  1
+1. Rekening nr:  NL85 INGB 0001797258  
 2. tnv. De Scheepsjongens 
 
              
