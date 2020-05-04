@@ -16,7 +16,7 @@ vaarmogelijkheden zijn momenteel:
 
 Voor nu
 
--  De Blokhuisbrug wordt niet bediend
+-  De Blokhuisbrug wordt nog niet bediend
 -  De sluizen worden niet bediend
 -  De stremming ivm werkzaamheden richting Montfoort lijkt opgelost.
 
