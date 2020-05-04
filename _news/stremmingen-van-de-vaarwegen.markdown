@@ -12,12 +12,13 @@ vaarmogelijkheden zijn momenteel:
 -  Richting Harmelen
 -  Richting Bodegraven
 -  Richting Oudewater
+-  Richting Montfoort
 
 Voor nu
 
 -  De Blokhuisbrug wordt niet bediend
 -  De sluizen worden niet bediend
--  Soms stremming ivm werkzaamheden: richting Montfoort
+-  De stremming ivm werkzaamheden richting Montfoort lijkt opgelost.
 
 
 Actuele info is ook te lezen op vaarweginformatie.nl
