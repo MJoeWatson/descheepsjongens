@@ -12,7 +12,8 @@ layout: reserveren
 Voor je reserveert, lees eerst het laatste nieuws.
 Vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremmingen;
 
-
+**~Vooralsnog zijn de sloepen zaterdag 9 mei allemaal gereserveerd,tot nader bericht~**
+ 
 Reserveren is eenvoudig via onderstaand formulier.
 
 let op : De reservering is pas gemaakt indien de reservering per email bevestigd is.
