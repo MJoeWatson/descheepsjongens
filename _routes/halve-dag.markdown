@@ -6,9 +6,10 @@ position: 1
 
 Let op, 
 
-~ Niet aanleggen en niet uitstappen zolang er Corona maatregelen zijn. zie "nieuws"
+Houdt afstand indien je de sloep ergens aanlegt en houdt je aan de regels.
 
-~ Er kunnen stremmingen zijn.
+
+~ Er kunnen stremmingen zijn bij sluizen en bruggen zie bij   "Nieuws"
 
 ### Harmelen
 #### Tijd: Heen en weer, 2,5 uur
