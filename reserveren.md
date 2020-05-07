@@ -11,6 +11,8 @@ layout: reserveren
 
 Voor je reserveert, lees eerst het laatste nieuws.
 Vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremmingen;
+
+
 **~Vrijdagmiddag zijn de sloepen in Woerden al uit varen maar is er in Harmelen nog 1 sloep beschikbaar~**
 
 **~De sloepen zaterdagmiddag 9 mei allemaal gereserveerd~**
