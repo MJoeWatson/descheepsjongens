@@ -9,7 +9,7 @@ Let op,
 Houdt afstand indien je de sloep ergens aanlegt en houdt je aan de regels.
 
 
-~ Er kunnen stremmingen zijn bij sluizen en bruggen zie bij   "Nieuws"
+~ Er kunnen stremmingen zijn bij sluizen en bruggen  Deze worden nl nog niet bediend  zie bij   "Nieuws"
 
 ### Harmelen
 #### Tijd: Heen en weer, 2,5 uur
