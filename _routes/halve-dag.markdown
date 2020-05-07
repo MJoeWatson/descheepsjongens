@@ -6,7 +6,7 @@ position: 1
 
 Let op, 
 
-Houdt afstand indien je de sloep ergens aanlegt en houdt je aan de regels.
+Houdt afstand indien je de sloep ergens aanlegt en houd je aan de regels.
 
 
 ~ Er kunnen stremmingen zijn bij sluizen en bruggen  Deze worden nl nog niet bediend  zie bij   "Nieuws"
