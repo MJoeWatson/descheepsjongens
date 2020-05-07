@@ -3,18 +3,15 @@ title: Stremmingen van de vaarwegen
 date: 2020-04-05 23:11:00 +02:00
 ---
 
-Gemeente Woerden is een aantal bruggen aan het opknappen waardoor op sommige dagen de doorvaart op sommige uren beperkt kan zijn.
 
-Vanwege het Corona virus worden sluizen nog niet  optimaal bediend, dit verschilt per dag, informeer voor actuele stremmingen.
-
-vaarmogelijkheden zijn momenteel:
+Vaarmogelijkheden zijn momenteel:
 
 -  Richting Harmelen
 -  Richting Bodegraven
 -  Richting Oudewater
 -  Richting Montfoort
 
-Voor nu
+Voor nu:
 
 -  De Blokhuisbrug wordt nog niet bediend
 -  De sluizen worden niet bediend
