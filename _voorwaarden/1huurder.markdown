@@ -3,6 +3,9 @@ title: 1. Huurder
 date: 2020-03-18 12:25:00 +01:00
 ---
 
+
+**Lees de actuele **extra ** maatregelen ivm het Corona virus onder het kopje "Nieuws"**
+
 1) Bij aanvang van de vaartocht noteren wij de gegevens van het geldig identiteit bewijs van de huurder.     De huurder moet minimaal 24 jaar zijn.
 
 2) De sloep wordt op de afgesproken tijd opgehaald en weer terug gebracht i.v.m. eventueel volgend verhuur.
