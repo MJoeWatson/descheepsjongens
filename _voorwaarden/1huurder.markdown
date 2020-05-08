@@ -17,8 +17,8 @@ date: 2020-03-18 12:25:00 +01:00
 
 3) De toegestane maximum snelheid is **6 km/uur**, dat is echt heel rustig (wandelsnelheid).
 
--Het is belangrijk je daar aan te houden om beschadiging aan de natuur, de oevers, andere boten én een boete te voorkomen.
-en heel belangrijk voor de electrische boten: als je harder dan 6 gaat trek je **de accu leeg **en kan je niet meer (op tijd terug) varen.
+-Het is** belangrijk** je daar aan te houden om beschadiging aan de natuur, de oevers, andere boten én een boete te voorkomen.
+en heel belangrijk voor de electrische boten: als je harder dan 6 gaat trek je **de accu leeg**  en kan je niet meer (op tijd terug) varen.
 -Elke boot is uitgerust met een GPS volg systeem.
 
-4) De bestuurder mag geen alcohol drinken. Overmatig alcoholgebruik wordt ook niet toegestaan in de sloep, er wordt op gecontroleerd!
+4) De bestuurder mag geen alcohol drinken. Overmatig alcoholgebruik wordt ook **niet toegestaan** in de sloep, er wordt op gecontroleerd!
