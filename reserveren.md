@@ -5,7 +5,7 @@ soldout: '27/03/2020
 
 '
 electricsoldout: '09/03/2020'
-buitenboordsoldout: 27/03/2020
+buitenboordsoldout: '09/05/2020'
 layout: reserveren
 ---
 
