@@ -27,7 +27,7 @@ let op : De reservering is pas gemaakt indien de reservering per email bevestigd
 
 Om misverstanden te voorkomen sturen we iedereen een email terug of er wel of geen sloep beschikbaar is.
 
-Leest u a.u.b de [voorwaarden](voorwaarden) goed door (opent in nieuw venster).
+Leest u a.u.b de [voorwaarden](voorwaarden hier) goed door (opent in nieuw venster).
 
 **Als de reservering is gemaakt gaat u ook akkoord met al deze voorwaarden.
 **
