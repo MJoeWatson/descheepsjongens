@@ -15,9 +15,7 @@ Vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremminge
 
 
 
-**~De sloepen zaterdagmiddag 9 mei allemaal gereserveerd
-
-in de ochtend nog een Antaris vrij;    Tip: Neem je ontbijt mee op de boot! ~**
+**~De sloepen zaterdagmiddag 9 mei allemaal gereserveerd~**
 
 Alle andere dagen kan het nog wel, ook in de middag :)
  
