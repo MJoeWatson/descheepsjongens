@@ -3,7 +3,7 @@ title: 2. Schade
 date: 2020-03-18 12:25:00 +01:00
 ---
 
-De Scheepsjongens zijn **niet aansprakelijk **voor geleden **schade **van de huurder;  het zij persoonlijk letsel of materiële schade, opgelopen in de verhuurperiode. Check  evt. bij je eigen verzekering of  je dit **goed** geregeld hebt.  
+De Scheepsjongens zijn **niet aansprakelijk ** voor geleden schade van de huurder;  het zij persoonlijk letsel of materiële schade, opgelopen in de verhuurperiode. Check  evt. bij je eigen verzekering of  je dit **goed** geregeld hebt.  
  
 1) De sloep wordt in de **zelfde staat** terug gebracht als dat deze bij aanvang was. 
 
