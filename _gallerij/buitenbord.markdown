@@ -4,14 +4,9 @@ date: 2020-03-18 16:02:00 +01:00
 position: 1
 ---
 
-### Antaris
+### Antaris (2 stuks)
 
 ![antaris-far.jpeg]({{site.baseurl}}/assets/images/boats/antaris/antaris-far.jpeg){: .centre}
 
 1. 1. Buitenboordmotorsloep voor max. 7 personen.
 
-### Mythos
-
-![mythos.jpeg](/uploads/mythos.jpeg){: .centre}
-
-1. 1. Buitenboordmotorsloep voor max. 8 personen
