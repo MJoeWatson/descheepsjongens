@@ -3,7 +3,7 @@ title: 2. Schade
 date: 2020-03-18 12:25:00 +01:00
 ---
 
-De Scheepsjongens zijn **niet aansprakelijk ** voor geleden schade van de huurder;  het zij persoonlijk letsel of materiële schade, opgelopen in de verhuurperiode. Check  evt. bij je eigen verzekering of  je dit **goed** geregeld hebt.  
+De Scheepsjongens zijn **niet aansprakelijk** voor geleden schade van de huurder;  het zij persoonlijk letsel of materiële schade, opgelopen in de verhuurperiode. Check  evt. bij je eigen verzekering of  je dit **goed** geregeld hebt.  
  
 1) De sloep wordt in de **zelfde staat** terug gebracht als dat deze bij aanvang was. 
 
@@ -19,5 +19,5 @@ Kleine beschadigingen worden van de borg ingehouden.
 
 6) Nader kanten heel **voorzichtig** en zorg daarom dat bij aanmeren altijd de **stootwillen** tussen wal en t schip hangen ! gebruik de **haakstok**.
 
-7) **Pas op met roken **in de boot (ivm brandgaatjes) en scherpe voorwerpen in en aan kleding;
-en **zonnebrand crème** maakt **akelige vlekken** op de kussens die er niet meer uit gaan, dus pas op! Neem hiervoor een **handdoek **mee om op te zitten.
+7) **Pas op met roken** in de boot (ivm brandgaatjes) en scherpe voorwerpen in en aan kleding;
+en **zonnebrand crème** maakt **akelige vlekken** op de kussens die er niet meer uit gaan, dus pas op! Neem hiervoor een **handdoek** mee om op te zitten.
