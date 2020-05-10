@@ -4,7 +4,7 @@ date: 2020-03-18 16:02:00 +01:00
 position: 1
 ---
 
-### Antaris (2 stuks)
+### Antaris (2 stuks in Woerden)
 
 ![antaris-far.jpeg]({{site.baseurl}}/assets/images/boats/antaris/antaris-far.jpeg){: .centre}
 
