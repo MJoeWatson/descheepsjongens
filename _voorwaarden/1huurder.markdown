@@ -22,4 +22,4 @@ en heel belangrijk voor de **electrische** boten: als je harder dan 6 gaat trek 
 
 -Elke boot is uitgerust met een GPS volg systeem.
 
-4) De bestuurder mag **geen** alcohol drinken. **Overmatig **alcoholgebruik wordt ook **niet toegestaan** in de sloep, er wordt op gecontroleerd!
+4) De bestuurder mag **geen** alcohol drinken. **Overmatig**  alcoholgebruik wordt ook **niet toegestaan** in de sloep, er wordt op gecontroleerd!
