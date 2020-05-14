@@ -16,6 +16,7 @@ Als er **rustig** gevaren wordt en goed **opgepast** wordt in de buurt van **kad
 
 5) Eventuele **schade** aan de sloep, kussenset, kap .ed. of aan derden wordt **verhaald op de huurder**. 
 Kleine beschadigingen worden van de borg ingehouden.
+Grotere schade gaat via de verzekering, Het eigen risico bedrag is €350,-
 
 6) Nader kanten heel **voorzichtig** en zorg daarom dat bij aanmeren altijd de **stootwillen** tussen wal en t schip hangen ! gebruik de **haakstok**.
 
