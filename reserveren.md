@@ -14,8 +14,7 @@ Voor je reserveert, lees eerst het laatste nieuws.
 Vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremmingen;
 
 
-
-**~De sloepen zaterdagmiddag 9 mei allemaal gereserveerd~**
+**~De sloepen in Woerden zijn 21 mei(hemelvaartsdag) allen al gereserveerd in de middag, in de ochtend kan je nog wel reserveren voor een paar uurtjes op het water.~**
 
 Alle andere dagen kan het nog wel, ook in de middag :)
  
