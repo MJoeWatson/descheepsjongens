@@ -11,4 +11,7 @@ Een bon voor een ander bedrag kan ook, laat het ons maar even weten;
 
 Wanneer het plan er is om te varen kan er op de gewenste dag een reservering gemaakt te worden via de site.
 
+De cadeaubon is het hele jaar na uitgifte geldig.
+
+
 ![cadeaubon met kapiteinspet-77fad7.png](/uploads/cadeaubon%20met%20kapiteinspet-77fad7.png)
