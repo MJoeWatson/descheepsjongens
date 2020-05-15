@@ -3,6 +3,7 @@ title: Stremmingen van de vaarwegen
 date: 2020-04-05 23:11:00 +02:00
 ---
 
+**~Volgens de laatste berichten gaan -vooralsnog- as Woensdag 20 mei de sluizen en bruggen weer open!~**
 
 Vaarmogelijkheden zijn momenteel:
 
