@@ -9,9 +9,7 @@ buitenboordsoldout: '08/05/2020'
 layout: reserveren
 ---
 
-Voor je reserveert, lees eerst het laatste nieuws.
-
-Vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremmingen;
+Voor u reserveert, lees eerst het laatste nieuws, vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremmingen;
 
 **~De sloepen zijn 21 mei allemaal gereserveerd. Op 22 mei zijn alleen ochtend en avond nog mogelijk ~**
 
