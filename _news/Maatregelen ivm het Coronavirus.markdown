@@ -32,7 +32,7 @@ We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen
 
 11. ~ Beperk de verblijfsduur op ons terrein zo veel mogelijk.
 
-12. ~ Onderweg niet aanleggen of uitstappen, neem zelf je picknickmand mee.
+12. ~ Als je onderweg aanlegt of uitstapt houdt je aan de regels, neem zelf je picknickmand mee.
 
 13. ~ Kom niet met het openbaar vervoer.
 
@@ -40,7 +40,7 @@ We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen
 
 15. Let wel, bruggen en sluizen worden nog niet altijd bediend. 
 
-16. Aangezien de situatie blijft veranderen kunnen onze maatregelen nog verder aangepast worden. Gemaakte reserveringen worden in overleg dan verplaatst of geannuleerd.
+16. Aangezien de situatie blijft veranderen kunnen onze maatregelen verder aangepast worden. Gemaakte reserveringen worden in overleg dan verplaatst of geannuleerd.
 
 
 1. We wensen iedereen een goede gezondheid toe.
