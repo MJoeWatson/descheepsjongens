@@ -14,10 +14,10 @@ Voor je reserveert, lees eerst het laatste nieuws.
 Vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremmingen;
 
 
-**~De sloepen zijn 21 mei (hemelvaartsdag)  allemaal al gereserveerd.
-In de ochtend kan je nog wel reserveren voor een paar uurtjes op het water.~**
+**~De sloepen zijn 21 en 22 mei allemaal al gereserveerd voor de middag.
+In de ochtend en avond kan je nog wel reserveren voor een paar uurtjes op het water.~**
 
-*~22 mei zijn de sloepen in Woerden in de middag al uit varen, vooralsnog in Harmelen nog 2 stille sloepen te gaan...~**
+
 
 
 Alle andere dagen kan het nog wel, ook in de middag :)
