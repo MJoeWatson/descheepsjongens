@@ -13,7 +13,7 @@ Voor je reserveert, lees eerst het laatste nieuws.
 
 Vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremmingen;
 
-**~De sloepen zijn 21 mei allemaal al gereserveerd.. In de avond kan je nog wel reserveren voor een paar uurtjes op het water.~**
+**~De sloepen zijn 21 mei en 22 mei allemaal al gereserveerd...~**
 
 
 Alle andere dagen kan het nog wel, ook in de middag :)
