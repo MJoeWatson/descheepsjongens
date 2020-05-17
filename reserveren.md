@@ -15,7 +15,7 @@ Vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremminge
 
 
 **~De sloepen zijn 21 en 22 mei allemaal al gereserveerd voor de middag.
-In de ochtend en avond kan je nog wel reserveren voor een paar uurtjes op het water.~**
+In de avond kan je nog wel reserveren voor een paar uurtjes op het water.~**
 
 
 
