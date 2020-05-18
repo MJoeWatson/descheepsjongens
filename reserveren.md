@@ -17,6 +17,6 @@ Voor u reserveert, lees eerst het laatste nieuws, vooral nu over de extra maatre
 
 let op : om misverstanden te voorkomen, sturen we iedereen een bevestiging of er een sloep beschikbaar is en wanneer de reservering is gemaakt.
 
-Leest u a.u.b de [voorwaarden] [](http://descheepsjongens.nl/voorwaarden)goed door (opent in nieuw venster).
+Leest u a.u.b de  [voorwaarden] [](http://descheepsjongens.nl/voorwaarden)goed door (opent in nieuw venster).
 
 **~Als de reservering is gemaakt gaat u ook akkoord met al deze voorwaarden~**
