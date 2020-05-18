@@ -11,7 +11,9 @@ layout: reserveren
 
 Voor u reserveert, lees eerst het laatste nieuws, vooral nu over de extra maatregelen ivm het Corona virus en eventuele stremmingen;
 
-**~De sloepen zijn 21 mei allemaal gereserveerd. Op 22 mei zijn de ochtend en avond nog mogelijk ~**
+**~De sloepen zijn 21 mei allemaal gereserveerd~**
+
+ **~Op 22 mei in de avond nog een sloep te gaan~**
 
 
 let op : om misverstanden te voorkomen, sturen we iedereen een bevestiging of er een sloep beschikbaar is en wanneer de reservering is gemaakt.
