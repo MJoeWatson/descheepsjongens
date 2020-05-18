@@ -19,4 +19,4 @@ let op : om misverstanden te voorkomen, sturen we iedereen een bevestiging of er
 
 Leest u a.u.b de \[voorwaarden](voorwaarden) goed door (opent in nieuw venster).
 
-**Als de reservering is gemaakt gaat u ook akkoord met al deze voorwaarden.**
+**Als de reservering is gemaakt gaat u ook akkoord met al deze voorwaarden**
