@@ -3,12 +3,13 @@ title: Maatregelen ivm het Coronavirus
 date: 2020-03-18 12:25:00 +01:00
 ---
 
-Onze sloepen verhuur is open dus er kan weer gevaren worden!
+Onze sloepen verhuur is open dus er kan weer gevaren worden! 
 Wel zijn de regels aangepast.
 
-We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid.
+We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid. 
+Vooralsnog gelden nog steeds de volgende regels:
 
-2. Gezinnen/ huisgenoten -die officieel ook met elkaar in een huis wonen en ingeschreven staan - mogen met elkaar varen.
+2. Gezinnen/ huisgenoten -die officieel ook met elkaar in een huis wonen **en ingeschreven staan** - mogen met elkaar varen.
 
 2. Koppels die samen wonen mogen samen in de sloep,
  
