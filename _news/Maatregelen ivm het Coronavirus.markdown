@@ -7,6 +7,11 @@ Onze sloepen verhuur is open dus er kan gevaren worden!
 Wel zijn de regels aangepast.
 
 We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid. 
+Zoals het er nu uitziet worden de regels 1 juni wat soepeler! 
+Dan mogen er een paar meer mensen op de sloep, maar alleen als je je aan de regels van het rivm houdt en er wel 1.5 meter afstand gehouden wordt (indien geen huisgenoten bent.) 
+
+Hierover later meer.
+
 Vooralsnog gelden nog steeds de volgende regels:
 
 2. Gezinnen/ huisgenoten -die officieel ook met elkaar in een huis wonen **en ingeschreven staan** - mogen met elkaar varen.
