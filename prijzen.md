@@ -24,7 +24,8 @@ Alle sloepen hebben de zelfde prijs, electrische sloepen en benzine motorsloepen
 
 
 
-De Borg is €160,- dat is inclusief €10,- schoonmaakborg.
+
+### De Borg is €160,-  dat is inclusief €10,- schoonmaakborg.
 
 De sloep hebben we namelijk graag weer in de zelfde staat terug als dat deze was bij aanvang.
 
