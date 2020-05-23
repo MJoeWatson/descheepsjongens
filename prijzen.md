@@ -4,8 +4,7 @@ permalink: "/prijzen"
 layout: prijzen
 ---
 
-De vaartijden worden iets aangepast ivm het Corona virus; dit in overleg via de reservering/mail
-
+Alle sloepen hebben de zelfde prijs, electrische sloepen en benzine motorsloepen,
 
 ### Ochtend €85,- 
 
