@@ -9,7 +9,7 @@ buitenboordsoldout: '08/05/2020'
 layout: reserveren
 ---
 
-Voor u reserveert, lees eerst het laatste nieuws, vooral nu over de extra maatregelen ivm het Corona virus. 
+Voor u reserveert, lees eerst de algemene voorwaarden en reglementen én het laatste nieuws, vooral nu over de extra maatregelen ivm het Corona virus. 
 
 **\~De sloepen zijn 31 mei in de middag vooralsnog allemaal gereserveerd\~**
 
