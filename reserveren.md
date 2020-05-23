@@ -11,9 +11,9 @@ layout: reserveren
 
 Voor u reserveert, lees eerst het laatste nieuws, vooral nu over de extra maatregelen ivm het Corona virus. 
 
-**\~De sloepen zijn 21 en 22 mei in de ochtend en middag allemaal gereserveerd\~**
+**\~De sloepen zijn 31 mei in de middag vooralsnog allemaal gereserveerd\~**
 
-**\~Op 21 en 22 mei zijn er in de avond nog enkele sloepen vrij\~**
+**\~In de ochtend en in de avond nog enkele sloepen vrij\~**
 
 let op : om misverstanden te voorkomen, sturen we iedereen een bevestiging of er een sloep beschikbaar is en wanneer de reservering is gemaakt.
 
