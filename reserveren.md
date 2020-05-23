@@ -13,7 +13,7 @@ Voor u reserveert, lees eerst het laatste nieuws, vooral nu over de extra maatre
 
 **\~De sloepen zijn 31 mei in de middag vooralsnog allemaal gereserveerd\~**
 
-**\~In de ochtend en in de avond nog enkele sloepen vrij\~**
+**\~In de ochtend en de avond zijn er nog enkele sloepen vrij\~**
 
 let op : om misverstanden te voorkomen, sturen we iedereen een bevestiging of er een sloep beschikbaar is en wanneer de reservering is gemaakt.
 
