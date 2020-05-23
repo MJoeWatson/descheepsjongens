@@ -44,4 +44,4 @@ De sloepen worden nu extra gedesinfecteerd en u kunt zelf gebruik maken van het 
 
 13. ~ Aangezien de situatie blijft veranderen kunnen onze maatregelen verder aangepast worden. Gemaakte reserveringen kunnen in overleg dan verplaatst of geannuleerd worden.
 
-1. We wensen iedereen een goede gezondheid toe en veel plezier veilig op het water!
+1. We wensen iedereen een goede gezondheid toe en veel plezier op het water!
