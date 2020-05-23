@@ -20,7 +20,7 @@ Vul eenvoudig je gegevens in op het formulier hieronder.
 
 let op : om misverstanden te voorkomen, sturen we iedereen een bevestiging of er een sloep beschikbaar is en wanneer de reservering is gemaakt.
 
-Als het slecht weer is kan de vaartocht in overleg met ons kosteloos verplaatst of geannuleerd worden;
+Als het slecht weer is kan de vaartocht **in overleg met** ons kosteloos verplaatst of geannuleerd worden;
 
 Leest u a.u.b de[voorwaarden](http://descheepsjongens.nl/voorwaarden)goed door (opent in nieuw venster).
 
