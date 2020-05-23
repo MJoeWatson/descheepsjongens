@@ -22,6 +22,6 @@ let op : om misverstanden te voorkomen, sturen we iedereen een bevestiging of er
 
 Als het slecht weer is kan de vaartocht **in overleg met** ons kosteloos verplaatst of geannuleerd worden;
 
-Leest u a.u.b de ~[voorwaarden]~ (http://descheepsjongens.nl/voorwaarden)goed door (opent in nieuw venster).
+Leest u a.u.b de[voorwaarden](http://descheepsjongens.nl/voorwaarden)goed door (opent in nieuw venster).
 
 **~Als de reservering is gemaakt gaat u ook akkoord met al deze voorwaarden~**
