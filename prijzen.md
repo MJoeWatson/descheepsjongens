@@ -33,11 +33,14 @@ Bij terugkomst kun je zelf de sloep weer schoon maken;
 
 Wij willen het ook  voor je doen, dan houden we de €10,- schoonmaakborg in.
 
-Kleine schade wordt van de borg afgehouden.
+~ Kleine schade wordt van de borg afgehouden.
 
-Grotere schade loopt via de verzekering.
+~ Grotere schade loopt via de verzekering.
 
 De huurder is verantwoordelijk voor de eerste €350,-
 
- 
+~ Een extra uur bij huren (indien mogelijk) : €25,-per uur. 
 
+~Cadeaubonnen: -Hele dag €170,-
+               -Halve dag €100,-
+               -Bedrag naar wens.
