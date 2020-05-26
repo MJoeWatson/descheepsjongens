@@ -14,7 +14,7 @@ Voor je reserveert, lees eerst de algemene voorwaarden en reglementen én het la
 Vul eenvoudig je gegevens in op het formulier hieronder. 
 
 
-**\~De sloepen zijn 30 en 31 mei in de middag allemaal al gereserveerd\~**
+**\~De sloepen zijn 30 en 31 mei en 1 juni in de middag allemaal al gereserveerd\~**
 
 **\~In de ochtend en de avond zijn er nog enkele sloepen vrij\~**
 
