@@ -13,10 +13,9 @@ Voor je reserveert, lees eerst de algemene voorwaarden en reglementen én het la
 
 Vul eenvoudig je gegevens in op het formulier hieronder. 
 
-**~ Zaterdag 30 mei is er een sloep vrij gekomen voor de hele dag vanuit Woerden en een ochtendje vanuit Harmelen~
+**~Zaterdag 30 mei is er een sloep vrij gekomen voor de hele dag vanuit Woerden en een ochtendje vanuit Harmelen~**
 
-
-~De sloepen zijn 31 mei en 1 juni  allemaal al gereserveerd, de avond kan er nog een vaartochtje gemaakt worden +/- 18.30-21.00 uur~**
+**~De sloepen zijn 31 mei en 1 juni  allemaal al gereserveerd, de avond kan er nog een vaartochtje gemaakt worden +/- 18.30 - 21.00 uur~**
 
 Indien er een sloep vrij komt vermelden we het hier.
 
