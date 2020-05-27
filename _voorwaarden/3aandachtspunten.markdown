@@ -38,4 +38,6 @@ Bij uitstappen daarom de sloep uitzetten met de sleutel.
 
 13) Er gelden voorlopig **nieuwe extra regels** ivm het corona virus die te lezen zijn bij nieuws / maatregelen mbt het corona virus / **corona update**. Indien wij als onderneming een boete krijgen omdat er ondanks onze regels iets niet wordt nageleefd wordt dit verhaald op de huurder.
 
-14) Als de reservering gemaakt is gaat de huurder **akkoord** met **al deze voorwaarden.**
+14) Als het slecht weer is kan de vaartocht **in overleg met ons** kosteloos verplaatst of geannuleerd worden;
+
+15) Als de reservering gemaakt is gaat de huurder **akkoord** met **al deze voorwaarden.**
