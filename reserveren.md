@@ -15,6 +15,8 @@ Vul eenvoudig je gegevens in op het formulier hieronder.
 
 **\~De sloepen zijn vooralsnog 30 en 31 mei en 1 juni  allemaal al gereserveerd, de avond kan er nog een vaartochtje gemaakt worden +/- 18.30-21.00 uur\~**
 
+Als je wil dat we je bellen als er een sloep vrijkomt, vermeld dat bij de reservering in het bericht vak; 
+
 let op : om misverstanden te voorkomen, sturen we iedereen een bevestiging of er een sloep beschikbaar is en wanneer de reservering is gemaakt.
 
 Leest u a.u.b de[voorwaarden](http://descheepsjongens.nl/voorwaarden)goed door (opent in nieuw venster).
