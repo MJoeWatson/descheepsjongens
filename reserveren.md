@@ -13,14 +13,9 @@ Voor je reserveert, lees eerst de algemene voorwaarden en reglementen én het la
 
 Vul eenvoudig je gegevens in op het formulier hieronder. 
 
-
-**\~De sloepen zijn vooralsnog 30 en 31 mei allemaal al gereserveerd, de avond kan nog\~**
-
-**\~  1 juni in de middag ook alles gereserveerd, alleen In de ochtend en de avond zijn er 1 juni nog enkele sloepen vrij\~**
+**\~De sloepen zijn vooralsnog 30 en 31 en 1 juni mei allemaal al gereserveerd, de avond kan er nog een vaartochtje gemaakt worden +/- 18.30-21.00 uur\~**
 
 let op : om misverstanden te voorkomen, sturen we iedereen een bevestiging of er een sloep beschikbaar is en wanneer de reservering is gemaakt.
-
-Als het slecht weer is kan de vaartocht **in overleg met ons** kosteloos verplaatst of geannuleerd worden;
 
 Leest u a.u.b de[voorwaarden](http://descheepsjongens.nl/voorwaarden)goed door (opent in nieuw venster).
 
