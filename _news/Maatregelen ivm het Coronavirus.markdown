@@ -3,48 +3,31 @@ title: Maatregelen ivm het Coronavirus
 date: 2020-03-18 12:25:00 +01:00
 ---
 
-Onze sloepen verhuur is open dus er kan gevaren worden! 
-Wel zijn de regels aangepast.
 
 We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid. 
 
-Zoals het er nu uitziet worden de regels 1 juni als het goed is wat soepeler! 
+Zoals het er nu uitziet worden de regels 1 juni als het goed is wat soepeler en mogen er een paar meer mensen op de sloep; 
+Maar alleen als je je aan de regels van het rivm houdt én er 1.5 meter afstand gehouden wordt (indien je niet samenwoont) 
 
-Dan mogen er een paar meer mensen op de sloep; 
-Maar alleen als je je aan de regels van het rivm houdt en er wel 1.5 meter afstand gehouden wordt (indien je geen huisgenoten bent.) 
+De regels mbt het Coronavirus:
 
-Hierover later meer.
+1. Volg de richtlijnen van het RIVM
 
-Vooralsnog gelden nog steeds de volgende regels:
+2. ~ Voelt u zich niet lekker of bent u verkouden of heeft u koorts, ga er niet op uit, blijf thuis!
 
-2. Gezinnen/ huisgenoten -die officieel ook met elkaar in een huis wonen **en ingeschreven staan** - mogen met elkaar varen.
+3. ~ Als je onderweg aanlegt of uitstapt houdt je aan de regels, neem zelf je picknickmand mee, of bestel deze bij een lokaal restaurant dat is nog leuker!
 
-2. Koppels die samen wonen mogen samen in de sloep,
+4. ~ Kom niet met het openbaar vervoer.
+
+5. ~ Koppels/gezinnen die samen wonen mogen samen in de sloep, verders iedereen 1,5 meter afstand bewaren.
  
-2. 2 personen die niet samen wonen mogen samen varen maar dan zo dat de afstand tussen elkaar 1.5 meter is.
+6. ~ Aankomst en vertrek tijden kunnen iets eerder of later zijn zodat er zo min mogelijk sloepen tegelijk vertrekken en aankomen. 
 
- 3. Aankomst en vertrek verlopen hierdoor iets anders dan u van ons gewend bent.
-    De tijden worden aangepast en de vaartijd, vertrek en aankomst zijn in overleg, zodat er geen sloepen tegelijk vertrekken en aankomen.
+ 7. ~ Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven.  
 
- 4. Bij aankomst graag zal de uitleg van de route en boot buiten en op gepaste afstand worden gegeven. 
-Zoals altijd maken we de boten voor en na iedere vaart schoon.
+8. ~ Zoals altijd maken we de boten voor en na iedere vaart schoon.
 De sloepen worden nu extra gedesinfecteerd en u kunt zelf gebruik maken van het desinfectiemiddel.
 
- 5. Volg  de richtlijnen van het RIVM
+8. ~ Aangezien de situatie blijft veranderen kunnen onze maatregelen verder aangepast worden. Gemaakte reserveringen kunnen in overleg dan verplaatst of geannuleerd worden.
 
-
- 7. ~ Voelt u zich niet lekker of bent u verkouden of heeft u koorts, ga er niet op uit!
-
- 8. ~ Houd minimaal 1,5 meter afstand.
-
- 9. ~  Niet meer dan 2 personen (én 1,5 meter afstand indien niet samenwonend), of alleen gezinnen die met elkaar wonen.(I.D. bewijzen meenemen, Handhaving controleert.)
-
-10. ~ Beperk de verblijfsduur op ons terrein zo veel mogelijk.
-
-11. ~ Als je onderweg aanlegt of uitstapt houdt je aan de regels, neem zelf je picknickmand mee, of bestel deze bij een lokaal restaurant dat is nog leuker!
-
-12. ~ Kom niet met het openbaar vervoer.
-
-13. ~ Aangezien de situatie blijft veranderen kunnen onze maatregelen verder aangepast worden. Gemaakte reserveringen kunnen in overleg dan verplaatst of geannuleerd worden.
-
-1. We wensen iedereen een goede gezondheid toe en veel plezier op het water!
+.. We wensen iedereen een goede gezondheid toe en veel plezier op het water!
