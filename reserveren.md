@@ -13,9 +13,7 @@ Voor je reserveert, lees eerst de algemene voorwaarden en reglementen én het la
 
 Vul eenvoudig je gegevens in op het formulier hieronder. 
 
-**~zondag 31 mei in de ochtend (10.00-13.00) uur is er een sloep vrij voor een ochtendje varen vanuit Harmelen~**
-
-**~De sloepen zijn 31 mei en 1 juni  allemaal al gereserveerd, de avond kan er nog een vaartochtje gemaakt worden +/- 18.30 - 21.00 uur~**
+**~De sloepen zijn 30 en 31 mei en 1 juni  allemaal al gereserveerd,in de avond kan er nog een vaartochtje gemaakt worden +/- 18.30 - 21.00 uur~**
 
 Indien er een sloep vrij komt vermelden we het hier.
 
