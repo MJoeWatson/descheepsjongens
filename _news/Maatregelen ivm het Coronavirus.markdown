@@ -15,7 +15,8 @@ De regels mbt het Coronavirus:
 2. ~ Voelt u zich niet lekker of bent u verkouden of heeft u koorts, ga er niet op uit, blijf thuis!
 3. ~ Als je onderweg aanlegt of uitstapt houdt je aan de regels, neem zelf je picknickmand mee, of bestel deze bij een lokaal restaurant; dat is nog leuker!
 4. ~ Kom niet met het openbaar vervoer.
-5. ~ Koppels/gezinnen die samen wonen mogen samen in de sloep, verders iedereen 1,5 meter afstand bewaren. 
+5. ~ Koppels/gezinnen die samen wonen mogen samen in de sloep, verders iedereen die mee gaat 1,5 meter afstand van elkaar bewaren. 
+Daarom kunnen er bv 2 koppels/ kleine gezinnen mee in een sloep of max 3 in de Antaris of max 4 afzonderlijke personen in de grootste sloepen
 6. ~ Aankomst en vertrek tijden kunnen iets eerder of later zijn zodat er zo min mogelijk sloepen tegelijk vertrekken en aankomen.
  7. ~ Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven.  
 8. ~ Zoals altijd maken we de boten voor en na iedere vaart schoon.
