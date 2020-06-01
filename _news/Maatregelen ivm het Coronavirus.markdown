@@ -11,7 +11,7 @@ Maar alleen als je je aan de regels van het rivm houdt én er 1.5 meter afstand 
 
 De regels mbt het Coronavirus:
 
-1. Volg de richtlijnen van het RIVM
+1. ~Volg de richtlijnen van het RIVM
 2. ~ Voelt u zich niet lekker of bent u verkouden of heeft u koorts, ga er niet op uit, blijf thuis!
 3. ~ Als je onderweg aanlegt of uitstapt houdt je aan de regels, neem zelf je picknickmand mee, of bestel deze bij een lokaal restaurant; dat is nog leuker!
 4. ~ Kom niet met het openbaar vervoer.
