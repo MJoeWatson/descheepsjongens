@@ -6,7 +6,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid. 
 
-Zoals het er nu uitziet worden de regels 1 juni wat soepeler en mogen er een paar meer mensen op de sloep; 
+Vanaf 1 juni worden de regels wat soepeler en mogen er een paar meer mensen op de sloep; 
 Maar alleen als je je aan de regels van het rivm houdt én er 1.5 meter afstand gehouden wordt (indien je niet samenwoont) 
 
 De regels mbt het Coronavirus:
