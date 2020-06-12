@@ -19,4 +19,4 @@ Wanneer de reservering is gemaakt sturen we je de bevestiging met de informatie 
 
 Leest u a.u.b de[voorwaarden](http://descheepsjongens.nl/voorwaarden)goed door (opent in nieuw venster).
 
-**~Als de reservering is gemaakt gaat u namelijk akkoord met al deze voorwaarden~**
+**~Als de reservering is gemaakt gaat u akkoord met al deze voorwaarden~**
