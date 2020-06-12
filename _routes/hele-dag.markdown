@@ -57,8 +57,11 @@ je kan het nr bellen dat op het bord staat kost een paar euro.
 Populaire en leuke route langs Historische dorpen / stadjes, Linschoten, Montfoort en Oudewater.
 
 ### Rondje Oudewater, Hekendorp , Nieuwerbrug.
+            #### `Tijd: Rondje, 8 uur varen`
+
 
 vaarkaart: [route Hekendorp De Scheepsjongens.pdf](/uploads/route%20Hekendorp%20De%20Scheepsjongens.pdf)
+
 
 Deze ronde is 8 vaar uren, je komt 2 x een sluis tegen en een spoorbrug op de dubbele Wiericke 
 let op :deze spoorbrug  heeft beperkte openingstijden.
