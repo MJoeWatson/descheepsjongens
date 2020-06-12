@@ -13,7 +13,7 @@ Voor je reserveert, lees eerst de algemene voorwaarden en reglementen én het la
 
 Vul eenvoudig je gegevens in op het formulier hieronder. 
 
-**~De sloepen zijn 30 en 31 mei en 1 juni  allemaal al gereserveerd,in de avond kan er nog een vaartochtje gemaakt worden +/- 18.30 - 21.00 uur~**
+**~De sloepen zijn 13 juni in de middag allemaal al gereserveerd,in de ochtend en in de avond kan er nog een vaartocht gemaakt worden 10.00-13.00 of  18.30 - 21.00 uur~**
 
 Indien er een sloep vrij komt vermelden we het hier.
 
