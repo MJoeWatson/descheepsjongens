@@ -96,4 +96,4 @@ Deze kan je lezen/luisteren als je deze route over Hekendorp- Nieuwerbrug vaart.
 
 (https://oudehollandsewaterlinie.nl/routes/de-prins-willem-iii-vaarroute/)
 
-(https://izi.travel/nl/2589-prins-willem-iii-vaarroute/nl)
+https://izi.travel/nl/2589-prins-willem-iii-vaarroute/nl
