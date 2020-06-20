@@ -22,7 +22,7 @@ en heel belangrijk voor de **electrische** boten: als je harder dan 6 gaat trek 
 Bij te hard gevaren met de Antaris, wordt dan voor de teveel verbruikte benzine €10,- in rekening gebracht.
 
 -Elke boot is uitgerust met een GPS volg systeem.
- Als er reden is jullie te bellen zullen we dit doen, zorg dat u bereikbaar bent.
+ Als er reden is jullie te bellen zullen we dit doen, zorg dat uvoor ons bereikbaar bent.
 
 4) De bestuurder mag **geen** alcohol drinken.
  **Overmatig**  alcoholgebruik wordt **niet toegestaan** in de sloep, er wordt op gecontroleerd!
