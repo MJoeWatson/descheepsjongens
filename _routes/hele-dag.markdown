@@ -90,7 +90,7 @@ Wordt op zondag alleen geopend van 14.00-16.00 uur!
 
 **De Route Prins willem III van de OHWL is ook deze route, alleen daar ga je bij hekendop niet rechtsaf de Wiericke op, maar verder  naar Gouda, leuk, maar daardoor deze hele route niet in 1 dag te doen.
 
-Hieronder de link, met leuke en interessante informatie.
+Hieronder de link, met leuke en interessante informatie. 
 
 Deze kan je lezen/luisteren als je deze route over Hekendorp- Nieuwerbrug vaart. Bij punt 13 sla je rechtsaf naar punt 17
 (14,15 en 16 sla je even over met varen als je maar 1 dag gaat) 
