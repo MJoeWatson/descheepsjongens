@@ -29,16 +29,21 @@ position: 2
 **Beschrijving:**
 
 Vaar over de Grecht een rondje naar de Nieuwkoopse plassen.
-Voor wie van rust en natuur houdt, is dit een mooie groene route langs de rietkragen.
-Vervolgens vaar je richting Zwammerdam en over de Rijn weer terug. Let wel 6 km /uur en het is echt wel 8 uur varen.
 
-**Het is ook  de Oude Hollandse Waterlinie route, de zgn."Luxembourgvaarroute", deze is te zien via onderstaande link
+Voor wie van rust en natuur houdt, is dit een mooie groene route langs de rietkragen.
+
+Vervolgens vaar je richting Zwammerdam en over de Rijn weer terug.    Let wel 6 km /uur en het is echt wel 8 uur varen.
+
+**Het is ook  de Oude Hollandse Waterlinie route; De zgn. "Luxembourg vaarroute". Deze is te zien via onderstaande link .
+
 Het is eigenlijk een route die wat meer tijd kost dan 1 vaardag,  
-(Via de Meije, maar dat is een klein riviertje met heel veel bruggetjes, die allemaal open moeten)
+De route is eigenlijkl via de Meije, dat is een klein riviertje met heel veel bruggetjes die allemaal open moeten met de hand.
+In plaats daarvan vaar je over de Nieuwkoopse plassen)
 
 In een dag kun je (het grootste gedeelte van) deze route doen, Dat is bij ons de bovenstaande  Nieuwkoopseplassen vaarroute.
 
-De informatie van OHWL (izi travel) is heel interessant bij deze route. alleen na punt 7 ga je niet afslaan naar 8 maar vaar je een stukje rechtdoor en ga je de plassen op naar punt 11 pak je de  route weer op. 
+De informatie van OHWL is heel interessant bij deze route.   
+(Na punt 7 ga je naar punt 11, (dus niet afslaan naar 8 maar vaar je een stukje rechtdoor), dan de plassen op en daar pak je de route weer op.) 
 
 [https://oudehollandsewaterlinie.nl/routes/de-luxembourg-vaarroute/](https://oudehollandsewaterlinie.nl/routes/de-luxembourg-vaarroute/)
 
