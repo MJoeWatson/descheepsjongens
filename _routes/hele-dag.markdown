@@ -49,7 +49,7 @@ De informatie van OHWL is heel interessant bij deze route.
 [https://oudehollandsewaterlinie.nl/routes/de-luxembourg-vaarroute/](https://oudehollandsewaterlinie.nl/routes/de-luxembourg-vaarroute/)
 
 
-[](https://izi.travel/en/f172-de-luxembourg-vaarroute/nl)
+(https://izi.travel/en/f172-de-luxembourg-vaarroute/nl)
 
 
 
@@ -95,6 +95,6 @@ Hieronder de link, met leuke en interessante informatie.
 Deze kan je lezen/luisteren als je deze route over Hekendorp- Nieuwerbrug vaart. Bij punt 13 sla je rechtsaf naar punt 17
 (14,15 en 16 sla je even over met varen als je maar 1 dag gaat) 
 
-[](https://oudehollandsewaterlinie.nl/routes/de-prins-willem-iii-vaarroute/)
+(https://oudehollandsewaterlinie.nl/routes/de-prins-willem-iii-vaarroute/)
 
-[](https://izi.travel/nl/2589-prins-willem-iii-vaarroute/nl)
+(https://izi.travel/nl/2589-prins-willem-iii-vaarroute/nl)
