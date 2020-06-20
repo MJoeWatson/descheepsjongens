@@ -67,11 +67,11 @@ De informatie van OHWL is heel interessant bij deze route.
 
 2. Deze sluis draait op zelfbediening.
    Vaar de sloep tot in de sluis, volg de instructies ter plaatse,
-   Druk op de knop en dan moet je even geduld hebben, bij te vaak drukken kan er storing ontstaan;
-   sloep niet vastbinden  maar het touw evt laten vieren ivm stijgen/ dalen van het water; je kan de haakstok gebruiken. en houd handen binnenboord!
+   Druk op de knop en dan moet je **even geduld** hebben, bij te vaak drukken kan er storing ontstaan;
+   Sloep niet vastbinden  maar het touw evt laten vieren ivm stijgen/ dalen van het water; je kan de haakstok gebruiken. en houd handen binnenboord!
 
 Sluis Montfoort wordt bediend,
-je kan het nr bellen dat op het bord staat kost een paar euro.
+Je kan het nr bellen dat op het bord staat kost een paar euro.
 
 **Beschrijving:**
 
@@ -88,7 +88,7 @@ Deze ronde is 8 vaar uren, je komt 2 x een sluis tegen en een spoorbrug op de du
 let op :deze spoorbrug  heeft beperkte openingstijden.
 Wordt op zondag alleen geopend van 14.00-16.00 uur!
 
-**De Route Prins willem III van de OHWL is ook deze route, alleen daar ga je bij hekendop niet rechtsaf de Wiericke op, maar verder  naar Gouda, leuk, maar daardoor deze route niet in 1 dag te doen.
+**De Route Prins willem III van de OHWL is ook deze route, alleen daar ga je bij hekendop niet rechtsaf de Wiericke op, maar verder  naar Gouda, leuk, maar daardoor deze hele route niet in 1 dag te doen.
 
 Hieronder de link, met leuke en interessante informatie.
 
