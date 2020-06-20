@@ -44,7 +44,7 @@ In een dag kun je dan dus (meest van) deze route doen.
 Dat is bij ons de bovenstaande "Nieuwkoopseplassen vaarroute".
 
 De informatie van OHWL is heel interessant bij deze route.   
-(Na punt 7 ga je naar punt 11, (dus niet afslaan naar 8 maar vaar je een stukje rechtdoor), dan de plassen op en daar pak je de route weer op.) 
+(Na punt 7 ga je naar punt 11, (dus niet afslaan naar 8 maar vaar je een stukje rechtdoor), dan de plassen op en daar pak je de route weer op. 
 
 [https://oudehollandsewaterlinie.nl/routes/de-luxembourg-vaarroute/](https://oudehollandsewaterlinie.nl/routes/de-luxembourg-vaarroute/)
 
