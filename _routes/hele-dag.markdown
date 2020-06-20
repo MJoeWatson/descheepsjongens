@@ -84,7 +84,7 @@ Deze ronde is 8 vaar uren, je komt 2 x een sluis tegen en een spoorbrug op de du
 let op :deze spoorbrug  heeft beperkte openingstijden.
 Wordt op zondag alleen geopend van 14.00-16.00 uur!
 
-**De Route Prins willem III van de OHWL is ook deze route, alleen daar ga je bij hekendop niet rechtsaf de Wiericke op, maar verder  naar Gouda, leuk, maar daardoor deze hele route niet in 1 dag te doen.
+**De Route Prins willem III van de OHWL is ook deze route, alleen daar ga je nu bij Hekendop rechtsaf, de Dubbelle Wiericke op,  (ipv naar Gouda), daardoor is deze hele route in 1 dag te doen.
 
 Hieronder de link, met leuke en interessante informatie. 
 
