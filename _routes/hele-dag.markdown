@@ -49,8 +49,7 @@ De informatie van OHWL is heel interessant bij deze route.
 [https://oudehollandsewaterlinie.nl/routes/de-luxembourg-vaarroute/](https://oudehollandsewaterlinie.nl/routes/de-luxembourg-vaarroute/)
 
 
-(https://izi.travel/en/f172-de-luxembourg-vaarroute/nl)
-
+https://izi.travel/en/f172-de-luxembourg-vaarroute/nl
 
 
 ### Linschoten, Oudewater, Montfoort
