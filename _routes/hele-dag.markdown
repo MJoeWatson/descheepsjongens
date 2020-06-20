@@ -37,10 +37,11 @@ Vervolgens vaar je richting Zwammerdam en over de Rijn weer terug.    Let wel 6 
 **Het is ook  de Oude Hollandse Waterlinie route; De zgn. "Luxembourg vaarroute". Deze is te zien via onderstaande link .
 
 Het is eigenlijk een route die wat meer tijd kost dan 1 vaardag,  
-De route is eigenlijkl via de Meije, dat is een klein riviertje met heel veel bruggetjes die allemaal open moeten met de hand.
-In plaats daarvan vaar je over de Nieuwkoopse plassen)
+De route is eigenlijk via de Meije, dat is een klein riviertje met heel veel bruggetjes die allemaal open moeten met de hand.
+In plaats daarvan vaar je over de Nieuwkoopse plassen.
 
-In een dag kun je (het grootste gedeelte van) deze route doen, Dat is bij ons de bovenstaande  Nieuwkoopseplassen vaarroute.
+In een dag kun je dan dus (meest van) deze route doen.
+Dat is bij ons de bovenstaande "Nieuwkoopseplassen vaarroute".
 
 De informatie van OHWL is heel interessant bij deze route.   
 (Na punt 7 ga je naar punt 11, (dus niet afslaan naar 8 maar vaar je een stukje rechtdoor), dan de plassen op en daar pak je de route weer op.) 
