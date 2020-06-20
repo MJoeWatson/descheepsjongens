@@ -49,9 +49,6 @@ De informatie van OHWL is heel interessant bij deze route.
 [https://oudehollandsewaterlinie.nl/routes/de-luxembourg-vaarroute/](https://oudehollandsewaterlinie.nl/routes/de-luxembourg-vaarroute/)
 
 
-https://izi.travel/en/f172-de-luxembourg-vaarroute/nl
-
-
 ### Linschoten, Oudewater, Montfoort
 
 #### Tijd: 6 uur varen, 2 uur vrije tijd
@@ -95,5 +92,3 @@ Deze kan je lezen/luisteren als je deze route over Hekendorp- Nieuwerbrug vaart.
 (14,15 en 16 sla je even over met varen als je maar 1 dag gaat) 
 
 (https://oudehollandsewaterlinie.nl/routes/de-prins-willem-iii-vaarroute/)
-
-https://izi.travel/nl/2589-prins-willem-iii-vaarroute/nl
