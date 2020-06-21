@@ -4,12 +4,15 @@ date: 2020-03-18 16:02:00 +01:00
 position: 1
 ---
 
-Let op, 
+Rondom Woerden kun je mooi varen,  Er is veel te zien en je ervaart de omgeving van een hele andere kant.
 
-Houdt afstand indien je de sloep ergens aanlegt en houd je aan de regels.
+Om de stad Woerden heen varen door de singels is mooi...
+Maar een heel rondje om de stad kan helaas niet, 
+Bij de Oostdam is de brug massief en de brug bij het kasteel is te laag; je vaart dan dus weer de andere kant op terug.
+We hopen dat de gemeente dit een keer mogelijk maakt want dat zou voor veel mensen en de stad in zijn geheel heel leuk zijn.
 
+Let op:  In een Halve dag vaar je **tot** de sluizen en niet er doorheen! 
 
-~ Er kunnen stremmingen zijn bij sluizen en bruggen  Deze worden nl nog niet bediend  zie bij   "Nieuws"
 
 ### Harmelen
 #### Tijd: Heen en weer, 2,5 uur
@@ -17,16 +20,24 @@ Houdt afstand indien je de sloep ergens aanlegt en houd je aan de regels.
 [Klik hier voor de routekaart naar Harmelen](/uploads/route%20harmelen.pdf)
 
 **Brug en Sluistijden:**
-Alle bruggen zijn hoog genoeg voor de sloep om eronderdoor te kunnen. Bereid jullie wel voor om soms te bukken! 
+
+Alle bruggen zijn hoog genoeg voor de sloep om eronderdoor te kunnen. Bereid jullie wel voor om te bukken! 
+
+De hofbrug,(blauwe brug vlak voor Harmelen) kan je voorzichtig zachtjes onderdoor varen;  De meest linkse kant als je uit Woerden komt, dit is de hoogste doorgang.(wel bukken)
+
 De Haanwijker sluis wordt maar om de 2 uur bediend, op afroep.
-Je kan aanleggen voor de sluis en een stukje wandelen;
+dit is in een halve dag niet haalbaar,
 
 **Beschrijving:**
 
-Geniet van een mooie, rustige en groene route naar
-   het dorpje Harmelen. Leg aan voor de sluis en loop
-   5 minuten naar het centrum, of geniet van de rust
-   in natuurgebied De Kievit.
+Het is een mooie, rustige en groene route naar het dorpje Harmelen. Je vaart over de Oude Rijn en dat was vroeger de Romijnse Limes, de Noordgrens van het Romeinse rijk; In die tijd was dit water een stuk breder.
+
+Naast de Oude Rijn loopt het Jaagpad van Woerden tot Harmelen.
+
+Je kan de sloep bij de sluis draaien of je kan de boot aanleggen voor de sluis en een stukje gaan wandelen;
+
+Vanaf de sluis en loop je over het jaagpad in ong 7 minuten naar het centrum, of je loopt over de Hollandse kade naar natuurgebied De Kievit.
+
 Door de vele bomen langs het water, is er op warme dagen ook wat schaduw.
 
 
@@ -39,11 +50,11 @@ Door de vele bomen langs het water, is er op warme dagen ook wat schaduw.
 
 **Brug en Sluistijden:**
 
-In een halve dag kun je ivm de tijd wat het kost, niet door de sluis in Oudewater.
+In een halve dag kun je ivm de tijd wat het kost, **niet** door de sluis in Oudewater. (ook is er regelmatig een storing waardoor je er soms niet snel meer doorheen terug komt)
 
 
 **Beschrijving:**
-In beide van deze oude dorpen is er de mogelijkheid om aan te leggen voor een korte pauze. Let wel goed op de tijd, en keer op tijd om om op de afgesproken tijd terug te zijn.
+In al deze oude dorpen is er de mogelijkheid om aan te leggen voor een korte pauze. Let wel goed op de tijd, en keer op tijd om om op de afgesproken tijd terug te zijn.
 
 ### Nieuwerbrug, Bodegraven
 #### Tijd: Heen en weer, 4 uur
@@ -68,9 +79,10 @@ Voorheen heette deze route de Limes en was de noordgrens van het Romeinse Rijk.
 **Brug en Sluistijden:**
 
 De sluis in Montfoort wordt op afroep, door vrijwilligers, bediend; De sluis doorgaan kost wel wat tijd, en er wordt heen en terug een bijdrage gevraagd; Voor een halve dag aan te raden voor de sluis te blijven.
+
 **Beschrijving:**
 
-Geniet van een mooie, rustige en groene route door de weilanden naar het dorpje Montfoort, als je voor de sluis aanlegt op de aanleg plek, kun je nog even het dorp in wandelen,
+Geniet van een mooie, rustige en groene route door de weilanden naar het dorpje Montfoort, als je voor de sluis aanlegt op de aanleg plek, kun je nog even het dorp in wandelen.
 
 
  
