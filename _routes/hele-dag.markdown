@@ -28,11 +28,11 @@ position: 2
 
 **Beschrijving:**
 
-Vaar over de Grecht een rondje naar de Nieuwkoopse plassen.
-
 Voor wie van rust en natuur houdt, is dit een mooie groene route langs de rietkragen.
 
-Vervolgens vaar je richting Zwammerdam en over de Rijn weer terug.    Let wel 6 km /uur en het is echt wel 8 uur varen.
+Je vaart over de Grecht  naar de Nieuwkoopse plassen.
+Vervolgens vaar je richting Zwammerdam en over de Rijnvia Boegraven en Nieuwerbrug weer terug. 
+  Let wel onze sloepen varen overal 6 km /uur en het is 8 vaaruren.
 
 **Het is ook  de Oude Hollandse Waterlinie route; De zgn. "Luxembourg vaarroute". Deze is te zien via onderstaande link .
 
@@ -83,8 +83,9 @@ vaarkaart: [route Hekendorp De Scheepsjongens.pdf](/uploads/route%20Hekendorp%20
 Deze ronde is 8 vaar uren, je komt 2 x een sluis tegen en een spoorbrug op de dubbele Wiericke 
 let op :deze spoorbrug  heeft beperkte openingstijden.
 Wordt op zondag alleen geopend van 14.00-16.00 uur!
+en door de week ook op strakke tijden.
 
-**De Route Prins willem III van de OHWL is ook deze route, alleen daar ga je nu bij Hekendop rechtsaf, de Dubbelle Wiericke op,  (ipv naar Gouda), daardoor is deze hele route in 1 dag te doen.
+**De Route Prins willem III van de OHWL is ook deze route, alleen daar ga je, ipv naar Gouda, nu bij Hekendop rechtsaf, de Dubbele Wiericke op, daardoor is deze hele route in 1 dag te doen.
 
 Hieronder de link, met leuke en interessante informatie. 
 
