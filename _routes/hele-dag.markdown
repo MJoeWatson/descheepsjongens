@@ -31,13 +31,15 @@ position: 2
 Voor wie van rust en natuur houdt, is dit een mooie groene route langs de rietkragen.
 
 Je vaart over de Grecht  naar de Nieuwkoopse plassen.
-Vervolgens vaar je richting Zwammerdam en over de Rijnvia Boegraven en Nieuwerbrug weer terug. 
-  Let wel onze sloepen varen overal 6 km /uur en het is 8 vaaruren.
+Vervolgens vaar de plassen overen ga je richting Zwammerdam.
+ Over de Rijn via Boegraven en Nieuwerbrug weer terug. 
+  Let wel onze sloepen varen **overal 6 km /uur** en het is 8 vaaruren.
 
+OHWL
 **Het is ook  de Oude Hollandse Waterlinie route; De zgn. "Luxembourg vaarroute". Deze is te zien via onderstaande link .
 
 Het is eigenlijk een route die wat meer tijd kost dan 1 vaardag,  
-De route is eigenlijk via de Meije, dat is een klein riviertje met heel veel bruggetjes die allemaal open moeten met de hand.
+De route is oorspronkelijk via de Meije, dat is een klein riviertje met heel veel bruggetjes die allemaal open moeten met de hand.
 In plaats daarvan vaar je over de Nieuwkoopse plassen.
 
 In een dag kun je dan dus (meest van) deze route doen.
