@@ -24,7 +24,7 @@ Let op:  In een Halve dag vaar je **tot** de sluizen en niet er doorheen!
 
 Alle bruggen zijn hoog genoeg voor de sloep om eronderdoor te kunnen. Bereid jullie wel voor om te bukken! 
 
-De hofbrug,(blauwe brug vlak voor Harmelen) kan je voorzichtig zachtjes onderdoor varen;  De meest linkse kant als je uit Woerden komt, dit is de hoogste doorgang.(wel bukken)
+De hofbrug,(blauwe brug vlak voor Harmelen) kan je voorzichtig zachtjes onderdoor varen;  Vaar door de meest linkse kant als je uit Woerden komt, dit is de hoogste doorgang.(wel bukken)
 
 De Haanwijker sluis wordt maar om de 2 uur bediend, op afroep.
 dit is in een halve dag niet haalbaar,
@@ -55,7 +55,10 @@ In een halve dag kun je ivm de tijd wat het kost, **niet** door de sluis in Oude
 
 
 **Beschrijving:**
-In al deze oude dorpen is er de mogelijkheid om aan te leggen voor een korte pauze. Let wel goed op de tijd, en keer op tijd om om op de afgesproken tijd terug te zijn.
+In al deze mooie oude dorpjes/stadjes is er de mogelijkheid om aan te leggen voor een korte pauze. Let wel goed op de tijd, en keer op tijd om om op de afgesproken tijd terug te zijn.
+
+In Linschoten is het vrij smal dus vaar rustig en voorzichtig;
+er zijn daar lekkere ijsjes te koop trouwens ...
 
 ### Nieuwerbrug, Bodegraven
 #### Tijd: Heen en weer, 4 uur
@@ -68,8 +71,8 @@ In al deze oude dorpen is er de mogelijkheid om aan te leggen voor een korte pau
 
 **Beschrijving:**
 
-De Rijn is hier wat breder en vaart dus makkelijk.
-Voorheen heette deze route de Limes en was de noordgrens van het Romeinse Rijk.
+De Rijn is hier wat breder en dat vaart makkelijk.
+Voorheen heette deze route de Romeinse Limes en dit was de echte noordgrens van het Romeinse Rijk.
 
 
 ### Montfoort
@@ -79,11 +82,11 @@ Voorheen heette deze route de Limes en was de noordgrens van het Romeinse Rijk.
 
 **Brug en Sluistijden:**
 
-De sluis in Montfoort wordt op afroep, door vrijwilligers, bediend; De sluis doorgaan kost wel wat tijd, en er wordt heen en terug een bijdrage gevraagd; Voor een halve dag aan te raden voor de sluis te blijven.
+De sluis in Montfoort wordt op afroep, door vrijwilligers, bediend; De sluis doorgaan kost wel wat tijd, en er wordt heen én terug een bijdrage gevraagd; 
 
 **Beschrijving:**
 
-Geniet van een mooie, rustige en groene route door de weilanden naar het dorpje Montfoort, als je voor de sluis aanlegt op de aanleg plek, kun je nog even het dorp in wandelen.
+Geniet van een mooie, rustige en groene route door de weilanden naar het dorpje Montfoort, je kan voor de sluis aanleggen of als je meer tijd hebt net na de sluis rechtsaf, aan de overkant is ook een steigertje.
 
 
  
