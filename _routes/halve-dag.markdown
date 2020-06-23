@@ -88,5 +88,11 @@ De sluis in Montfoort wordt op afroep, door vrijwilligers, bediend; De sluis doo
 
 Geniet van een mooie, rustige en groene route door de weilanden naar het dorpje Montfoort, je kan voor de sluis aanleggen of als je meer tijd hebt net na de sluis rechtsaf, aan de overkant is ook een steigertje.
 
+### Woerdense verlaat over de Grecht
+#### Tijd: Heen en weer, 4,5 uur
+
+Deze route is door een rustig landelijk gebied, als je tegenover de Haven de brug onderdoor gaat, dan vaar je zo Woerden uit, bij de eerst volgende afslag, bij de Blokhuisbrug, ga je naar rechts de Greft op. Halverwege de tijd keer je om, dat is ongeveeer bij de sluis in Woerdense Verlaat.
+
+
 
  
