@@ -13,9 +13,7 @@ Voor je reserveert, **lees eerst de algemene voorwaarden en reglementen **én he
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder. 
 
-**Donderdag 25 juni is een sloep vrij gekomen!**
-
-**~Vrijdag 26, zaterdag 27 en zondag 28 juni  zijn vooralsnog alle sloepen in de middag verhuurd. Ochtend en avond is nog wel mogelijk.~**
+**~ Donderdag 25, Vrijdag 26, zaterdag 27 en zondag 28 juni  zijn vooralsnog alle sloepen in de middag verhuurd. Ochtend en avond is nog wel mogelijk.~**
 
 Er is deze dagen 1 sloep even uit de vaart, als deze weer beschikbaar is vermelden we dit hier.
 
