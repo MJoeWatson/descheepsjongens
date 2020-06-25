@@ -9,7 +9,7 @@ buitenboordsoldout: '08/05/2020'
 layout: reserveren
 ---
 
-Vóór je reserveert, **lees eerst de algemene voorwaarden en reglementen **én het laatste nieuws, vooral nu over de extra maatregelen ivm het Corona virus. (min leeftijd 24 jaar, over alcohol en de 6 km per uur en de 1,5 meter afstand onder andere, dus belangrijke informatie)
+Vóór je reserveert, **lees eerst de algemene voorwaarden en reglementen** én het laatste nieuws, vooral nu over de extra maatregelen ivm het Corona virus. (min leeftijd 24 jaar, over alcohol en de 6 km per uur en de 1,5 meter afstand onder andere, dus belangrijke informatie)
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder. 
 
