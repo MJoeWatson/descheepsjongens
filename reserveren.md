@@ -15,7 +15,7 @@ Reserveer eenvoudig door je gegevens en vaarwensen in te vullen op het formulier
 
 **~Vrijdag 26, zaterdag 27 en zondag 28 juni  zijn - vooralsnog - alle sloepen in de middag verhuurd. De vr en za ochtend is t vol maar zondagochtend is nog vrij en verder alle avonden zijn nog wel mogelijk.~**
 
-Er is deze dagen 1 sloep even uit de vaart, als deze weer beschikbaar is vermelden we dit hier.
+Er is deze dagen 1 sloep nl even uit de vaart, als deze weer beschikbaar is vermelden we dit hier.
 
 Wanneer de reservering is gemaakt sturen we je de bevestiging met de informatie die je nodig hebt, en dan verwachtten we een **ontvangstbevestiging/reply terug** of alles duidelijk is; Dan is de reservering compleet.
 
