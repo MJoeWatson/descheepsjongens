@@ -9,11 +9,11 @@ buitenboordsoldout: '08/05/2020'
 layout: reserveren
 ---
 
-Voor je reserveert, **lees eerst de algemene voorwaarden en reglementen **én het laatste nieuws, vooral nu over de extra maatregelen ivm het Corona virus. 
+Vóór je reserveert, **lees eerst de algemene voorwaarden en reglementen **én het laatste nieuws, vooral nu over de extra maatregelen ivm het Corona virus. (min leeftijd 24 jaar, over alcohol en de 6 km per uur en de 1,5 meter afstand onder andere, dus belangrijke informatie)
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder. 
 
-**~ Donderdag 25, Vrijdag 26, zaterdag 27 en zondag 28 juni  zijn vooralsnog alle sloepen in de middag verhuurd. Ochtend en avond is nog wel mogelijk.~**
+**~Vrijdag 26, zaterdag 27 en zondag 28 juni  zijn vooralsnog alle sloepen in de middag verhuurd. Ochtend en avond is nog wel mogelijk.~**
 
 Er is deze dagen 1 sloep even uit de vaart, als deze weer beschikbaar is vermelden we dit hier.
 
