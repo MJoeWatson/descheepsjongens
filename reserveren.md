@@ -14,7 +14,7 @@ Voor je reserveert, **lees eerst de algemene voorwaarden en reglementen **én he
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder. 
 
 
-**~ zondag 28 juni :Er is nog een sloep vrij vandaag
+**~ zondag 28 juni :Er is nog een sloep vrij vandaag!
 In Woerden of in Harmelen in Harmelen.~**
 
 Er is deze dagen 1 sloep even uit de vaart, als deze weer beschikbaar is vermelden we dit hier.
