@@ -23,10 +23,10 @@
               <input class="forminput centre" type="tel" id="tel" name="tel" placeholder="Telefoon Nummer">
               <select class="forminput centre" id="dagdeel" name="dagdeel">
                 <option style="color:grey !important;" value="" hidden>Vaartijd</option>
-                <option value="Hele Dag (€170)"> Hele Dag (€170)</option>
-                <option value="Ochtend (€85)"> Ochtend (€85)</option>
-                <option value="Middag (€100)"> Middag (€100)</option>
-                <option value="Avond (€85)"> Avond (€85)</option>
+                <option value="Hele Dag (€170)"> Hele Dag (€170, 10:00 - 18:00)</option>
+                <option value="Ochtend (€85)"> Ochtend (€85, 10:00 - 13:00)</option>
+                <option value="Middag (€100)"> Middag (€100, 13:30 - 18:00)</option>
+                <option value="Avond (€85)"> Avond (€85, 18:30 - 21:00)</option>
 
               </select>
               <select class="forminput centre" id="boot" name="boot">
@@ -34,6 +34,12 @@
                 <option value="Geen Voorkeur">Geen Voorkeur</option>
                 <option value="Elektrisch">Elektrisch</option>
                 <option value="Buitenboordmotor">Buitenboordmotor</option>
+              </select>
+              <select class="forminput centre" id="vertreklocatie" name="vertreklocatie">
+                <option style="color:grey !important;" value="" hidden>Vertreklocatie</option>
+                <option value="Geen Voorkeur">Geen Voorkeur</option>
+                <option value="Harmelen">Harmelen</option>
+                <option value="Woerden">Woerden</option>
               </select>
               <input class="forminput centre" type="number" id="person" name="person" placeholder="Aantal Personen">
               <input class="centre" type="text" id="bericht" name="bericht" placeholder="Bericht">
