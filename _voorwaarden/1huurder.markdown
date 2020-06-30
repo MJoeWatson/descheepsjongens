@@ -5,7 +5,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 ### Belangrijke regels! : 
 
-**Lees **ook** de actuele -extra- maatregelen ivm het Corona virus onder het kopje "Nieuws"**
+Lees **ook** de actuele -extra- maatregelen ivm het Corona virus onder het kopje "Nieuws"
 
 (Daar staat bv onder andere in dat je  met meer personen in een sloep kan als je een gezin bent dat in een huis woont. En anders geldt er de 1,5 meter afstand,
 Dat betekent: in de Antaris: 3 personen als je niet op 1 adres ingeschreven staat en in de electrische sloepen 4 personen als je allemaal niet op 1 adres ingeschreven staat.)
