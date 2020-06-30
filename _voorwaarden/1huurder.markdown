@@ -14,11 +14,10 @@ Dat betekent: in de Antaris: 3 personen als je niet op 1 adres ingeschreven staa
 Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.     
  
 2)De bestuurder mag **niet** onder invloed van alcohol of andere verdovende middelen in onze sloepen varen.
- **Overmatig**  alcoholgebruik in de sloep wordt **niet toegestaan**, ** er wordt op gecontroleerd! **
-
+ **Overmatig**  alcoholgebruik in de sloep wordt zowieso **niet toegestaan**, ** er wordt op gecontroleerd! **
 (*De borg wordt direct ingehouden als men zich niet aan deze afspaken houdt, of als er een zooitje van is gemaakt, er schade of vlekken gemaakt zijn, etc.)
 
-3 De toegestane maximum snelheid is **6 km/uur**, dat is echt **heel** rustig (wandelsnelheid). 
+3) De toegestane maximum snelheid is **6 km/uur**, dat is echt **heel** rustig (wandelsnelheid). 
 Dat geldt **overal** 
 bij **ons óók** als het anders aangegeven staat. 
 
