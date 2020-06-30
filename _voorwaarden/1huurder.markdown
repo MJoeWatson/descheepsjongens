@@ -28,7 +28,8 @@ Het is ook om beschadiging aan de natuur, de oevers, andere boten én een boete 
 *Heel belangrijk voor de **electrische** boten: als je harder dan 6 gaat trek je **de accu leeg** en kan je niet meer terug varen. 
 *Bij te hard gevaren met de buitenboordmotor sloepen, wordt **€15,-** in rekening gebracht voor de teveel verbruikte benzine. 
 en
- **De borg** wordt 4 weken **ingehouden** voor als er een boete bij ons binnen komt.
+en 
+ **De borg** wordt dan 4 weken **ingehouden** voor als er een boete bij ons binnen komt.
 
 -Elke boot is uitgerust met een **GPS volg systeem.**
 Als er reden is jullie te bellen zullen we dit doen, zorg dat je voor ons bereikbaar bent.
