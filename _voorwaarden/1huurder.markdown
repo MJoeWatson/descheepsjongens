@@ -8,18 +8,18 @@ date: 2020-03-18 12:25:00 +01:00
 Lees **ook** de actuele -extra- maatregelen ivm het Corona virus onder het kopje "Nieuws"
 
 (Daar staat bv onder andere in dat je  met meer personen in een sloep kan als je een gezin bent dat in een huis woont. En anders geldt er de 1,5 meter afstand,
-Dat betekent: in de Antaris: 3 personen als je niet op 1 adres ingeschreven staat en in de electrische sloepen 4 personen als je allemaal niet op 1 adres ingeschreven staat.)
+Dat betekent: in de Antaris: 3 personen als je op aparte adressen ingeschreven staat en in de electrische sloepen 4 personen als je allemaal op een ander adres ingeschreven staat.)
 
 1) De huurder moet minimaal **24 jaar** zijn.
 Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.     
  
-2)De bestuurder mag **niet** onder invloed van alcohol of andere verdovende middelen in onze sloepen varen.
+2)De bestuurder mag **niet onder invloed** van alcohol of andere verdovende middelen in onze sloepen varen.
  **Overmatig**  alcoholgebruik in de sloep wordt zowieso **niet toegestaan**, ** er wordt op gecontroleerd! **
 (*De borg wordt direct ingehouden als men zich niet aan deze afspaken houdt, of als er een zooitje van is gemaakt, er schade of vlekken gemaakt zijn, etc.)
 
 3) De toegestane maximum snelheid is **6 km/uur**, dat is echt **heel** rustig (wandelsnelheid). 
 Dat geldt **overal** 
-bij **ons óók** als het anders aangegeven staat. 
+bij ons **óók** als het anders aangegeven staat. 
 
 -Het is **belangrijk** je aan de max snelheid van 6 km/uur te houden, 
 Er wordt op gecontoleerd, 
