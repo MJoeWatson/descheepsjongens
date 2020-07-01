@@ -11,7 +11,7 @@ layout: reserveren
 
 Voor je reserveert, lees éérst de voorwaarden goed door:
 
-[Klik hier voor de voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
+[Klik **hier** voor de voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
 **\~Als de reservering is gemaakt gaat u akkoord met al deze voorwaarden\~**
 
