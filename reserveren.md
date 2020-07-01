@@ -9,10 +9,10 @@ buitenboordsoldout: '08/05/2020'
 layout: reserveren
 ---
 
-Voor je reserveert, **lees éérst: 
+Voor je reserveert, lees éérst: 
 http://descheepsjongens.nl/voorwaarden
 
- **én het laatste nieuws, vooral nu over de extra maatregelen ivm het Corona virus. 
+én het laatste nieuws, vooral nu over de extra maatregelen ivm het Corona virus. 
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder. 
 
