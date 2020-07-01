@@ -5,6 +5,8 @@ date: 2020-03-18 12:25:00 +01:00
 
 ### Belangrijke regels! : 
 
+~Als je de reservering maakt ga je akkoord met al deze voorwaarden, dus lees ze goed.~
+
 Lees **ook** de actuele -extra- maatregelen ivm het Corona virus onder het kopje "Nieuws"
 
 (Daar staat bv onder andere in dat je  met meer personen in een sloep kan als je een gezin bent dat in een huis woont. En anders geldt er de 1,5 meter afstand,
