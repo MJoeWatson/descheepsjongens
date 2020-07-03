@@ -17,7 +17,8 @@ De regels mbt het Coronavirus:
 4. ~ Kom niet met het openbaar vervoer.
 5. ~ Koppels/gezinnen die samen wonen mogen samen in de sloep, volwassenen moeten nog steeds 1,5 m afstand houden van elkaar
 
-wat kan bv 
+wat kan:
+ bv 
 **max 3 "afzonderlijke"  personen of 2 samenwonende koppels in de Antaris** 
 of 
 **max 5 "afzonderlijke" personen of 3 samenwonende koppels in de electrische sloepen** 
