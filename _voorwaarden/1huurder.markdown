@@ -11,10 +11,7 @@ Voor de veiligheid van onze gasten én omgeving en zodat iedereen zoveel mogelij
 
 Lees **ook** de actuele -extra- maatregelen ivm het Corona virus onder het kopje "Nieuws"
 
-(Daar staat bv onder andere in dat je met meer personen in een sloep kan als je op het zelfde adres ingeschreven staat. En anders geldt er de 1,5 meter afstand,
-
-Dat betekent:
-In de buitenboord motor sloep: 3 en in de electrische sloepen 4 personen als je allemaal op een ander adres ingeschreven staat.)
+(Daar staat bv onder andere in dat je met meer personen in een sloep kan als je op het zelfde adres ingeschreven staat. En anders geldt er de 1,5 meter afstand voor alle personen boven de 18 jaar)
 
 1) De huurder moet minimaal **24 jaar** zijn.
 Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.     
