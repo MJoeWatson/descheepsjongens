@@ -3,7 +3,9 @@ title: 1. Huurder
 date: 2020-03-18 12:25:00 +01:00
 ---
 
-### Belangrijke regels! : 
+Voor de veiligheid van onze gasten én omgeving en zodat iedereen zoveel mogelijk plezier blijft hebben van het varen in onze sloepen, hebben we de volgende regels opgesteld...
+
+### Belangrijke regels : 
 
 ~Als je de reservering maakt ga je akkoord met al deze voorwaarden, dus lees ze goed.~
 
