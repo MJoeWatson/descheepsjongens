@@ -26,7 +26,7 @@ bij ons **óók** als het anders aangegeven staat.
 Er wordt op gecontoleerd, 
 Het is ook om beschadiging aan de natuur, de oevers, andere boten én een boete te voorkomen.
 
-*Heel belangrijk voor de **electrische** boten: als je harder dan 6km/u gaat trek je **de accu leeg** en kan je niet meer terug varen. 
+*Heel belangrijk voor de **electrische** boten: als je harder dan 6 km/u gaat trek je **de accu leeg** en kan je niet meer terug varen. 
 *Bij te hard gevaren met de buitenboordmotor sloepen, wordt **€10,- ** in rekening gebracht voor de teveel verbruikte benzine. 
 en
  **De borg** wordt dan 4 weken **ingehouden** voor als er een boete bij ons binnen komt.
