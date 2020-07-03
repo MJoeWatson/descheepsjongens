@@ -6,8 +6,8 @@ date: 2020-03-18 12:25:00 +01:00
 
 We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid. 
 
-Vanaf 1 juni zijn de regels wat soepeler en mogen er een paar meer mensen op de sloep; 
-Maar alleen als je je aan de regels van het rivm houdt én er 1.5 meter afstand gehouden wordt (indien je niet samenwoont) 
+Vanaf 1 juli zijn de regels weer wat soepeler en mogen er een paar meer mensen op de sloep; 
+Maar alleen als je je aan de regels van het rivm houdt én er 1.5 meter afstand gehouden wordt tussen volwassenen (indien je niet samenwoont) 
 
 De regels mbt het Coronavirus:
 
@@ -15,9 +15,11 @@ De regels mbt het Coronavirus:
 2. ~ Voelt u zich niet lekker of bent u verkouden of heeft u koorts, ga er niet op uit, blijf thuis!
 3. ~ Als je onderweg aanlegt of uitstapt houdt je aan de regels, neem zelf je picknickmand mee, of bestel deze bij een lokaal restaurant; dat is nog leuker!
 4. ~ Kom niet met het openbaar vervoer.
-5. ~ Koppels/gezinnen die samen wonen mogen samen in de sloep, verders iedereen die mee gaat 1,5 meter afstand van elkaar bewaren. 
+5. ~ Koppels/gezinnen die samen wonen mogen samen in de sloep, volwassenen moeten nog steeds 1,5 m afstand houden van elkaar
 
-Daarom kunnen er bv 2 koppels/ kleine gezinnen die op 1 adres ingeschreven staan mee in een sloep of **max 3 "afzonderlijke" personen in de Antaris** of **max 4 "afzonderlijke" personen in de grootste sloepen**
+wat kan bv 
+bv 2 koppels of kleine gezinnen (als je op 1 adres ingeschreven staat) in een sloep of **max 3 "afzonderlijke" personen in de Antaris** of **max 5 "afzonderlijke" personen in de grootste sloepen** of 3 koppels die samen op 1 adres wonen
+
 
 6. ~ Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven.  
 
