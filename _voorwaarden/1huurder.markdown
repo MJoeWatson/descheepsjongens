@@ -14,7 +14,7 @@ Lees **ook** de actuele -extra- maatregelen ivm het Corona virus onder het kopje
 1) De huurder moet minimaal **24 jaar** zijn.
 Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.     
  
-2)De bestuurder mag **niet onder invloed** van alcohol of andere verdovende middelen in onze sloepen varen.
+2) De bestuurder mag **niet onder invloed** van alcohol of andere verdovende middelen in onze sloepen varen.
  **Overmatig**  alcoholgebruik in de sloep wordt zowieso **niet toegestaan**, ** er wordt op gecontroleerd! **
 (*De borg wordt direct ingehouden als men zich niet aan deze afspaken houdt, of als er een zooitje van wordt gemaakt, er schade of vlekken gemaakt zijn, etc.)
 
@@ -26,10 +26,9 @@ bij ons **óók** als het anders aangegeven staat.
 Er wordt op gecontoleerd, 
 Het is ook om beschadiging aan de natuur, de oevers, andere boten én een boete te voorkomen.
 
-*Heel belangrijk voor de **electrische** boten: als je harder dan 6 gaat trek je **de accu leeg** en kan je niet meer terug varen. 
-*Bij te hard gevaren met de buitenboordmotor sloepen, wordt **€15,-** in rekening gebracht voor de teveel verbruikte benzine. 
+*Heel belangrijk voor de **electrische** boten: als je harder dan 6km/u gaat trek je **de accu leeg** en kan je niet meer terug varen. 
+*Bij te hard gevaren met de buitenboordmotor sloepen, wordt **€10,- ** in rekening gebracht voor de teveel verbruikte benzine. 
 en
-en 
  **De borg** wordt dan 4 weken **ingehouden** voor als er een boete bij ons binnen komt.
 
 -Elke boot is uitgerust met een **GPS volg systeem.**
