@@ -9,7 +9,7 @@ Voor de veiligheid van onze gasten én omgeving en zodat iedereen zoveel mogelij
 
 ~Als je de reservering maakt ga je akkoord met al deze voorwaarden, dus lees ze goed.~
 
-Lees **ook** de actuele -extra- maatregelen ivm het Corona virus onder het kopje "Nieuws"
+Lees **ook** de actuele -extra- maatregelen ivm het Corona virus onder het kopje "Nieuws" of "Corona update"
 
 1) De huurder moet minimaal **24 jaar** zijn.
 Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.     
