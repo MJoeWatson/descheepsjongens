@@ -21,7 +21,7 @@ wat kan:
  bv 
 max 3 "afzonderlijke"  personen of 2 samenwonende koppels in de Antaris** 
 of 
-max 5 "afzonderlijke" personen of 3 samenwonende koppels in de electrische sloepen** 
+max 5 "afzonderlijke" personen of 3 samenwonende koppels in de electrische sloepen
 
 6. ~ Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven.  
 
