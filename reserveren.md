@@ -13,7 +13,12 @@ Voor je reserveert, lees éérst de voorwaarden* goed door:
 
 [Klik **hier** voor de voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
-*Als de reservering is gemaakt gaat u akkoord met onze voorwaarden
+*Als de reservering is gemaakt gaat u akkoord met onze voorwaarden.
+
+**Zaterdag 11 juli ochtend en middag 
+en Zondag 12 juli in de middag  zijn in Woerden de sloepen al uit varen, Vanuit harmelen zijn de sloepen nog beschikbaar.**
+
+
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
