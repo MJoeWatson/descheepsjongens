@@ -16,7 +16,7 @@ Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit
  
 2) De bestuurder mag **niet onder invloed** van alcohol of andere verdovende middelen in onze sloepen varen.
  **Overmatig**  alcoholgebruik in de sloep wordt zowieso **niet toegestaan**, ** er wordt op gecontroleerd! **
-(*De borg wordt direct ingehouden als men zich niet aan deze afspaken houdt, of als er een zooitje van wordt gemaakt, er schade of vlekken gemaakt zijn, etc.)
+(*De borg wordt direct ingehouden als men zich niet aan deze afspaken houdt, als er een zooitje van wordt gemaakt, of er schade of vlekken gemaakt zijn, etc.)
 
 3) De toegestane maximum snelheid is **6 km/uur**, dat is echt **heel** rustig (wandelsnelheid). 
 Dat geldt **overal** 
