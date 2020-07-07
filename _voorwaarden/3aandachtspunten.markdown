@@ -38,7 +38,7 @@ Bij uitstappen daarom de sloep uitzetten met de sleutel.
 
 13) Er gelden voorlopig **nieuwe extra regels** ivm het corona virus die te lezen zijn bij nieuws / maatregelen mbt het corona virus / **corona update**. Indien wij als onderneming een boete krijgen omdat er ondanks onze regels iets niet wordt nageleefd wordt dit verhaald op de huurder.
 
-14) Als het slecht weer is kan de vaartocht **in overleg met ons** kosteloos verplaatst of geannuleerd worden; 
+14) Als het slecht weer is kan de vaartocht **in overleg met ons op de dag zelf ** kosteloos verplaatst of geannuleerd worden; 
 
 Indien wij daar speciaal naar het vertrekpunt komen en er wordt beslist niet te varen, dan rekenen we de gemaakte kosten. Het kan het hele dagdeel zijn of service kosten, dit voor ons om te bepalen.
 
