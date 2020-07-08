@@ -22,7 +22,7 @@ maar vanuit Woerden : Zaterdag 11 juli alleen in de avond nog een sloep beschikb
 Zondag 12 en zaterdag 18 juli alleen beschikbaar in de ochtend of de avonden. 
 (In de middag zijn de sloepen vanuit Woerden deze dagen al uit varen)
 
-op de overige dagen /dagdelen zijn de sloepen nog te reserveren.**
+Op de overige dagen /dagdelen zijn de sloepen nog te reserveren.**
 
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
