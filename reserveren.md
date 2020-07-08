@@ -15,9 +15,14 @@ Voor je reserveert, lees éérst de voorwaarden* goed door:
 
 *Als de reservering is gemaakt gaat u akkoord met onze voorwaarden.
 
-**Zaterdag 11 juli ochtend en middag 
-en Zondag 12 juli in de middag  zijn in Woerden de sloepen al uit varen, Vanuit harmelen zijn de sloepen nog beschikbaar.**
+**Vanuit harmelen zijn de sloepen alle datums nog beschikbaar.
 
+maar vanuit Woerden : Zaterdag 11 juli alleen in de avond nog een sloep beschikbaar.
+
+Zondag 12 en zaterdag 18 juli alleen beschikbaar in de ochtend of de avonden. 
+(In de middag zijn de sloepen vanuit Woerden deze dagen al uit varen)
+
+op de overige dagen /dagdelen zijn de sloepen nog te reserveren.**
 
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
