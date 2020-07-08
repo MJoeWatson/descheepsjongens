@@ -33,19 +33,20 @@ Bij terugkomst kun je zelf de sloep weer schoon maken;
 
 Wij willen het ook  voor je doen, dan houden we de €10,- schoonmaakborg in.
 
-~ Kleine schade en onkosten wordt van de borg afgehouden.
+~ Kleine schade en onkosten worden van de borg afgehouden.
 
 ~ Grotere schade loopt via de verzekering.
-
 De huurder is verantwoordelijk voor de eerste €350,- eigen risico.
 
 We rekenen geen reserveringskosten. 
-Annuleren als het regent, kan op de dag zelf, in overleg met ons =/- een uur voor de vertrek tijd. Daar zijn dan geen kosten aan verbonden.
-Indien wij daar speciaal heen gegaan zijn en de vaartocht gaat niet door of je komt niet opdagen, wordt of het hele huurbedrag  gerekend of €20,- service onkosten gerekend, dit door ons te bepalen.
+Annuleren als het regent is kosteloos , kan op de dag zelf, in overleg met ons =/- een uur voor de vertrek tijd. 
 
-~ Een extra uur bij huren (indien mogelijk), vooraf te reserveren. : €25,-per uur. 
+Indien wij daar speciaal heen gegaan zijn en de vaartocht gaat niet door of je komt niet opdagen, wordt óf het hele huurbedrag  gerekend óf €20,- service onkosten gerekend, dit door ons te bepalen.
 
-~Cadeaubonnen te bestellen: 
+~ Een extra uur bij huren is soms mogelijk,dit in overleg, €25,-per uur.  Vooraf te reserveren.
+
+~Cadeaubonnen zijn te bestellen via reservering formulier of een email.
+we hebben cadeaubonnen voor:
 - Hele dag €170,-
 - Halve dag €100,-
 - of een bedrag naar wens.
