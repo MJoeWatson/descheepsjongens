@@ -20,7 +20,7 @@ Zaterdag 11 juli, Zondag 12 en zaterdag 18 juli sloepen beschikbaar in de ochten
 
 Op de overige dagen zijn de sloepen nog te reserveren.
 
-Vanuit Harmelen zijn de sloepen alle tijden nog beschikbaar.**
+Vanuit Harmelen zijn de sloepen nog te reserveren  behalve 18 juli, dan zijn ze al uit varen.**
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
