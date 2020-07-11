@@ -17,15 +17,11 @@ Voor je reserveert, lees éérst de voorwaarden* goed door:
 
 ### Beschikbaarheid:
 
-**Zaterdag 11 juli**, alleen nog een sloep beschikbaar de ochtend en in de avond. (middag -vooralsnog-  vol)
 
-**Zondag 12 juli** is er nog een buitenboordmotor sloep vrij (Antaris) in Woerden en
-
-In Harmelen een fluistersloep vrij voor alle dagdelen.
+**Zondag 12 juli** zijn alle sloepen uit varen.**
 
 **Zaterdag 18 juli** zijn de sloepen in de middag allemaal gereserveerd in Woerden en Harmelen.
- 
-~Nog sloepen vrij voor een paar uur het water op in de ochtend of de avond in Woerden en Harmelen
+Er zijn nog sloepen vrij in de ochtend of de avond in Woerden en in Harmelen
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
