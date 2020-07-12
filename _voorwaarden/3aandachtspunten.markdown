@@ -3,13 +3,7 @@ title: 3. Aandachtspunten
 date: 2020-03-18 12:25:00 +01:00
 ---
 
-1) **Lenen is gratis**
-Bij verlies worden de volgende kosten van de borg ingehouden:
-1. Stootwil: €30,-
-2. Afzetstok: €30,-
-3. Zwemvest: €35,-
-4. Paraplu: €12,50
-5. Vaarkaart: €5,-
+1) Pas op voor zwemmers en de hengels van vissers! ze zijn soms moeilijk te zien in het water. houdt afstand! 
 
 2) De huurder moet er voor zorg dragen dat er **géén afval** in de natuur terecht komt.  ~Afval zelf mee naar huis nemen.
 
