@@ -23,7 +23,7 @@ Grotere schade gaat via de verzekering, Het eigen risico bedrag is €350,-
 7) **Pas op met roken** in de boot (ivm brandgaatjes) en scherpe voorwerpen in en aan kleding;
 en **zonnebrand crème** maakt **akelige vlekken** op de kussens die er niet meer uit gaan, dus pas op! Neem hiervoor een **handdoek** mee om op te zitten.
 
- **Lenen is gratis**
+ **Lenen is gratis :)**
 Bij verlies worden de volgende kosten van de borg ingehouden:
 1. Stootwil: €30,-
 2. Afzetstok: €30,-
