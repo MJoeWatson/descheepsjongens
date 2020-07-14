@@ -15,8 +15,8 @@ Lees **ook** de actuele -extra- maatregelen ivm het Corona virus onder het kopje
 Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.     
  
 2) De bestuurder mag **niet onder invloed** van alcohol of andere verdovende middelen in onze sloepen varen.
- **Overmatig**  alcoholgebruik in de sloep wordt zowieso **niet toegestaan**, ** er wordt op gecontroleerd! **
-(*De borg wordt direct ingehouden als men zich niet aan deze afspaken houdt, als er een zooitje van wordt gemaakt, of er schade of vlekken gemaakt zijn, etc.)
+ **Overmatig**  alcoholgebruik in de sloep wordt zowieso **NIET toegestaan**, ** er wordt op gecontroleerd! **
+**De borg wordt per direct ingehouden als men zich niet aan deze afspaken houdt, als er een zooitje van wordt gemaakt, of er schade of vlekken gemaakt zijn, etc.)
 
 3) De toegestane maximum snelheid is **6 km/uur**, dat is echt **heel** rustig (wandelsnelheid). 
 Dat geldt **overal** 
@@ -27,16 +27,16 @@ Er wordt op gecontoleerd,
 Het is ook om beschadiging aan de natuur, de oevers, andere boten én een boete te voorkomen.
 
 *Heel belangrijk voor de **electrische** boten: als je harder dan 6 km/u gaat trek je **de accu leeg** en kan je niet meer terug varen. 
-*Bij te hard gevaren met de buitenboordmotor sloepen, wordt **€10,- ** in rekening gebracht voor de teveel verbruikte benzine. 
-en
- **De borg** wordt dan 4 weken **ingehouden** voor als er een boete bij ons binnen komt.
+*Bij te hard gevaren met de buitenboordmotor sloepen, wordt minimaal **€10,- ** in rekening gebracht voor de teveel verbruikte benzine. 
+én
+ **De borg** wordt **ingehouden** voor als er een boete bij ons binnen komt. na 4 weken bekijken we of de borg gestort kan worden.
 
 -Elke boot is uitgerust met een **GPS volg systeem.**
-Als er reden is jullie te bellen zullen we dit doen, zorg dat je voor ons bereikbaar bent.
+Als er reden is jullie te bellen zullen we dit doen, zorg dat je voor ons het goede telefoon nr achterlaat en bereikbaar bent.
 
 4) De sloep wordt op de **afgesproken tijd** opgehaald en weer terug gebracht i.v.m. eventueel volgend verhuur.
-Wordt de sloep aan het eind van de verhuurperiode **te laat** teruggebracht zijn er **kosten** aan verbonden;
+Wordt de sloep aan het eind van de verhuurperiode **te laat** teruggebracht zijn er **kosten** aan verbonden;*
 
-Als de sloep verhuurd is wordt het hele volgende dagdeel in rekening gebracht,
+*Als de sloep verhuurd is wordt het hele volgende dagdeel in rekening gebracht,
 Bij geen volgend verhuur dan zijn de extra kosten € 10,- per 15 min.
 Langer varen kan soms, maar dit in overleg van tevoren.
