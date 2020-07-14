@@ -20,7 +20,7 @@ Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit
 
 3) De toegestane maximum snelheid is **6 km/uur**, dat is echt **heel** rustig (wandelsnelheid). 
 Dat geldt **overal** 
-bij ons **óók** als het anders aangegeven staat. 
+bij ons,  **óók** als het anders aangegeven staat. 
 
 -Het is **belangrijk** je aan de max snelheid van 6 km/uur te houden, 
 Er wordt op gecontoleerd, 
@@ -29,7 +29,7 @@ Het is ook om beschadiging aan de natuur, de oevers, andere boten én een boete 
 *Heel belangrijk voor de **electrische** boten: als je harder dan 6 km/u gaat trek je **de accu leeg** en kan je niet meer terug varen. 
 *Bij te hard gevaren met de buitenboordmotor sloepen, wordt minimaal **€10,- ** in rekening gebracht voor de teveel verbruikte benzine. 
 én
- **De borg** wordt **ingehouden** voor als er een boete bij ons binnen komt. na 4 weken bekijken we of de borg gestort kan worden.
+ **De borg** wordt in dit geval **ingehouden** voor als er een boete bij ons binnen komt. na 4 weken bekijken we of de borg terug gestort kan worden.
 
 -Elke boot is uitgerust met een **GPS volg systeem.**
 Als er reden is jullie te bellen zullen we dit doen, zorg dat je voor ons het goede telefoon nr achterlaat en bereikbaar bent.
