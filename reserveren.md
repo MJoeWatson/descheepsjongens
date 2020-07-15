@@ -17,7 +17,7 @@ Voor je reserveert, lees éérst de voorwaarden* goed door:
 
 ### Beschikbaarheid:
 
-**Zaterdag 18 juli en zondag 19 juli** zijn de sloepen in de middag -vooralsnog- allemaal gereserveerd in Woerden en Harmelen.(kan nog veranderen)
+**Zaterdag 18 juli en zondag 19 juli** zijn de sloepen in de middag allemaal gereserveerd in Woerden en Harmelen.
 Er zijn nog sloepen vrij in de ochtend en de avond**
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
