@@ -9,22 +9,22 @@ Voor de veiligheid van onze gasten én omgeving en zodat iedereen zoveel mogelij
 
 ~Als je de reservering maakt ga je akkoord met al deze voorwaarden, dus lees ze goed.~
 
-Lees **ook** de actuele -extra- maatregelen ivm het Corona virus onder het kopje "Nieuws" of "Corona update"
+Lees **ook** de actuele -extra- maatregelen i.v.m. het Corona virus onder het kopje "Nieuws" of "Corona update"
 
 1) De huurder moet minimaal **24 jaar** zijn.
 Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.     
  
 2) De bestuurder mag **niet onder invloed** van alcohol of andere verdovende middelen in onze sloepen varen.
- **Overmatig**  alcoholgebruik in de sloep wordt zowieso **NIET toegestaan**, ** er wordt op gecontroleerd! **
+ **Overmatig**  alcoholgebruik in de sloep wordt sowieso **NIET toegestaan**, ** er wordt op gecontroleerd! **
 
-****De borg wordt per direct ingehouden als men zich niet aan deze afspaken houdt, als er een zooitje van wordt gemaakt, of er schade of vlekken gemaakt zijn, etc.)**
+****De borg wordt per direct ingehouden als men zich niet aan deze afspraken houdt, als er een zooitje van wordt gemaakt, of er schade of vlekken gemaakt zijn, etc.)**
 
 3) De toegestane maximum snelheid is **6 km/uur**, dat is echt **heel** rustig (wandelsnelheid). 
 Dat geldt **overal** 
 bij ons,  **óók** als het anders aangegeven staat. 
 
 -Het is **belangrijk** je aan de max snelheid van 6 km/uur te houden, 
-Er wordt op gecontoleerd, 
+Er wordt op gecontroleerd, 
 Het is ook om beschadiging aan de natuur, de oevers, andere boten én een boete te voorkomen.
 
 *Heel belangrijk voor de **electrische** boten: als je harder dan 6 km/u gaat trek je **de accu leeg** en kan je niet meer terug varen. 
