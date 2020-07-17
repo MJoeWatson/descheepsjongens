@@ -35,8 +35,8 @@ Het is ook om beschadiging aan de natuur, de oevers, andere boten én een boete 
 -Elke boot is uitgerust met een **GPS volg systeem.**
 Als er reden is jullie te bellen zullen we dit doen, zorg dat je voor ons het goede telefoon nr achterlaat en bereikbaar bent.
 
-4) De sloep wordt op de **afgesproken tijd** opgehaald en weer terug gebracht i.v.m. eventueel volgend verhuur.
-Wordt de sloep aan het eind van de verhuurperiode **te laat** teruggebracht zijn er **kosten** aan verbonden;*
+4) De sloep wordt op de **afgesproken tijd** **opgehaald** en weer **terug gebracht** 
+Moeten we op je wachten dan zijn er **kosten** aan verbonden;*
 
 *Als de sloep verhuurd is wordt het hele volgende dagdeel in rekening gebracht,
 Bij geen volgend verhuur dan zijn de extra kosten € 10,- per 15 min.
