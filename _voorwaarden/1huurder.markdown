@@ -27,7 +27,7 @@ bij ons,  **óók** als het anders aangegeven staat.
 Er wordt op gecontroleerd, 
 Het is ook om beschadiging aan de natuur, de oevers, andere boten én een boete te voorkomen.
 
-*Heel belangrijk voor de **electrische** boten: als je harder dan 6 km/u gaat trek je **de accu leeg** en kan je niet meer terug varen. 
+*Heel belangrijk voor de **elektrische** boten: als je harder dan 6 km/u gaat trek je **de accu leeg** en kan je niet meer terug varen. 
 *Bij te hard gevaren met de buitenboordmotor sloepen, wordt minimaal **€10,- ** in rekening gebracht voor de teveel verbruikte benzine. 
 én
  **De borg** wordt in dit geval **ingehouden** voor als er een boete bij ons binnen komt. na 4 weken bekijken we of de borg terug gestort kan worden.
