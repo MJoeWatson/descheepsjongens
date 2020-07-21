@@ -15,7 +15,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 5) **Touwen binnenboord**! Anders komen ze in de schroef terecht en draait de **motor stuk.**
 
-6) Als de sloep iets **in de schroef** lijkt te hebben en niet goed vaart, dan kun je de sloep even in z’n **achteruit** zetten. Meestal draait het weer los. Zo niet, **motor uitzetten!** en **ons bellen** om te voorkomen dat de motor in de soep draait!
+6) Als de sloep iets **in de schroef** lijkt te hebben en niet goed vaart, dan kun je de sloep een klein moment vol in z’n **achteruit** zetten. Meestal draait het weer los. Zo niet, **motor uitzetten!** en **ons bellen** om te voorkomen dat de motor in de soep draait!
 
 7) De **hendel/joystick **van de stille sloepen is gevoelig, Pas op! als je de hendel **aanstoot** of er langs loopt, anders **schiet de sloep naar voor(of achter).**
 Bij uitstappen daarom de sloep **uitzetten** met de sleutel.
