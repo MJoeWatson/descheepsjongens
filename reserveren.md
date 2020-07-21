@@ -17,8 +17,7 @@ Voor je reserveert, lees **éérst** de voorwaarden en reglementen* goed door, w
 
 ### Beschikbaarheid:
 
-**Zaterdag 18 juli en zondag 19 juli** zijn de sloepen in de middag allemaal gereserveerd in Woerden en Harmelen.
-Er zijn nog sloepen vrij in de ochtend en de avond**
+~Zaterdag 1 augustus zijn er nog Buitenboordmotor sloepen beschikbaar De stille sloepen in Woerden zijn gereserveerd~
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
