@@ -27,7 +27,7 @@ Dat geldt **overal** bij ons,  **óók** als het anders aangegeven staat.
 *Heel belangrijk voor de **elektrische** boten: als je harder dan 6 km/u gaat trek je **de accu leeg** en kan je niet meer terug varen. 
 *Bij te hard varen met de buitenboordmotor sloepen, wordt minimaal **€10,-** in rekening gebracht voor de teveel verbruikte **extra benzine.**  
 én
-we kunnen ook besluiten **De borg** in dit geval **intehouden** voor als er een boete bij ons binnen komt. na 4 weken bekijken we of de borg terug gestort kan worden.
+eventueel wordt **De borg ingehouden** voor als we verwachten dat er een boete bij ons binnen kan komen. na 4 weken bekijken we of de borg terug gestort kan worden.
 
 -Elke boot is uitgerust met een **GPS volg systeem.**
 Als er reden is jullie te bellen zullen we dit doen, zorg dat je bij ons het **goede** telefoon nr achterlaat en **bereikbaar** bent.
