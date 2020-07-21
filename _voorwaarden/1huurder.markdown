@@ -5,7 +5,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 Voor de veiligheid van onze gasten én omgeving en zodat iedereen zoveel mogelijk plezier blijft hebben van het varen in onze sloepen, hebben we de volgende regels opgesteld...
 
-### Belangrijke regels: 
+### Belangrijke -ook wat nieuwe- regels: 
 
 ~Als je de reservering maakt ga je akkoord met al deze voorwaarden, dus lees ze goed.~
 
@@ -17,11 +17,11 @@ Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit
 2) De bestuurder mag **niet onder invloed** van alcohol of andere verdovende middelen in onze sloepen varen.
  **Overmatig**  alcoholgebruik in de sloep wordt sowieso **NIET toegestaan**, ** er wordt op gecontroleerd! **
 
-****De borg wordt per direct ingehouden als men zich niet aan deze afspraken houdt, als er een zooitje van wordt gemaakt, of er schade of vlekken gemaakt zijn, etc.)**
+****De borg wordt per direct ingehouden als men zich niet aan deze afspraken houdt, als er een zooitje van wordt gemaakt, of er schade of vlekken gemaakt zijn, etc.)** 
+~Door een aantal slechte ervaringen met vriendengroepen en drank etc. is het **niet** toegestaan om alcohol in onze sloepen mee te nemen/ergens anders in te laden.~
 
-3) De toegestane maximum snelheid is **6 km/uur**, dat is echt **heel** rustig (wandelsnelheid). 
-Dat geldt **overal** 
-bij ons,  **óók** als het anders aangegeven staat. 
+3) De toegestane maximum snelheid is **6 km/uur**, dat is echt (!)  **heel** rustig (wandelsnelheid). 
+Dat geldt **overal** bij ons,  **óók** als het anders aangegeven staat. 
 
 -Het is **belangrijk** je aan de max snelheid van 6 km/uur te houden, 
 Er wordt op gecontroleerd, 
