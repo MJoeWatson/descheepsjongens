@@ -32,10 +32,10 @@ eventueel wordt **De borg ingehouden** voor als we verwachten dat er een boete b
 -Elke boot is uitgerust met een **GPS volg systeem.**
 Als er reden is jullie te bellen zullen we dit doen, zorg dat je bij ons het **goede** telefoon nr achterlaat en **bereikbaar** bent.
 
-4) De sloep wordt op de **afgesproken tijd** - **opgehaald**
-Moeten we op je wachten dan zijn er **kosten** aan verbonden want we komen daar speciaal op tijd naar toe.*
+4) De sloep wordt op de **afgesproken tijd**  ...opgehaald.
+ Moeten we op je wachten dan zijn er **kosten** aan verbonden want we komen daar speciaal op tijd naar toe.
 
--  en weer **terug gebracht*** 
+...en weer**terug gebracht*** 
 
 *Als de sloep verhuurd is wordt het hele volgende dagdeel in rekening gebracht,
 Bij geen volgend verhuur dan zijn de extra kosten € 10,- per 15 min.
