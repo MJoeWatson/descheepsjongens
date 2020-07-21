@@ -1,5 +1,5 @@
 ---
-title: 1. Huurder
+title: 1. voorwaarden
 date: 2020-03-18 12:25:00 +01:00
 ---
 
@@ -16,6 +16,8 @@ Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit
  
 2) De bestuurder mag **niet onder invloed** van alcohol of andere verdovende middelen in onze sloepen varen.
 Overmatig (door ons te bepalen) **alcoholgebruik** wordt **NIET toegestaan**,  er wordt op gecontroleerd!   ~Het is **niet** toegestaan om veel drank in onze sloepen mee te nemen/ergens anders in te laden.*~
+
+Niet op de rand/punt en achterdek van de boot zitten of staan. Iets achter de boot hangen is **niet** toegestaan. **Niet zwemmen vanaf de boot** maar vanaf een steiger of kade langs de vaarroute.
 
 *De borg wordt per direct ingehouden als men zich **niet** aan deze afspraken houdt, als er een **zooitje** van wordt gemaakt, of als er schade of vlekken gemaakt zijn, etc. Ook dient men ervoor te zorgen dat er **geen overlast** voor de omgeving veroorzaakt wordt, dus geen harde muziek enz.) 
 
