@@ -10,7 +10,7 @@ De Scheepsjongens zijn **niet aansprakelijk** voor geleden schade van de huurder
 2) Als de sloep in huurperiode ergens **tegenaan** gekomen is of andere bijzonderheden of **schade** moet dit **ALTIJD gemeld** worden.
 Als er **rustig** gevaren wordt en goed **opgepast** wordt in de buurt van **kades, sluizen en bruggen** kun je schade meestal voorkomen. Met de afzetstok kun je schades helpen voorkomen.
 
-3) In sluizen de sloep **niet vastbinden**; Niet samen met een andere boot onder een brug i.v.m. golfslag/hoofdstoten.
+3) In sluizen de sloep **niet vastbinden**; Niet samen met een andere boot onder een brug i.v.m. golfslag/hoofd stoten.
 
 4) Bij aanvang wordt € 150,- borg en €10,- schoonmaakborg extra betaald, dat als de sloep **onbeschadigd en netjes** terug gebracht is weer **terug** ontvangen wordt.
 
