@@ -33,7 +33,7 @@ Dat geldt **overal** bij ons,  **óók** als het anders aangegeven staat.
 Als er reden is jullie te bellen zullen we dit doen, zorg dat je bij ons het **goede** telefoon nr achterlaat en **bereikbaar** bent.
 
 4) De sloep wordt op de **afgesproken tijd** **opgehaald** en weer **terug gebracht*** 
-Moeten we op je wachten dan zijn er **kosten** aan verbonden;*
+Moeten we op je wachten dan zijn er **kosten** aan verbonden want we komen daar speciaal op tijd naar toe.*
 
 *Als de sloep verhuurd is wordt het hele volgende dagdeel in rekening gebracht,
 Bij geen volgend verhuur dan zijn de extra kosten € 10,- per 15 min.
