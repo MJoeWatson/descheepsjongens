@@ -9,7 +9,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 3) De sloep a.u.b. netjes achter laten: Een doekje en stoffer en blik en een doekje zijn beschikbaar bij terugkomst.  **Wij** willen het voor je doen,  dan wordt  vanaf **€ 10,- **verrekend met de **borg.**
 
-4) **Hond** liever niet, maar in overleg eventueel mogelijk. Kosten: **€ 10,- extra.** De hond mag niet op de kussens, en op een eigen kleedje. 
+4) **Hond** Kosten: **€ 10,- extra.** De hond mag niet op de kussens ed., maar op een eigen kleedje. 
 
 5) De kappen zijn netjes naar beneden gevouwen, **graag zo houden.**  * Alleen bij regen eventueel te gebruiken. - De kap moet altijd **binnenboord** opgevouwen zijn (i.v.m. beschadigen)
 
