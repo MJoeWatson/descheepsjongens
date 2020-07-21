@@ -20,7 +20,7 @@ Overmatig (door ons te bepalen) **alcoholgebruik** wordt **NIET toegestaan**,  e
 *De borg wordt per direct ingehouden als men zich **niet** aan deze afspraken houdt, als er een **zooitje** van wordt gemaakt, of als er schade of vlekken gemaakt zijn, etc. Ook dient men ervoor te zorgen dat er **geen overlast** voor de omgeving veroorzaakt wordt, dus geen harde muziek enz.) 
 
 3) De toegestane maximum snelheid is **6 km/uur**, dat is echt  **heel** rustig (wandelsnelheid). 
-Dat geldt **overal** bij ons,  **óók** als het anders aangegeven staat. We krijgen een melding als er te hard gevaren wordt.
+Dat geldt **overal** bij ons,  **óók** als het anders aangegeven staat. 
 
 -Het is **belangrijk** je aan de max snelheid van 6 km/uur te houden, Het is ook om beschadiging aan de natuur, de oevers, andere boten én een boete te voorkomen.
 
