@@ -35,6 +35,6 @@ Bij uitstappen daarom de sloep **uitzetten** met de sleutel.
 14) Als het slecht weer is kan de vaartocht **in overleg met ons op de dag zelf ** kosteloos verplaatst of geannuleerd worden; 
 let wel:
 
-Indien wij daar speciaal naar het vertrekpunt komen en er wordt beslist niet te varen, dan rekenen we de gemaakte kosten. Het kan het hele dagdeel zijn of service kosten, dit voor ons om te bepalen.
+Indien wij daar speciaal naar het vertrekpunt komen en er de vaartocht gaat niet door, dan rekenen we de gemaakte kosten. Het kan het hele dagdeel zijn of service kosten, dit voor ons om te bepalen.
 
 15) Als de reservering gemaakt is gaat de huurder **akkoord** met **al deze voorwaarden.**
