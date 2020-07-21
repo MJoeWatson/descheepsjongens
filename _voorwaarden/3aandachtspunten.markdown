@@ -11,7 +11,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 4) **Hond** Kosten: **€ 10,- extra.** De hond mag niet op de kussens ed., maar op een eigen kleedje. 
 
-5) De kappen zijn netjes naar beneden gevouwen, **graag zo houden.**  * Alleen bij regen eventueel te gebruiken. - De kap moet altijd **binnenboord** opgevouwen zijn (i.v.m. beschadigen)
+5) De kappen zijn netjes naar beneden gevouwen, **graag zo houden.**  * Alleen bij hevige regen eventueel te gebruiken. - De kap moet altijd **binnenboord** opgevouwen zijn (i.v.m. beschadigen)
 
  *  Met zon is het net zo warm onder de kap,  je hebt weinig zicht,  sommige bruggen kan je zo **niet** onderdoor, dus beter zo te laten
 
