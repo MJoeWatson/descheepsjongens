@@ -5,7 +5,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 De Scheepsjongens zijn **niet aansprakelijk** voor geleden schade van de huurder;  het zij persoonlijk letsel of materiële schade, opgelopen in de verhuurperiode. Check  evt. bij je eigen verzekering of  je dit **goed** geregeld hebt.  
  
-1) De sloep wordt in de **zelfde staat** terug gebracht als dat deze bij aanvang was. 
+1) De sloep wordt in de **zelfde staat** terug gebracht als dat deze bij aanvang was. **Controleer** dit bij vertrek, kijk ook hoe het **in** de boot is, zo schoon willen we m ook weer terug :) Wij willen de eindschoonmaak op ons nemen , dat wordt dan verrekend met de borg.
 
 2) Als de sloep in huurperiode ergens **tegenaan** gekomen is of andere bijzonderheden of **schade** moet dit **ALTIJD gemeld** worden.
 Als er **rustig** gevaren wordt en goed **opgepast** wordt in de buurt van **kades, sluizen en bruggen** kun je schade meestal voorkomen. **Remmen is hendel achteruit**. Met de afzetstok kun je schades helpen voorkomen.
@@ -21,7 +21,7 @@ Grotere schade gaat via de verzekering, Het eigen risico bedrag is €350,-
 6) Nader kanten heel **voorzichtig** en zorg daarom dat bij aanmeren altijd de **stootwillen** tussen wal en t schip hangen ! gebruik de **haakstok**.
 
 7) **Pas op met roken** in de boot (ivm brandgaatjes) en scherpe voorwerpen in en aan kleding;
-en **zonnebrand crème** maakt **akelige vlekken** op de kussens die er niet meer uit gaan, dus pas op! Neem hiervoor een **handdoek** mee om op te zitten.
+en **zonnebrand crème** maakt **akelige vlekken** op de kussens die er niet meer uit gaan, dit kan extra kosten met zich meebrenegn. Neem hiervoor een **handdoek** mee om op te zitten.
 
  **Lenen is gratis :)**
 Bij verlies worden de volgende kosten van de borg ingehouden:
