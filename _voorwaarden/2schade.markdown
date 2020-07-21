@@ -7,7 +7,7 @@ De Scheepsjongens zijn **niet aansprakelijk** voor geleden schade van de huurder
  
 1) De sloep wordt in de **zelfde staat** terug gebracht als dat deze bij aanvang was. 
 
-2) Als de sloep in huurperiode ergens **tegenaan** gekomen is of andere bijzonderheden of schade moet dit **ALTIJD gemeld** worden.
+2) Als de sloep in huurperiode ergens **tegenaan** gekomen is of andere bijzonderheden of **schade** moet dit **ALTIJD gemeld** worden.
 Als er **rustig** gevaren wordt en goed **opgepast** wordt in de buurt van **kades, sluizen en bruggen** kun je schade meestal voorkomen. **Remmen is hendel achteruit**. Met de afzetstok kun je schades helpen voorkomen.
 
 3) In sluizen de sloep **niet vastbinden**; Niet samen met een andere boot onder een brug i.v.m. golfslag.
