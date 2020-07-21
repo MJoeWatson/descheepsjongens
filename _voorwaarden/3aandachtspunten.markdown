@@ -7,7 +7,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 2) De huurder moet er voor zorg dragen dat er **géén afval** in de natuur terecht komt.  ~Afval zelf mee naar huis nemen.
 
-3) De sloep a.u.b. netjes achter laten: Een doekje en stoffer en blik en een doekje zijn beschikbaar bij terugkomst.  **Wij** willen het voor je doen,  dan wordt **€ 10,- **verrekend met de **borg.**
+3) De sloep a.u.b. netjes achter laten: Een doekje en stoffer en blik en een doekje zijn beschikbaar bij terugkomst.  **Wij** willen het voor je doen,  dan wordt  vanaf **€ 10,- **verrekend met de **borg.**
 
 4) **Hond** liever niet, maar in overleg eventueel mogelijk. Kosten: **€ 10,- extra.** De hond mag niet op de kussens, en op een eigen kleedje. 
 
@@ -28,8 +28,7 @@ Bij uitstappen daarom de sloep **uitzetten** met de sleutel.
 
 11) We onderhouden de sloepen goed en het gebeurd niet vaak, maar een technische storing of **pech** **kán** voorkomen, dat is overmacht. We proberen het dan uiteraard zo goed mogelijk op te lossen. We vragen dan ook jullie begrip hiervoor. 
 
-12) Niet op de rand/ punt zitten van de boot, dat is gevaarlijk.
-    ook iets achter de boot hangen is niet toegestaan.
+12) Niet op de rand/ punt en achterdek van de boot zitten of staan. Iets achter de boot hangen is **niet** toegestaan.
 
 13) Er gelden voorlopig **nieuwe extra regels** ivm het corona virus die te lezen zijn bij nieuws / maatregelen mbt het corona virus / **corona update**. Indien wij als onderneming een boete krijgen omdat er ondanks onze regels iets niet wordt nageleefd wordt dit verhaald op de huurder.
 
