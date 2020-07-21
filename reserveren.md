@@ -9,7 +9,8 @@ buitenboordsoldout: '08/05/2020'
 layout: reserveren
 ---
 
-Voor je reserveert, lees **éérst** de voorwaarden en reglementen* goed door, we hebben ook namelijk een aantal nieuwe voorwaarden!
+Voor je reserveert, lees **éérst** de voorwaarden en reglementen goed door,   
+we hebben ook namelijk een aantal nieuwe voorwaarden!
 
 [Klik **hier** voor de voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
