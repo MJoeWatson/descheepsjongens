@@ -15,7 +15,7 @@ Lees **ook** de actuele -extra- maatregelen i.v.m. het Corona virus onder het ko
 Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.     
  
 2) De bestuurder mag **niet onder invloed** van alcohol of andere verdovende middelen in onze sloepen varen.
-Overmatig (door ons te bepalen) **alcoholgebruik** wordt **NIET toegestaan**,  er wordt op gecontroleerd!   ~Het is **niet** toegestaan om veel drank in onze sloepen mee te nemen/ergens anders in te laden.~
+Overmatig (door ons te bepalen) **alcoholgebruik** wordt **NIET toegestaan**,  er wordt op gecontroleerd!   ~Het is **niet** toegestaan om veel drank in onze sloepen mee te nemen/ergens anders in te laden.*~
 
 *De borg wordt per direct ingehouden als men zich **niet** aan deze afspraken houdt, als er een **zooitje** van wordt gemaakt, of als er schade of vlekken gemaakt zijn, etc. Ook dient men ervoor te zorgen dat er **geen overlast** voor de omgeving veroorzaakt wordt, dus geen harde muziek enz.) 
 
