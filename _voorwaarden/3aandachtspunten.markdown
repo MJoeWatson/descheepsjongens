@@ -3,7 +3,7 @@ title: 3. Aandachtspunten
 date: 2020-03-18 12:25:00 +01:00
 ---
 
-1) Pas op voor zwemmers en de hengels van vissers! ze zijn soms moeilijk te zien in het water. houdt afstand! 
+1) Pas op voor **zwemmers** en de **hengels** van vissers! ze zijn soms moeilijk te zien in het water. **houdt afstand!** 
 
 2) De huurder moet er voor zorg dragen dat er **géén afval** in de natuur terecht komt.  ~Afval zelf mee naar huis nemen.
 
@@ -26,15 +26,13 @@ In de sluis de sloep niet vast binden maar laten vieren.
  
 Niet samen met een andere boot onder een brug i.v.m. golfslag/hoofd stoten.
 
-9) Er wordt  bij sluizen en bruggen vaak een paar euro **tol **gevraagd en bij de Nieuwkoopse plassen een bijdrage voor natuurbeheer.
+9) Er wordt  bij sluizen en bruggen vaak een paar euro **tol** gevraagd en bij de Nieuwkoopse plassen een bijdrage voor natuurbeheer.
 
 10) We onderhouden de sloepen goed en het gebeurd niet vaak, maar een technische storing of **pech** **kán** voorkomen, dat is overmacht. We proberen het dan uiteraard zo goed mogelijk op te lossen. We vragen dan ook jullie begrip hiervoor. 
 
-11) Niet op de rand/ punt en achterdek van de boot zitten of staan. Iets achter de boot hangen is **niet** toegestaan.
+11) Er gelden voorlopig **nieuwe extra regels** ivm het corona virus die te lezen zijn bij nieuws / maatregelen mbt het corona virus / **corona update**. Indien wij als onderneming een boete krijgen omdat er ondanks onze regels iets niet wordt nageleefd wordt dit verhaald op de huurder.
 
-12) Er gelden voorlopig **nieuwe extra regels** ivm het corona virus die te lezen zijn bij nieuws / maatregelen mbt het corona virus / **corona update**. Indien wij als onderneming een boete krijgen omdat er ondanks onze regels iets niet wordt nageleefd wordt dit verhaald op de huurder.
-
-13) Als het slecht weer is kan de vaartocht **in overleg met ons op de dag zelf ** kosteloos verplaatst of geannuleerd worden; 
+13) Als het slecht weer is kan de vaartocht **in overleg met ons op de dag zelf** kosteloos verplaatst of geannuleerd worden; 
 let wel:
 
 Indien wij daar speciaal naar het vertrekpunt komen en er de vaartocht gaat niet door, dan rekenen we de gemaakte kosten. Het kan het hele dagdeel zijn of service kosten, dit voor ons om te bepalen.
