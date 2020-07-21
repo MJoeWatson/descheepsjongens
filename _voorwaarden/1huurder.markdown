@@ -38,6 +38,6 @@ Als er reden is jullie te bellen zullen we dit doen, zorg dat je bij ons het **g
 
 ...en weer**terug gebracht 
 
- Als de sloep verhuurd is wordt het hele volgende dagdeel in rekening gebracht,
+ Als de sloep daarna verhuurd is wordt het hele volgende dagdeel in rekening gebracht,
 Bij geen volgend verhuur dan zijn de extra kosten € 10,- per 15 min.
 Langer varen kan soms, maar dit in overleg van tevoren.
