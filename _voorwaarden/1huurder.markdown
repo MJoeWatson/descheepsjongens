@@ -31,7 +31,7 @@ eventueel wordt **De borg ingehouden.** Na 4 weken bekijken we of de borg terug 
 oa. voor het geval er een boete bij ons binnenkomt.
 
 -Elke boot is uitgerust met een **GPS volg systeem.**
-Als er reden is jullie te bellen zullen we dit doen, zorg dat je bij ons het **goede** telefoon nr achterlaat en **bereikbaar** bent.
+Als er reden is jullie te bellen zullen we dit doen, zorg dat je bij ons het **goede** telefoonnummer achterlaat en **bereikbaar** bent.
 
 4) De sloep wordt op de **afgesproken tijd** - **opgehaald**
 Moeten we op je wachten dan zijn er **kosten** aan verbonden want we komen daar speciaal op tijd naar toe.*
