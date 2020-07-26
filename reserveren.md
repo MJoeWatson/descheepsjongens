@@ -18,7 +18,8 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 
 ### Beschikbaarheid:
 
-~Zaterdag 1 augustus zijn er nog Buitenboordmotor sloepen beschikbaar De stille sloepen in Woerden zijn gereserveerd~
+~Zaterdag 1 augustus zijn alle sloepen in de middag al gereserveerd, 
+In de ochtend 10.00-13.00 uur of in de avond 18.30-21.00 uur kan er nog gevaren worden; 
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
