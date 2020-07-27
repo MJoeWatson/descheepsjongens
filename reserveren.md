@@ -19,8 +19,7 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 ### Beschikbaarheid:
 
 ~vrijdag 31 juli zijn de sloepen in de middag allemaal gereserveerd, 
-Er is nog 1 optie vrij voor een halve dag van 10.00-14.30 uur met de stille sloep..
-of in de ochtend 10.00-13.00 uur of in de avond 18.30-21.00 uur~
+in de ochtend 10.00-13.00 uur of in de avond 18.30-21.00 uur kan er nog een paar uur het water op~
 
 ~Zaterdag 1 augustus zijn alle sloepen in de middag al gereserveerd, 
 In de ochtend 10.00-13.00 uur of in de avond 18.30-21.00 uur kan er nog gevaren worden; 
