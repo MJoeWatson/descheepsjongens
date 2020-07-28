@@ -18,11 +18,9 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 
 ### Beschikbaarheid:
 
-~**Vrijdag 31 juli** zijn alle sloepen in de middag uit varen;
- In de ochtend en in de avond kan er nog gereserveerd worden~
-
-~**Zaterdag 1 augustus** zijn alle sloepen in de middag al gereserveerd; 
-In de ochtend en in de avond kan er nog gereserveerd worden~
+**~Donderdag 30 juli, Vrijdag 31 juli, en Zaterdag 1 augustus** zijn alle sloepen in de middag al uit varen;
+ 
+In de ochtend en in de avond kan er nog gereserveerd worden~**
 
 ~**Zondag 2 augustus** 
 In Woerden zijn de stille sloepen wel al uit varen. maar is de Antaris (buitenboordmotorsloep) vooralsnog vrij en ook de stille sloep vanuit Harmelen is nog vrij.~
