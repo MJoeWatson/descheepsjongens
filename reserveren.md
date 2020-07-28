@@ -18,7 +18,8 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 
 ### Beschikbaarheid:
 
-~**Vrijdag 31 juli** zijn alle sloepen in de middag uit varen 
+~**Vrijdag 31 juli** zijn alle sloepen in de middag uit varen.
+ 
 In de ochtend en in de avond kan er nog gereserveerd worden~
 
 ~**Zaterdag 1 augustus** zijn alle sloepen in de middag al gereserveerd, 
