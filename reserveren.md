@@ -18,8 +18,12 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 
 ### Beschikbaarheid:
 
-**~Donderdag 30 juli, Vrijdag 31 juli, en Zaterdag 1 augustus** zijn alle sloepen in de middag al uit varen;
- 
+**Donderdag 30 juli is er nog een stille sloep de hele dag vanuit harmelen vrij !**
+
+**Vrijdag 31 juli is de hele dag volgeboekt** 
+alleen de avond nog...
+
+**Zaterdag 1 augustus** zijn alle sloepen in de middag al uit varen; 
 In de ochtend en in de avond kan er nog gereserveerd worden~**
 
 ~**Zondag 2 augustus** 
