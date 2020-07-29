@@ -18,6 +18,9 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 
 ### Beschikbaarheid:
 
+**Donderdag 30 juli** is er nog 1 sloep vrij !
+of dat in in Harmelen of in Woerden is, is nog niet helemaal duidelijk, tot nader bericht.
+
 **Vrijdag 31 juli is de middag volgeboekt** 
 alleen de ochtend en de avond nog enkele sloepen vrij
 
