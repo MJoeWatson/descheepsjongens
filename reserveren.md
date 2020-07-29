@@ -18,7 +18,8 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 
 ### Beschikbaarheid:
 
-**Donderdag 30 juli is er nog een stille sloep de hele dag vanuit Harmelen vrij !**
+**Donderdag 30 juli is Woerden helemaal volgeboekt 
+maarrr ...is er nog een stille sloep de hele dag vanuit Harmelen vrij !**
 
 **Vrijdag 31 juli is de hele dag volgeboekt** 
 alleen de avond nog...
