@@ -24,8 +24,6 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 In Woerden zijn de stille sloepen wel al uit varen. maar is de Antaris (buitenboordmotorsloep) vooralsnog vrij 
 Ook de stille sloep vanuit Harmelen is nog vrij.~
 
-In de ochtend 10.00-13.00 uur kan er nog gereserveerd worden; 
-
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
 Wanneer de reservering is gemaakt sturen we je de bevestiging met de informatie die je nodig hebt, en dan verwachten we een **ontvangstbevestiging/reply terug** of alles duidelijk is; Dan is de reservering compleet.
