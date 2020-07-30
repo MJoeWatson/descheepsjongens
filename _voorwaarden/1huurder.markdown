@@ -12,7 +12,7 @@ Voor de veiligheid van onze gasten én omgeving en zodat iedereen zoveel mogelij
 Lees **ook** de actuele -extra- maatregelen i.v.m. het Corona virus onder het kopje "Nieuws"
 
 1. De huurder moet minimaal **24 jaar** zijn.
-   Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.
+Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.
 
 2. De bestuurder mag niet onder invloed van alcohol of andere verdovende middelen in onze sloepen varen. overmatig alcohol in onze sloepen wordt sowieso niet toegestaan,(door ons te bepalen). Dus ook niet ergens anders drank in laden.... Er wordt op gecontroleerd.
 
