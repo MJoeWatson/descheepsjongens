@@ -18,7 +18,7 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 
 ### Beschikbaarheid:
 
-**Vrijdag 31 juli en Zaterdag 1 augustus** zijn er geen sloepen meer vrij !
+**Vrijdag 31 juli en Zaterdag 1 augustus** zijn er geen sloepen meer vrij.
 
 ~**Zondag 2 augustus** 
 In Woerden zijn de stille sloepen wel al uit varen. maar is de Antaris (buitenboordmotorsloep) vooralsnog vrij 
