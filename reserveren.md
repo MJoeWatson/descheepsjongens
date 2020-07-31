@@ -22,9 +22,10 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 zijn er geen sloepen meer beschikbaar.
 
 **Zondag 2 augustus** 
-In Woerden zijn de  sloepen al uit varen. maar is de Antaris (buitenboordmotorsloep) vooralsnog vrij 
-Ook de stille sloep vanuit Harmelen is nog vrij.~
+In de ochtend zijn er nog sloepen vrij
+in de middag is vooralsnog alles uit varen... 
 
+ 
 **Zaterdag 8 augustus** 
 zijn in de middag alle sloepen al gereserveerd.
 
