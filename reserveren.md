@@ -25,9 +25,12 @@ zijn er geen sloepen meer beschikbaar.
 In de ochtend zijn er nog sloepen vrij
 in de middag is vooralsnog alles uit varen... 
 
- 
 **Zaterdag 8 augustus** 
 zijn in de middag alle sloepen al gereserveerd.
+
+**zondag 9 augustus** zijn de sloepen vooralsnog ook allemaal gereserveerd in de middag 
+
+als er wat veranderd melden we het hier.
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
