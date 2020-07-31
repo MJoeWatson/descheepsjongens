@@ -18,9 +18,6 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 
 ### Beschikbaarheid:
 
-
- 
-
 **vrijdag 31 juli  en Zaterdag 1 augustus** zijn er geen sloepen meer beschikbaar.
 
 ~**Zondag 2 augustus** 
