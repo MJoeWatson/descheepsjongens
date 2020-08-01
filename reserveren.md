@@ -18,12 +18,13 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 
 ### Beschikbaarheid: update 
 
-**Zaterdag 1 augustus **
-is alles uit varen 
 
 **Zondag 2 augustus** 
 In de ochtend zijn er nog sloepen vrij
 en in de middag is er een sloepje vrij gekomen..
+
+**Zaterdag 6 augustus** 
+zijn in de middag alle sloepen al gereserveerd.
 
 **Zaterdag 8 augustus** 
 zijn in de middag alle sloepen al gereserveerd.
