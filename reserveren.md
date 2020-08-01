@@ -40,6 +40,7 @@ middag: vol
 avond: vrij
 
 **Zondag 9 augustus:**
+
 ochtend: vrij 
 
 middag: vol 
