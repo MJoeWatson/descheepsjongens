@@ -18,28 +18,28 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 
 ### Beschikbaarheid: update 
 
-Zondag 2 augustus:
+**Zondag 2 augustus:**
 ochtend: vrij
 middag: 1 vrij
 avond: vrij
 (kan dus hele dag)
 
-Donderdag 6 augustus:
+**Donderdag 6 augustus:**
 ochtend: vrij
 middag: vol
 avond: vrij
 
-Vrijdag 7 augustus:
+**Vrijdag 7 augustus:**
 ochtend: vrij
 middag: vol in Woerden, 1 vrij in Harmelen
 avond: vrij
 
-Zaterdag 8 augustus:
+**Zaterdag 8 augustus:**
 ochtend: vrij
 middag: vol
 avond: vrij
 
-Zondag 9 augustus:
+**Zondag 9 augustus:**
 ochtend: vrij
 middag: vol
 avond: vrij
