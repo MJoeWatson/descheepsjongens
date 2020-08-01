@@ -19,24 +19,21 @@ Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit
 Houdt de sloep netjes, we zijn er zuinig op … Ook dient men ervoor te zorgen dat er geen overlast voor de omgeving veroorzaakt wordt, dus geen harde muziek enz.
 \(Let op De borg wordt ingehouden als men zich niet aan deze afspraken houdt)
 
-De toegestane maximum snelheid is **6 km/uur**, dat is echt **heel** rustig (wandelsnelheid).
+3.) De toegestane maximum snelheid is **6 km/uur**, dat is echt **heel** rustig (wandelsnelheid).
 Dat geldt **overal** bij ons,  **ook** als het anders aangegeven staat.
 
 -Het is **belangrijk** je aan de max snelheid van 6 km/uur te houden, Het is ook om beschadiging aan de natuur, de oevers, andere boten én een boete te voorkomen.
 
-De toegestane maximum snelheid is 6 km/uur, dat is echt heel rustig (wandelsnelheid). Dat geldt overal bij ons, ook als het anders aangegeven staat.
- -Het is belangrijk je aan de max snelheid van 6 km/uur te houden, Het is ook om beschadiging aan de natuur, de oevers, andere boten én een boete te voorkomen.
-
 * Elektrische sloepen:  Als je harder dan 6 km/u gaat trek je de accu leeg.
 
-* Buitenboordmotor sloepen:  Bij te hard varen wordt  €10,- in rekening gebracht voor de extra  benzine.
-  en in bepaalde gevallen wordt de borg ingehouden. ( i.v.m. te verwachten kosten/boetes)
+* Buitenboordmotor sloepen:  Bij te hard varen wordt €10,- in rekening gebracht voor de extra benzine.
+In bepaalde gevallen wordt de borg ingehouden. ( i.v.m. te verwachten kosten/boetes)
 
-Elke boot is uitgerust met een GPS volg systeem. Zorg dat je bij ons het goede telefoon nr achterlaat en bereikbaar bent.
+Elke boot is uitgerust met een GPS volg systeem. Zorg dat je bij ons het **goede **telefoon nummer achterlaat en **bereikbaar** bent.
 
-De sloep wordt op de afgesproken tijd opgehaald en weer teruggebracht.
+4.) De sloep wordt op de **afgesproken tijd** opgehaald en weer teruggebracht.
 
-Moeten we op je wachten dan zijn er kosten aan verbonden want we komen daar nl. speciaal op tijd naar toe.\*
+Moeten we op je wachten dan zijn er kosten aan verbonden want we zijn speciaal op tijd naar toe.
 
 Als de sloep naderhand verhuurd is wordt het volgende dagdeel in rekening gebracht,
 Bij geen volgend verhuur dan zijn de extra kosten € 10,- per 15 min.
