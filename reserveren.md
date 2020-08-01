@@ -23,7 +23,7 @@ is alles uit varen
 
 **Zondag 2 augustus** 
 In de ochtend zijn er nog sloepen vrij
-in de middag is vooralsnog alles uit varen... 
+en in de middag is er een sloepje vrij gekomen..
 
 **Zaterdag 8 augustus** 
 zijn in de middag alle sloepen al gereserveerd.
