@@ -30,8 +30,8 @@ Niet samen met een andere boot onder een brug i.v.m. golfslag/hoofd stoten.
 
 9) Er wordt  bij sluizen en bruggen vaak een paar euro **tol** gevraagd en bij de Nieuwkoopse plassen een bijdrage voor natuurbeheer.
 
-10) We onderhouden de sloepen goed en het gebeurd niet vaak, maar een technische storing of **pech** **kán** voorkomen, dat is overmacht. We proberen het dan uiteraard zo goed mogelijk op te lossen. We vragen dan ook jullie begrip hiervoor. 
--Als er een sloep voortijdig niet inzetbaar blijkt, dan zullen we de laatst geboekte reservering helaas moeten cancelen.
+10) We onderhouden de sloepen goed en het gebeurd niet vaak, maar een technische storing of **pech** **kán** voorkomen, dat is overmacht. We proberen het dan uiteraard zo goed mogelijk op te lossen. We vragen dan ook jullie **begrip** hiervoor. 
+-Als er een sloep niet inzetbaar blijkt, dan zullen we degene van desbetreffende sloep, of indien mogelijk, de laatst geboekte reservering helaas moeten cancelen.
 
 11) Er gelden voorlopig **nieuwe extra regels** ivm het corona virus die te lezen zijn bij nieuws / maatregelen mbt het corona virus / **corona update**. Indien wij als onderneming een boete krijgen omdat er ondanks onze regels iets niet wordt nageleefd wordt dit verhaald op de huurder.
 
