@@ -16,10 +16,11 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 
 *Als de reservering is gemaakt gaat u akkoord met onze voorwaarden.
 
-### Beschikbaarheid:
+### Beschikbaarheid: update 
 
 **Zaterdag 1 augustus **
-zijn er geen sloepen meer beschikbaar.
+**Er is een sloep in harmelen vrij gekomen ...**
+wie het eerst is kan vanmiddag varen 13.30-18.00 uur+ 
 
 **Zondag 2 augustus** 
 In de ochtend zijn er nog sloepen vrij
