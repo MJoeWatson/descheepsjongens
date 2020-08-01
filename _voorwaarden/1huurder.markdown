@@ -33,7 +33,7 @@ Elke boot is uitgerust met een GPS volg systeem. Zorg dat je bij ons het **goede
 
 4.) De sloep wordt op de **afgesproken tijd** opgehaald en weer teruggebracht.
 
-Moeten we op je wachten dan zijn er kosten aan verbonden want we zijn speciaal op tijd naar toe.
+Moeten we op je **wachten** dan zijn er **kosten** aan verbonden want we zijn speciaal op tijd naar toe.
 
 Als de sloep naderhand verhuurd is wordt het volgende dagdeel in rekening gebracht,
 Bij geen volgend verhuur dan zijn de extra kosten € 10,- per 15 min.
