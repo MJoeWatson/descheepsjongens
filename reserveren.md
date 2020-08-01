@@ -24,7 +24,7 @@ Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hie
 
 ochtend: vrij
 
-middag: 1 vrij
+middag: vol
 
 avond: vrij
 
