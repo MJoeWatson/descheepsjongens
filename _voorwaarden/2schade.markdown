@@ -7,7 +7,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 Eventuele **schade** aan de sloep, kussenset, kap .ed. of aan derden wordt **verhaald op de huurder**. 
 Kleine beschadigingen worden van de borg ingehouden.
-Grotere schade gaat via de verzekering, Het eigen risico bedrag wat de huurder dan betaald is max. €350,-
+Grotere schade gaat via de verzekering, Het eigen risico bedrag wat de huurder dan betaald is €350,-
 Bij je eigen verzekering kun je nagaan of je hiervoor ook verzekerd bent.
 
 2) De sloep wordt in de **zelfde staat** terug gebracht als dat deze bij aanvang was. **Controleer** dit bij vertrek.Kijk ook hoe de binnen en buitenkant van de boot is, zo willen we 'm ook weer terug:) 
