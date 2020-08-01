@@ -7,19 +7,19 @@ Voor de veiligheid van onze gasten én omgeving en zodat iedereen zoveel mogelij
 
 ### Belangrijke -ook wat nieuwe- regels:
 
-\~Als je de reservering maakt ga je akkoord met al deze voorwaarden, dus lees ze goed.\~
+~Als je de reservering maakt ga je akkoord met al deze voorwaarden, dus lees ze goed.~
 
 Lees **ook** de actuele -extra- maatregelen i.v.m. het Corona virus onder het kopje "Nieuws"
 
 1.) De huurder moet minimaal **24 jaar** zijn.
 Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.
 
-2.) De bestuurder mag niet onder invloed van alcohol of andere verdovende middelen in onze sloepen varen. overmatig alcohol in onze sloepen wordt sowieso niet toegestaan,(door ons te bepalen). Dus ook niet ergens anders drank in laden.... Er wordt op gecontroleerd.
+2.) De bestuurder mag **niet** **onder invloed** van alcohol of andere verdovende middelen in onze sloepen **varen**. overmatig alcohol in onze sloepen wordt sowieso **niet** toegestaan,(door ons te bepalen). Dus ook **niet** ergens anders drank in laden.... Er wordt op gecontroleerd.
 
-Houdt de sloep netjes, we zijn er zuinig op … Ook dient men ervoor te zorgen dat er geen overlast voor de omgeving veroorzaakt wordt, dus geen harde muziek enz.
-\(Let op De borg wordt ingehouden als men zich niet aan deze afspraken houdt)
+Houdt de **sloep netjes**, we zijn er **zuinig** op … Ook dient men ervoor te zorgen dat er **geen overlast** voor de **omgeving ** veroorzaakt wordt, dus geen harde muziek enz.
+Let op, De borg wordt ingehouden als men zich niet aan deze afspraken houdt)
 
-3.) De toegestane maximum snelheid is **6 km/uur**, dat is echt **heel** rustig (wandelsnelheid).
+3.) De toegestane **maximum** snelheid is **6 km/uur**, dat is echt **heel** rustig (wandelsnelheid).
 Dat geldt **overal** bij ons,  **ook** als het anders aangegeven staat.
 
 -Het is **belangrijk** je aan de max snelheid van 6 km/uur te houden, Het is ook om beschadiging aan de natuur, de oevers, andere boten én een boete te voorkomen.
