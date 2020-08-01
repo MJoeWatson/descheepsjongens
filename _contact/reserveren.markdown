@@ -24,7 +24,8 @@ date: 2020-03-18 12:25:00 +01:00
 1. Rekening nr:  NL85 INGB 0001797258  
 2. tnv. De Scheepsjongens 
 
-             
+**Bij betalingen vermelden: de datum van de vaardag , reserveringsnaam en of het de borg en/of huur is)** 
+          
 Postadres: 
  utrechtsestraatweg 4
  3481LA Harmelen
