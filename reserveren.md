@@ -23,7 +23,7 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 In de ochtend zijn er nog sloepen vrij
 en in de middag is er een sloepje vrij gekomen..
 
-**Zaterdag 6 augustus** 
+**donderdag 6 augustus** 
 zijn in de middag alle sloepen al gereserveerd.
 
 **Zaterdag 8 augustus** 
