@@ -29,6 +29,7 @@ avond: vrij
 (kan dus hele dag)
 
 **Donderdag 6 augustus:**
+
 ochtend: vrij
 
 middag: vol
