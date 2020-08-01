@@ -18,26 +18,31 @@ we hebben ook namelijk een aantal nieuwe voorwaarden!
 
 ### Beschikbaarheid: update 
 
-**Zondag 2 augustus** 
-In de middag is er een sloep de hele dag vrij gekomen,
-ochtend en avond is nog vrij
+Zondag 2 augustus:
+ochtend: vrij
+middag: 1 vrij
+avond: vrij
+(kan dus hele dag)
 
-**donderdag 6 augustus** 
-In de middag zijn alle sloepen al gereserveerd.
-In de ochtend en avond nog sloepen vrij.
+Donderdag 6 augustus:
+ochtend: vrij
+middag: vol
+avond: vrij
 
-**vrijdag 7 augustus** 
-In de middag zijn alle sloepen in Woerden al gereserveerd
-In de ochtend en avond nog sloepen vrij.
+Vrijdag 7 augustus:
+ochtend: vrij
+middag: vol in Woerden, 1 vrij in Harmelen
+avond: vrij
 
-In Harmelen is er nog 1 vrij overdag
+Zaterdag 8 augustus:
+ochtend: vrij
+middag: vol
+avond: vrij
 
-**Zaterdag 8 augustus** 
-zijn in de middag alle sloepen al gereserveerd.
-In de ochtend en avond nog sloepen vrij.
-
-**zondag 9 augustus** zijn de sloepen ook allemaal gereserveerd in de middag 
-In de ochtend en avond nog sloepen vrij.
+Zondag 9 augustus:
+ochtend: vrij
+middag: vol
+avond: vrij
 
 Als er wat veranderd melden we het hier.
 
