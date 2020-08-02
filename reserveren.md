@@ -26,7 +26,7 @@ ochtend: vrij
 
 middag: vol
 
-avond: vrij
+avond: gesloten
 
 (kan dus hele dag)
 
@@ -43,7 +43,7 @@ avond: vrij
 
 ochtend: vrij
 
-middag: vol in Woerden, 1 vrij in Harmelen
+middag: vol 
 
 avond: vrij
 
