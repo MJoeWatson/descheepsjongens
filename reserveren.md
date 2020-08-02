@@ -33,7 +33,9 @@ avond: gesloten
 **woensdag 5 augustus** 
 
 ochtend: vrij
-Middag: afwijkende tijd tot 15.30 uur vrij
+
+Middag: ws vol 
+
 avond: vrij 
 
 **Donderdag 6 augustus:**
