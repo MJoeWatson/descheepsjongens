@@ -49,7 +49,7 @@ avond: vrij
 
 **Vrijdag 7 augustus:**
 
-ochtend: vrij
+ochtend: 1 vrij in harmelen
 
 middag: vol 
 
