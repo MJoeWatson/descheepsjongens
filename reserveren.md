@@ -30,17 +30,18 @@ avond: gesloten
 
 **Maandag 3 , dinsdag 4 augustus ** nog sloepen beschikbaar :)
 
+
 **woensdag 5 augustus** 
 
-ochtend: vrij
+ochtend: vrij/ en ook 1 sloep vrij tot 15.30 uur (evt van 10.00-15.30 uur €125,-)
 
-Middag: ws al vol 
+Middag: vol  ( na 15.30)
 
 avond: vrij 
 
 **Donderdag 6 augustus:**
 
-ochtend: vrij
+ochtend: Woerden vrij / Harmelen vol
 
 middag: vol
 
