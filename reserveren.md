@@ -34,7 +34,7 @@ avond: gesloten
 
 ochtend: vrij
 
-Middag: ws vol 
+Middag: ws al vol 
 
 avond: vrij 
 
