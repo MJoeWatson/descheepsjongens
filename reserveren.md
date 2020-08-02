@@ -49,7 +49,7 @@ avond: vrij
 
 **Vrijdag 7 augustus:**
 
-ochtend: 1 vrij in harmelen
+ochtend: Woerden vol / 1 vrij in harmelen
 
 middag: vol 
 
@@ -57,7 +57,7 @@ avond: vrij
 
 **Zaterdag 8 augustus:**
 
-ochtend: Woerden vol /  Harmelen nog 1 vrij
+ochtend: Woerden vol /  Harmelen nog 2 vrij
 
 middag: vol
 
