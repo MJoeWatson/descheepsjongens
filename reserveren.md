@@ -57,7 +57,7 @@ avond: vrij
 
 **Zaterdag 8 augustus:**
 
-ochtend: vrij
+ochtend: Woerden vol /  Harmelen nog 1 vrij
 
 middag: vol
 
