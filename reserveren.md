@@ -28,7 +28,13 @@ middag: vol
 
 avond: gesloten
 
-**Maandag 3 , dinsdag 4, en woensdag 5** augustus  nog sloepen beschikbaar :)
+**Maandag 3 , dinsdag 4 augustus ** nog sloepen beschikbaar :)
+
+**woensdag 5 augustus** 
+
+ochtend: vrij
+Middag: afwijkende tijd tot 15.30 uur vrij
+avond: vrij 
 
 **Donderdag 6 augustus:**
 
