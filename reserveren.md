@@ -28,7 +28,7 @@ middag: vol
 
 avond: gesloten
 
-(kan dus hele dag)
+Maandag 3 , dinsdag 4, en woensdag 5 augustus  nog sloepen beschikbaar :)
 
 **Donderdag 6 augustus:**
 
