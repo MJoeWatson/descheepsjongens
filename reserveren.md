@@ -22,7 +22,7 @@ Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hie
 
 
 **Maandag 3 , dinsdag 4 augustus ** nog sloepen beschikbaar :)
-
+en op dagen die niet vermeld staan, zijn ook nog de sloepen vrij.
 
 **woensdag 5 augustus** 
 
