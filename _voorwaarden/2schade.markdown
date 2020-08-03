@@ -14,7 +14,9 @@ Bij je eigen verzekering kun je nagaan of je hiervoor ook verzekerd bent.
 
 Schoonmaakspullen zijn beschikbaar bij terugkomst.  **Wij** willen het voor je doen, dan wordt **€ 10,- **verrekend met de **borg.**
 
-Bij aanvang wordt € 150,- borg en €10,- schoonmaakborg extra betaald, dat als de sloep **onbeschadigd en netjes** terug gebracht is weer **terug** ontvangen wordt.
+Bij aanvang wordt € 150,- borg en €10,- schoonmaakborg extra betaald, dat als de sloep **onbeschadigd en netjes** terug gebracht is weer **terug** ontvangen wordt. 
+We storten de borg dezelfde avond of iig binnen enkele dagen terug, kijk dit even na op uw bank ter controle,
+mocht het langer dan een week duren, neem aub even contact met ons op, dan is er misschien is misgegaan.
 
 3) Als de sloep in huurperiode ergens **tegenaan** gekomen is of andere bijzonderheden of **schade** moet dit **ALTIJD gemeld** worden.
 Als er **rustig** gevaren wordt en goed **opgepast** wordt in de buurt van **kades, sluizen en bruggen** kun je schade meestal voorkomen. Met de afzetstok kun je schades helpen voorkomen.
