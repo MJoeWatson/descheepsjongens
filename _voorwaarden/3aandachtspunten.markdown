@@ -3,6 +3,18 @@ title: 3. en verdere aandachtspunten...
 date: 2020-03-18 12:25:00 +01:00
 ---
 
+Bij ons op het water gelden uiteraard ook de algemene landelijke vaarregels;
+
+Als er geen andere boot in de buurt is, kun je het beste **in het midden **varen, dit i.v.m. de soms **ondiepe kanten** en de vele planten waarin je vast kan komen te zitten, maar, als er **tegenliggers** komen **of** **een sloep wil** **passeren** moet je wat **rechts houden**. (net zoals in het normale verkeer)
+
+Vaarverkeer dat komt vanaf **Stuurboord (rechts)** heeft **voorrang. **
+
+Geef **grote boten voorrang**, maar ook roeibootjes, kano's suppers en zwemmers geef je voorrang want **spierkracht gaat voor motorboot**.
+
+en ook hier geldt altijd, **voorrang** moet je krijgen, **niet nemen**..
+
+Kinderen **zonder zwemdiploma** moeten een **zwemvest** dragen.
+
 1) Pas op voor **zwemmers** en de **hengels** van vissers! ze zijn soms moeilijk te zien in het water. **houdt afstand!** 
 
 2) **géén afval** in de natuur.  ~Afval zelf mee naar huis nemen.
