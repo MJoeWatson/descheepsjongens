@@ -20,13 +20,6 @@ Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hie
 
 ### Beschikbaarheid: update 
 
-**Zondag 2 augustus:**
-
-ochtend: vrij
-
-middag: vol
-
-avond: gesloten
 
 **Maandag 3 , dinsdag 4 augustus ** nog sloepen beschikbaar :)
 
@@ -66,7 +59,7 @@ avond: vrij
 
 **Zondag 9 augustus:** 
 
-ochtend: vrij 
+ochtend: 1 vrij in Woerden / Harmelen vol
 
 middag: vol 
 
