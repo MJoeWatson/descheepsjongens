@@ -33,9 +33,9 @@ avond: gesloten
 
 **woensdag 5 augustus** 
 
-ochtend: vrij/ en ook 1 sloep vrij tot 15.30 uur (evt van 10.00-15.30 uur €125,-)
+ochtend: vrij
 
-Middag: vol  ( na 15.30)
+Middag: vol  
 
 avond: vrij 
 
