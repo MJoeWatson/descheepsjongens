@@ -59,7 +59,7 @@ avond: vrij
 
 **Zondag 9 augustus:** 
 
-ochtend: 1 vrij in Woerden / Harmelen vol
+ochtend: vol
 
 middag: vol 
 
