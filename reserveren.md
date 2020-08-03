@@ -41,7 +41,7 @@ avond: vrij
 
 **Donderdag 6 augustus:**
 
-ochtend: Woerden vrij / Harmelen vol
+ochtend: Woerden 1 vrij / Harmelen vol
 
 middag: vol
 
