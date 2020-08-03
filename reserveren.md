@@ -65,6 +65,11 @@ middag: vol
 
 avond: vrij
 
+**Woensdag 12 augustus**
+
+Vandaag 10.00-15.00 uur mogelijk €100,- (speciale tijd)
+
+
 Als er wat veranderd melden we het hier.
 
 Wanneer de reservering is gemaakt sturen we je de bevestiging met de informatie die je nodig hebt, en dan verwachten we een **ontvangstbevestiging/reply terug** of alles duidelijk is; Dan is de reservering compleet.
