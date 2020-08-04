@@ -12,20 +12,19 @@ layout: reserveren
 Voor je reserveert, lees **éérst** de voorwaarden en reglementen goed door,   
 we hebben ook namelijk een aantal nieuwe voorwaarden.
 
-o.a: min leeftijd 24 jaar, geen alcohol aan boord, max 6 km /uur.. 
+**o.a: min leeftijd 24 jaar, geen alcohol aan boord, max 6 km /uur**
 
 [Klik **hier** voor de voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
-*Als de reservering is gemaakt gaat u akkoord met onze voorwaarden.
+*Als de reservering is gemaakt gaat u **akkoord** met onze voorwaarden.
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
 ### Beschikbaarheid: update:
  
 
-**Op dagen die niet vermeld staan,
- zijn de sloepen alle dagdelen 
-- vooralsnog- vrij.**
+**Op dagen die niet vermeld staan
+ zijn de sloepen alle dagdelen - vooralsnog - vrij**
 
 
 **Dinsdag 4 augustus**
