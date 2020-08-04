@@ -27,7 +27,7 @@ Op dagen die niet vermeld staan, zijn de sloepen - vooralsnog- vrij.
 
 **Dinsdag 4 augustus**
 
-**Middag:**  **1 sloep (Antaris) onverwachts vrij**
+**Middag:**  -
 
 **woensdag 5 augustus** 
 
@@ -72,7 +72,6 @@ avond: vrij
 
 **Woensdag 12 augustus**
 
-Vandaag 10.00-15.00 uur mogelijk €100,- (1 x speciale tijd)
 
 
 Als er wat veranderd melden we het hier.
