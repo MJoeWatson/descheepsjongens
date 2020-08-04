@@ -25,7 +25,7 @@ Op dagen die niet vermeld staan, zijn de sloepen - vooralsnog- vrij.
 
 **Dinsdag 4 augustus**
 
-**Middag:**  **1 sloep (Antaris) onverwachts vrij! wie het eerst is ...  **
+**Middag:**  **1 sloep (Antaris) onverwachts vrij.. wie het eerst is ...  **
 
 **woensdag 5 augustus** 
 
