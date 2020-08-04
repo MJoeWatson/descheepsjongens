@@ -10,7 +10,9 @@ layout: reserveren
 ---
 
 Voor je reserveert, lees **éérst** de voorwaarden en reglementen goed door,   
-we hebben ook namelijk een aantal nieuwe voorwaarden!
+we hebben ook namelijk een aantal nieuwe voorwaarden.
+
+let op  Alleen boven de 24 jaar, geen alcohol aan boord, max 6 km /uur...
 
 [Klik **hier** voor de voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
