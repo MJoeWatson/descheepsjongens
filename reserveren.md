@@ -22,6 +22,7 @@ Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hie
 
 Op dagen die niet vermeld staan, zijn de sloepen - vooralsnog- vrij.
 
+
 **Dinsdag 4 augustus**
 
 Middag:  vol
@@ -30,7 +31,7 @@ Middag:  vol
 
 ochtend: vrij
 
-Middag: vol  
+Middag: vol/ alleen 1 sloep vrij van 16.00-21.00 uur €110,- 
 
 avond: vrij 
 
