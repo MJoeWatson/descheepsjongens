@@ -70,7 +70,7 @@ avond: vrij
 
 **Woensdag 12 augustus**
 
-Vandaag 10.00-15.00 uur mogelijk €100,- (speciale tijd)
+Vandaag 10.00-15.00 uur mogelijk €100,- (1 x speciale tijd)
 
 
 Als er wat veranderd melden we het hier.
