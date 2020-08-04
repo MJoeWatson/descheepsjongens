@@ -32,7 +32,7 @@ Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hie
 
 **woensdag 5 augustus** 
 
-ochtend: vrij
+ochtend: nog 1 vrij in Woerden en 1 in Harmelen 
 
 Middag: vol
 
