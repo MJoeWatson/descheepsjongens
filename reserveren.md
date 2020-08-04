@@ -22,7 +22,7 @@ Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hie
 
 Op dagen die niet vermeld staan, zijn de sloepen - vooralsnog- vrij.
 
-Dinsdag 4 augustus **
+**Dinsdag 4 augustus**
 
 Middag:  vol
 
