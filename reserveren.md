@@ -20,9 +20,10 @@ o.a: min leeftijd 24 jaar, geen alcohol aan boord, max 6 km /uur..
 
 Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
-### Beschikbaarheid: update 
+### Beschikbaarheid: update:
+ 
 
-Op dagen die niet vermeld staan, zijn de sloepen - vooralsnog- vrij.
+**Op dagen die niet vermeld staan, zijn de sloepen - vooralsnog- vrij.**
 
 
 **Dinsdag 4 augustus**
@@ -56,7 +57,7 @@ avond: vrij
 
 **Zaterdag 8 augustus:**
 
-ochtend: Woerden vol /  Harmelen nog 1 vrij
+ochtend: vol 
 
 middag: vol
 
