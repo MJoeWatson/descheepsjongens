@@ -31,7 +31,7 @@ Middag:  vol
 
 ochtend: vrij
 
-Middag: vol/ alleen 1 sloep vrij van 16.00-21.00 uur €110,- 
+Middag: vol
 
 avond: vrij 
 
