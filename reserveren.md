@@ -72,6 +72,9 @@ middag: vol
 
 avond: vrij
 
+**10 augustus  vrij
+11 augustus  vrij **
+
 **Woensdag 12 augustus**
 
 
