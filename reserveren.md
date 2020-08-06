@@ -27,17 +27,7 @@ Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hie
  zijn de sloepen alle dagdelen - vooralsnog - vrij**
 
 
-**Dinsdag 4 augustus**
-
-**Middag:**  -
-
-**woensdag 5 augustus** 
-
-ochtend: nog 1 vrij in Woerden en 1 in Harmelen 
-
-Middag: vol
-
-avond: vrij 
+**We lopen iets achter met de planning ivm onvoorziene omstandig heden, dus het duurt langer voor jullie antwoord ontvangen**
 
 **Donderdag 6 augustus:**
 
@@ -45,7 +35,7 @@ ochtend: vol
 
 middag: vol
 
-avond: vrij
+avond:vol
 
 
 **Vrijdag 7 augustus:**
@@ -54,7 +44,7 @@ ochtend: vol
 
 middag: vol 
 
-avond: vrij
+avond:vol
 
 **Zaterdag 8 augustus:**
 
@@ -62,7 +52,7 @@ ochtend: vol
 
 middag: vol
 
-avond: vrij
+avond: vol
 
 **Zondag 9 augustus:** 
 
@@ -72,11 +62,29 @@ middag: vol
 
 avond: vrij
 
-**10 augustus  vrij
-11 augustus  vrij **
+**10 augustus** 
+
+ochtend  vrij
+
+middag  vol
+
+Avond Vrij
+
+**11 augustus**
+
+ochtend vrij
+
+middag vol
+
+avond vrij
 
 **Woensdag 12 augustus**
 
+ochtend vrij
+
+middag: vol
+
+avond vrij
 
 
 Als er wat veranderd melden we het hier.
