@@ -25,6 +25,7 @@ Dat geldt **overal** bij ons,  **ook** als het anders aangegeven staat.
 -Het is **belangrijk** je aan de max snelheid van 6 km/uur te houden, Het is ook om beschadiging aan de natuur, de oevers, andere boten én een boete te voorkomen.
 
 * Elektrische sloepen:  Als je harder dan 6 km/u gaat trek je de accu leeg.
+Als het volgende dagdeel verhuur daardoor niet door kan gaan, worden deze kosten van de borg ingehouden.
 
 * Buitenboordmotor sloepen:  Bij te hard varen wordt €10,- in rekening gebracht voor de extra benzine.
 In bepaalde gevallen wordt de borg ingehouden. ( i.v.m. te verwachten kosten/boetes)
