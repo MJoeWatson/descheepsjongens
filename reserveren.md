@@ -64,7 +64,7 @@ avond: vrij
 
 **10 augustus** 
 
-ochtend  vrij
+ochtend  vol
 
 middag  vol
 
