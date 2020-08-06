@@ -89,4 +89,5 @@ avond vrij
 
 Als er wat veranderd melden we het hier.
 
-Wanneer de reservering is gemaakt sturen we je de bevestiging met de informatie die je nodig hebt, en dan verwachten we een **ontvangstbevestiging/reply terug** of alles duidelijk is; Dan is de reservering compleet.
+Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
+bij een gelukte reservering sturen we de bevestiging met de informatie die je nodig hebt, en dan verwachten we een **ontvangstbevestiging/reply terug** of alles duidelijk is; Dan is de reservering compleet.
