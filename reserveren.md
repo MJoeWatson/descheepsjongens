@@ -16,9 +16,9 @@ we hebben ook namelijk een aantal nieuwe voorwaarden.
 
 [Klik **hier** voor alle voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
-*Als de reservering is gemaakt gaat u **akkoord** met onze voorwaarden.
+*Als de reservering is gemaakt gaan we er dus vanuit dat u op de hoogte bent van de regels en gaat u **akkoord** met onze voorwaarden!
 
-Reserveer eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
+Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
 ### Beschikbaarheid: update:
  
