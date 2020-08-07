@@ -34,7 +34,7 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 ochtend: vol
 
-middag: update Er is een sloep vrij vanmiddag!
+middag: vol
 
 avond:vol
 
