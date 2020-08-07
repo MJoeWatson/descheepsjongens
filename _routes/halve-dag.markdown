@@ -4,13 +4,13 @@ date: 2020-03-18 16:02:00 +01:00
 position: 1
 ---
 
-Rondom Woerden kun je mooi varen;  Er is veel te zien en je ervaart de omgeving van een hele andere kant.
+Rondom Woerden kun je mooi varen;  Er is veel te zien en je ervaart de omgeving vanuit een heel ander perspectief.
 
 Om de stad Woerden heen varen door de singels is mooi...
 Maar een heel rondje om de stad kan helaas niet, 
 Bij de Oostdam is de brug massief en de brug bij het kasteel is te laag; Je vaart dan dus weer de andere kant op terug.
 
-We hopen dat de gemeente dit een keer mogelijk maakt want dat zou voor veel mensen en de stad in zijn geheel heel leuk zijn.
+We hopen dat de gemeente dit een keer mogelijk maakt want dat zou voor veel mensen en de stad in zijn geheel een toegevoegde waarde zijn.
 
 Let op:  In een Halve dag vaar je **tot** de sluizen en niet er doorheen! 
 
