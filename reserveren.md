@@ -52,7 +52,7 @@ ochtend: vol
 
 middag: vol 
 
-avond: vrij
+avond: vol
 
 **10 augustus** 
 
