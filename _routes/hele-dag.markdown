@@ -1,12 +1,14 @@
 ---
-title: Hele Dag
+title: Hele Dag vanuit Woerden en uit Harmelen
 date: 2020-03-18 16:02:00 +01:00
 position: 2
 ---
 
+## Vanuit Woerden : 
+
 ### Nieuwkoopse plassen
 
-#### Tijd: Rondje, 8 uur varen
+#### Tijd: Rondje, bijna 8 uur varen, (incl wachttijden bij de sluizen)
 
 **Vaarkaarten**
 
@@ -66,27 +68,26 @@ De informatie van OHWL is heel interessant bij deze route.
 2. Deze sluis draait op zelfbediening.
    Vaar de sloep tot in de sluis, volg de instructies ter plaatse,
    Druk op de knop en dan moet je **even geduld** hebben, bij te vaak drukken kan er storing ontstaan;
-   Sloep niet vastbinden  maar het touw evt laten vieren ivm stijgen/ dalen van het water; je kan de haakstok gebruiken. en houd handen binnenboord!
+   Sloep niet vastbinden  maar het touw evt laten vieren ivm stijgen/ dalen van het water; je kan de haakstok gebruiken. en houd handen binnenboord! Op je beurt wachten en volg de instructies ter plaatse.
 
 Sluis Montfoort wordt bediend,
-Je kan het nr bellen dat op het bord staat kost een paar euro.
+Je kan het nr bellen dat op het bord staat kost €3,- euro.
 
 **Beschrijving:**
 
 Populaire en leuke route langs Historische dorpen / stadjes, Linschoten, Montfoort en Oudewater.
 
 ### Rondje Oudewater, Hekendorp , Nieuwerbrug.
-#### Tijd: Rondje, 8 uur varen
+#### Tijd: Rondje, 7,5 uur varen vanuit Woerden
 
 
 
 vaarkaart: [route Hekendorp De Scheepsjongens.pdf](/uploads/route%20Hekendorp%20De%20Scheepsjongens.pdf)
 
 
-Deze ronde is 8 vaar uren, je komt 2 x een sluis tegen en een spoorbrug op de dubbele Wiericke 
-let op :deze spoorbrug  heeft beperkte openingstijden.
-Wordt op zondag alleen geopend van 14.00-16.00 uur!
-en door de week ook op strakke tijden.
+Deze ronde is bijna 8 vaar uren, je komt 2 x een sluis tegen en een spoorbrug op de dubbele Wiericke 
+let op :deze spoorbrug  heeft beperkte openingstijden!. Door de weeks en zaterdag is 17.00 uur de laatste doorgang.
+Op zondag alleen geopend van 14.00-16.00 uur!
 
 **De Route Prins willem III van de OHWL is ook deze route, alleen daar ga je, ipv naar Gouda, nu bij Hekendop rechtsaf, de Dubbele Wiericke op, daardoor is deze hele route in 1 dag te doen.
 
@@ -96,3 +97,38 @@ Deze kan je lezen/luisteren als je deze route over Hekendorp- Nieuwerbrug vaart.
 (14,15 en 16 sla je even over met varen als je maar 1 dag gaat) 
 
 (https://oudehollandsewaterlinie.nl/routes/de-prins-willem-iii-vaarroute/)
+
+
+## Vanuit Harmelen
+
+Naar Woerden toe is het ruim een uur varen over de Oude Rijn, 
+in woerden heb je de keuze de verschillende richtingen te kiezen , halverwege de tijd keer je weer om,
+
+wat mogelijk is , 8 uur varen is
+
+
+### Linschoten, Oudewater, Montfoort
+
+#### Tijd: 8 uur varen, waarvan 15 min vrije tijd.
+
+**Vaarkaarten:**
+
+[Klik hier voor Rondje Oudewater](/uploads/rondje%20Oudewater%20-%20Montfoort.pdf)
+
+**Brug en Sluistijden:**
+
+1. Sluis Oudewater:
+
+2. Deze sluis draait op zelfbediening.
+   Vaar de sloep tot in de sluis, volg de instructies ter plaatse,
+   Druk op de knop en dan moet je **even geduld** hebben, bij te vaak drukken kan er storing ontstaan;
+   Sloep niet vastbinden  maar het touw evt laten vieren ivm stijgen/ dalen van het water; je kan de haakstok gebruiken. en houd handen binnenboord! Op je beurt wachten en volg de instructies ter plaatse.
+
+Sluis Montfoort wordt bediend,
+Je kan het nr bellen dat op het bord staat kost €3,- euro.
+
+**Beschrijving:**
+
+Populaire en leuke route langs Historische dorpen / stadjes, Linschoten, Montfoort en Oudewater.
+
+
