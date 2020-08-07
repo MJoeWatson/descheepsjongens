@@ -1,5 +1,5 @@
 ---
-title: 1 ING storing avond  7 augustus
+title: ING storing avond  7 augustus
 date: 2020-08-07 23:48:00 +02:00
 ---
 
