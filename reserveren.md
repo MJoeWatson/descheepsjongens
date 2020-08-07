@@ -12,7 +12,7 @@ layout: reserveren
 Voor je reserveert, lees **éérst** de voorwaarden en reglementen goed door,   
 we hebben ook namelijk een aantal nieuwe voorwaarden.
 
-**o.a: min leeftijd 24 jaar, geen alcohol aan boord, max 6 km /uur**
+**o.a: min leeftijd 24 jaar, geen alcohol aan boord, max 6 km /uur** etc.
 
 [Klik **hier** voor alle voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
