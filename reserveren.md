@@ -29,20 +29,12 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 **We lopen iets achter met de planning ivm onvoorziene omstandig heden, dus het duurt langer voor jullie antwoord ontvangen**
 
-**Donderdag 6 augustus:**
-
-ochtend: vol
-
-middag: vol
-
-avond:vol
-
 
 **Vrijdag 7 augustus:**
 
 ochtend: vol
 
-middag: vol 
+middag: Er is nog een sloep vrij !
 
 avond:vol
 
