@@ -1,5 +1,5 @@
 ---
-title: ING storing avond  7 augustus
+title: 1 ING storing avond  7 augustus
 date: 2020-08-07 23:48:00 +02:00
 ---
 
@@ -9,4 +9,4 @@ In verband met een storing bij de ING kan de borg vandaag niet worden teruggesto
 Morgen zal het vast opgelost zijn en kunt u de borg terug verwachten.
 
 Vriendelijke groet,
-De SCheepsjongens
+De Scheepsjongens
