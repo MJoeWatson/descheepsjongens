@@ -26,8 +26,7 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 **Op dagen die niet vermeld staan
  zijn de sloepen alle dagdelen - vooralsnog - vrij**
 
-
-**We lopen iets achter met de planning ivm onvoorziene omstandig heden, dus het duurt langer voor jullie antwoord ontvangen**
+Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvragen worden beantwoord.
 
 **Zaterdag 8 augustus:**
 
