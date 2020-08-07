@@ -29,15 +29,6 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 **We lopen iets achter met de planning ivm onvoorziene omstandig heden, dus het duurt langer voor jullie antwoord ontvangen**
 
-
-**Vrijdag 7 augustus:**
-
-ochtend: vol
-
-middag: vol
-
-avond:vol
-
 **Zaterdag 8 augustus:**
 
 ochtend: vol 
@@ -77,6 +68,16 @@ ochtend vrij
 middag: vol
 
 avond vrij
+
+**Donderdag 13, Vrijdag 14, zaterdag 15 augustus** nog een aantal sloepen vrij, vooralsnog..
+
+**Zondag 16 augustus **
+
+ochtend vrij
+
+Middag Vol
+
+Avond vrij
 
 
 Als er wat veranderd melden we het hier.
