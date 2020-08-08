@@ -38,9 +38,9 @@ avond: vol
 
 **Zondag 9 augustus:** 
 
-ochtend: vol
+ochtend: 
 
-middag: vol 
+middag: **Er is opeens nog een sloep vrij vanuit Harmelen.. alle dagdelen/ de hele dag**:)
 
 avond: vol
 
