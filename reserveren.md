@@ -54,7 +54,7 @@ Avond vol
 
 **11 augustus**
 
-ochtend vrij
+ochtend vol in Woerden/ 1 vrij in Harmelen
 
 middag vol
 
