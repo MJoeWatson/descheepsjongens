@@ -1,8 +1,16 @@
 ---
-title: Maatregelen ivm het Coronavirus
+title: Storing  ING / Maatregelen ivm het Coronavirus
 date: 2020-03-18 12:25:00 +01:00
 ---
 
+
+
+**Er is een landelijke storing bij de ING bank er wordt aan gewerkt.
+de borg wordt daardoor later terug gestort dan normaal
+ maar zo spoedig mogelijk ..**
+
+
+CORONA:
 
 We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid. 
 
