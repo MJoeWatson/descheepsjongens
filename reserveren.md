@@ -50,7 +50,7 @@ ochtend  vol
 
 middag  vol
 
-Avond Vrij
+Avond vol
 
 **11 augustus**
 
@@ -58,7 +58,7 @@ ochtend vrij
 
 middag vol
 
-avond vrij
+avond vol
 
 **Woensdag 12 augustus**
 
@@ -66,9 +66,25 @@ ochtend vrij
 
 middag: vol
 
-avond vrij
+avond gesloten
 
-**Donderdag 13, Vrijdag 14, zaterdag 15 augustus** nog een aantal sloepen vrij, vooralsnog..
+**Donderdag 13,
+
+ochtend vrij 
+
+middag vrij
+
+avond gesloten
+
+Vrijdag 14,
+
+ochtend 
+
+middag
+
+avond
+
+ zaterdag 15 augustus** nog een aantal sloepen vrij, vooralsnog..
 
 **Zondag 16 augustus **
 
