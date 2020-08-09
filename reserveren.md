@@ -63,7 +63,7 @@ avond gesloten
 
 **Donderdag 13,
 
-ochtend vrij 
+ochtend vrij
 
 middag vol
 
