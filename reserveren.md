@@ -40,7 +40,7 @@ avond: vol
 
 ochtend: 
 
-middag: **Er is opeens nog een sloep vrij in de ochtend en de avond:)
+middag:   / **1 vrij in Harmelen speciale late middag / avond tijd 17.00 uur-21.00 uur €100,-**
 
 avond: vol
 
@@ -56,8 +56,7 @@ Avond vol
 
 ochtend vol 
 
-middag vol in Woerden  / **1 vrij in Harmelen speciale late middag / avond tijd 17.00 uur-21.00 uur €100,-**
-
+middag vol 
 avond vol 
 
 **Woensdag 12 augustus**
