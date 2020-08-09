@@ -54,11 +54,11 @@ Avond vol
 
 **11 augustus**
 
-ochtend vol in Woerden/ 1 vrij in Harmelen
+ochtend vol 
 
-middag vol
+middag vol in Woerden  / **1 vrij in Harmelen speciale late middag / avond tijd 16.30 uur-21.00 uur €110,-**
 
-avond vol
+avond vol 
 
 **Woensdag 12 augustus**
 
