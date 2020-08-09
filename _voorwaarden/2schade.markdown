@@ -12,7 +12,7 @@ Bij je eigen verzekering kun je nagaan of je hiervoor ook verzekerd bent.
 
 2) De sloep wordt in de **zelfde staat** terug gebracht als dat deze bij aanvang was. **Controleer** dit bij vertrek.Kijk ook hoe de binnen en buitenkant van de boot is, zo willen we 'm ook weer terug:) 
 
-Schoonmaakspullen zijn beschikbaar bij terugkomst.  **Wij** willen het voor je doen, dan wordt **€ 10,- **verrekend met de **borg.**
+Schoonmaakspullen zijn beschikbaar bij terugkomst.  **Wij** willen het voor je doen, dan wordt **€ 10,- **verrekend met de **borg.**.  Is de boot erg vies of de kussens nat, dan minimaal €20,-
 
 Bij aanvang wordt € 150,- borg en €10,- schoonmaakborg extra betaald, dat als de sloep **onbeschadigd en netjes** terug gebracht is weer **terug** ontvangen wordt. 
 We storten de borg dezelfde avond of iig binnen enkele dagen terug, kijk dit even na op uw bank ter controle,
