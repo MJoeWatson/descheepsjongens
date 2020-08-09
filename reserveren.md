@@ -72,7 +72,7 @@ avond gesloten
 
 ochtend vrij 
 
-middag vrij
+middag vol
 
 avond gesloten
 
