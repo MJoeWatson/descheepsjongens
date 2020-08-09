@@ -39,7 +39,7 @@ Aub niet van de vaarroutes afwijken ivm ondiepe sloten en te lage bruggen.--> sc
 -Een heel rondje om de stad Woerden kan niet, de brug bij het kasteel is te laag..
 
 In de sluis de sloep niet vast binden maar laten vieren.
-U mag bij het naderen van de sluis geen andere schepen voorbijlopen. Bij de wachtplaats van een sluis mag u alleen maar een ligplaats nemen om te schutten. Binnenvaren gaat in volgorde van aankomst.
+U mag bij het naderen van de sluis geen andere boten voorbijvaren. Bij de wachtplaats van een sluis mag u alleen maar een ligplaats nemen om te schutten. Binnenvaren gaat in volgorde van aankomst.
 
 9) Er wordt bij sluizen en bruggen vaak een paar euro **tol** gevraagd en bij de Nieuwkoopse plassen een bijdrage voor natuurbeheer.
 
