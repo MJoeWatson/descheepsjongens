@@ -28,19 +28,13 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvragen worden beantwoord.
 
-**Zaterdag 8 augustus:**
 
-ochtend: vol 
-
-middag: vol
-
-avond: vol
 
 **Zondag 9 augustus:** 
 
 ochtend: 
 
-middag:   Vooralsnog / **1 vrij in Harmelen speciale late middag / avond tijd 17.00 uur-21.00 uur €100,-**
+middag:  vol
 
 avond: vol
 
