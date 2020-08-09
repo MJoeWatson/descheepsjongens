@@ -56,7 +56,7 @@ Avond vol
 
 ochtend vol 
 
-middag vol in Woerden  / **1 vrij in Harmelen speciale late middag / avond tijd 17.00 uur-21.00 uur €110,-**
+middag vol in Woerden  / **1 vrij in Harmelen speciale late middag / avond tijd 17.00 uur-21.00 uur €100,-**
 
 avond vol 
 
