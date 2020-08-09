@@ -28,11 +28,19 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvragen worden beantwoord.
 
+**Zaterdag 8 augustus:**
+
+ochtend: vol 
+
+middag: vol
+
+avond: vol
+
 **Zondag 9 augustus:** 
 
 ochtend: 
 
-middag: **Er is opeens nog een sloep vrij vanuit Harmelen.. alle dagdelen/ de hele dag**:)
+middag: **Er is opeens nog een sloep vrij in de ochtend en de avond:)
 
 avond: vol
 
