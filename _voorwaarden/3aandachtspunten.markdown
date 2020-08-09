@@ -5,7 +5,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 Bij ons op het water gelden uiteraard ook de algemene landelijke vaarregels;
 
-Als er geen andere boot in de buurt is, kun je het beste **in het midden **varen, dit i.v.m. de soms **ondiepe kanten** en de vele planten waarin je vast kan komen te zitten, maar, als er **tegenliggers** komen **of** **een sloep wil** **passeren** moet je wat **rechts houden**. (net zoals in het normale verkeer)
+Vaar**in het midden **varen, dit i.v.m. de soms **ondiepe kanten** en de vele planten waarin je vast kan komen te zitten, maar, als er **tegenliggers** komen **of** **een sloep wil** **passeren** moet je wat **rechts houden**. (net zoals in het normale verkeer)
 
 Vaarverkeer dat komt vanaf **Stuurboord (rechts)** heeft **voorrang. **
 
@@ -27,6 +27,8 @@ Met zon is het net zo warm onder de kap, je hebt weinig zicht,  sommige bruggen 
 
 5) **Touwen binnenboord**! Anders komen ze in de schroef terecht en draait de **motor stuk.**
 
+-Niet op de rand/ punt/ achterkant van de boot zitten of staan; Iets achter de boot hangen is niet toegestaan. Zwemmen kan vanaf een kade of steiger. Niet vanaf de boot.
+
 6) Als de sloep iets **in de schroef** lijkt te hebben en niet goed vaart, dan kun je de sloep een klein moment vol in z’n **achteruit** zetten. Meestal draait het weer los. Zo niet, **motor uitzetten!** en **ons bellen** om te voorkomen dat de motor in de soep draait!
 
 7) De **hendel/joystick **van de stille sloepen is gevoelig, Pas op! als je de hendel **aanstoot** of er langs loopt, anders ** vaart de sloep naar voor(of achter).**
@@ -39,8 +41,10 @@ Aub niet van de vaarroutes afwijken ivm ondiepe sloten en te lage bruggen.--> sc
 In de sluis de sloep niet vast binden maar laten vieren.
 U mag bij het naderen van de sluis geen andere schepen voorbijlopen. Bij de wachtplaats van een sluis mag u alleen maar een ligplaats nemen om te schutten. Binnenvaren gaat in volgorde van aankomst.
 
-9) Er wordt  bij sluizen en bruggen vaak een paar euro **tol** gevraagd en bij de Nieuwkoopse plassen een bijdrage voor natuurbeheer.
+9) Er wordt bij sluizen en bruggen vaak een paar euro **tol** gevraagd en bij de Nieuwkoopse plassen een bijdrage voor natuurbeheer.
 
+Goed oppassen of de sloep onder de brug past, sommigen bruggen zijn echt te laag en pas op uw hoofd, buk tijdig wanneer nodig.
+ 
 Vaar niet samen met een andere boot onder een brug i.v.m. golfslag/hoofd stoten.
 
 10) We onderhouden de sloepen goed en het gebeurd niet vaak, maar een technische storing of **pech** **kán** voorkomen, dat is overmacht. We proberen het dan uiteraard zo goed mogelijk op te lossen. We vragen dan ook jullie **begrip** hiervoor. 
