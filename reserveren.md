@@ -28,14 +28,6 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvragen worden beantwoord.
 
-**Zaterdag 8 augustus:**
-
-ochtend: vol 
-
-middag: vol
-
-avond: vol
-
 **Zondag 9 augustus:** 
 
 ochtend: 
