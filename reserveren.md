@@ -40,7 +40,7 @@ avond: vol
 
 ochtend: 
 
-middag:   / **1 vrij in Harmelen speciale late middag / avond tijd 17.00 uur-21.00 uur €100,-**
+middag:   Vooralsnog / **1 vrij in Harmelen speciale late middag / avond tijd 17.00 uur-21.00 uur €100,-**
 
 avond: vol
 
