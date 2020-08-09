@@ -27,7 +27,7 @@ Met zon is het net zo warm onder de kap, je hebt weinig zicht,  sommige bruggen 
 
 5) **Touwen binnenboord**! Anders komen ze in de schroef terecht en draait de **motor stuk.**
 
--Niet op de rand/ punt/ achterkant van de boot zitten of staan; Iets achter de boot hangen is niet toegestaan. Zwemmen kan vanaf een kade of steiger. Niet vanaf de boot.
+-Niet op de rand/ punt/ achterkant van de boot zitten of staan; Iets of iemand achter de boot hangen is niet toegestaan. Zwemmen kan vanaf een kade of steiger. Niet vanaf de boot.
 
 6) Als de sloep iets **in de schroef** lijkt te hebben en niet goed vaart, dan kun je de sloep een klein moment vol in z’n **achteruit** zetten. Meestal draait het weer los. Zo niet, **motor uitzetten!** en **ons bellen** om te voorkomen dat de motor in de soep draait!
 
