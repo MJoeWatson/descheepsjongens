@@ -29,9 +29,9 @@ Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvr
 
 **10 augustus** 
 
-ochtend  1 vrij Harmelrn / 1 vrij woerden
+ochtend  1 vrij Harmelen/1 vrij woerden
 
-middag  vol (onder voorbehoudt)
+middag  vol (onder voorbehoud)
 
 Avond vrij 
 
