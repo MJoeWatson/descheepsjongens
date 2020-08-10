@@ -77,7 +77,7 @@ Avond vrij
 
 **Zaterdag 15 augustus** 
 
-Ochtend 1 vrij
+Ochtend 1 vrij in Woerden  vooralsnog
 
 Middag vol 
 
