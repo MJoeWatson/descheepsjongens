@@ -83,7 +83,7 @@ Middag Vrij
 
 Avond  Vrij
 
-**Zondag 16 augustus **
+**Zondag 16 augustus**
 
 Ochtend vrij
 
