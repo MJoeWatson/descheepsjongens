@@ -32,16 +32,16 @@ Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvr
 
 ** Maandag 10 augustus** 
 
-Ochtend  1 vrij Harmelen/1 vrij Woerden
+Ochtend -
 
-Middag 1  Antaris Vrij in woerden ! Alle dagdelen
+Middag 1  Antaris Vrij in woerden
 
 Avond vrij
 
 
 **Dinsdag 11 augustus**
 
-Ochtend 1 vrij
+Ochtend vol 
 
 Middag vol 
 
