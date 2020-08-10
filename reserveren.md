@@ -79,7 +79,7 @@ Avond vrij
 
 Ochtend vrij
 
-Middag Vrij 
+Middag vol 
 
 Avond  Vrij
 
