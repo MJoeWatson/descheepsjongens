@@ -22,28 +22,26 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 ### Beschikbaarheid: update:
  
-
 **Op dagen die niet vermeld staan
  zijn de sloepen alle dagdelen - vooralsnog - vrij**
 
 Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvragen worden beantwoord.
 
+**10 augustus** 
 
-**Maandag 10 augustus** 
+ochtend  1 vrij Harmelrn / 1 vrij woerden
 
-ochtend  vol
+middag  vol (onder voorbehoudt)
 
-middag  vol
-
-Avond vol
+Avond vrij 
 
 **11 augustus**
 
-ochtend vol 
+ochtend vrij
 
 middag vol 
 
-avond vol 
+avond vrij 
 
 **Woensdag 12 augustus**
 
