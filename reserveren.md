@@ -22,56 +22,63 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 ### Beschikbaarheid: update:
  
+
 **Op dagen die niet vermeld staan
  zijn de sloepen alle dagdelen - vooralsnog - vrij**
 
 Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvragen worden beantwoord.
 
-**10 augustus** 
+** Maandag 10 augustus** 
 
-ochtend  1 vrij Harmelen/1 vrij woerden
+Ochtend  1 vrij harmelen/1 vrij woerden
 
-middag  vol (onder voorbehoud)
+Middag vol onder voorbehoud Update volgt
 
-Avond vrij 
+Avond vrij
 
-**11 augustus**
+**Dinsdag 11 augustus**
 
-ochtend vrij
+Ochtend 1 vrij
 
-middag vol 
+Middag vol 
 
-avond vrij 
+Avond vrij
 
 **Woensdag 12 augustus**
 
-ochtend vol
+Ochtend vol
 
-middag: vol
+Middag: vol
 
-avond gesloten
+Avond gesloten
 
-**Donderdag 13,
+**Donderdag 13 augustus**
 
-ochtend vrij
+Ochtend vrij
 
-middag vol
+Middag vol
 
-avond gesloten
+Avond gesloten
 
-Vrijdag 14,
+**Vrijdag 14 augustus**
 
-ochtend 
+Ochtend Vrij
 
-middag
+Middag vrij
 
-avond
+Avond vrij 
 
- zaterdag 15 augustus** nog een aantal sloepen vrij, vooralsnog..
+**Zaterdag 15 augustus** 
+
+Ochtend vrij
+
+Middag Vrij 
+
+Avond  Vrij
 
 **Zondag 16 augustus **
 
-ochtend vrij
+Ohtend vrij
 
 Middag Vol
 
