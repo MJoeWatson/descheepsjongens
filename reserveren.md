@@ -77,7 +77,7 @@ Avond vrij
 
 **Zaterdag 15 augustus** 
 
-Ochtend vrij
+Ochtend 1 vrij
 
 Middag vol 
 
