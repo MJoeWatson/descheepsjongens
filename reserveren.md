@@ -34,7 +34,7 @@ Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvr
 
 Ochtend  1 vrij Harmelen/1 vrij Woerden
 
-Middag vol onder voorbehoud Update volgt
+Middag vol
 
 Avond vrij
 
