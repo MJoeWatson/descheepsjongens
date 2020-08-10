@@ -67,7 +67,7 @@ Avond gesloten
 
 **Vrijdag 14 augustus**
 
-Ochtend Vrij
+Ochtend 1 buitenboord motor in Woerden / 1 Nicki in Harmelen Vrij
 
 Middag vrij
 
