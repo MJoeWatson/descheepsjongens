@@ -41,7 +41,7 @@ Avond vrij
 
 **Dinsdag 11 augustus**
 
-Ochtend vol 
+Ochtend 1 bootje in Harmelen vrij 
 
 Middag vol 
 
