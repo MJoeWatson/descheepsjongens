@@ -34,7 +34,7 @@ Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvr
 
 Ochtend  1 vrij Harmelen/1 vrij Woerden
 
-Middag vol
+Middag 1  Antaris Vrij in woerden ! Alle dagdelen
 
 Avond vrij
 
