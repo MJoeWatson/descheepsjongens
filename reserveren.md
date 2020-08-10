@@ -45,7 +45,7 @@ Ochtend vol
 
 Middag vol 
 
-Avond vrij
+Avond vol
 
 
 **Woensdag 12 augustus**
