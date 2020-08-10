@@ -34,8 +34,8 @@ Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvr
 
 Ochtend -
 
-Middag 1  Antaris Vrij in woerden
-
+Middag  Vol
+ 
 Avond vrij
 
 
