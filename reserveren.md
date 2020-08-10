@@ -45,8 +45,7 @@ Ochtend vol
 
 Middag vol 
 
-Avond vol vooralsnog  miss harmelen nog
-
+Avond vol 
 
 **Woensdag 12 augustus**
 
