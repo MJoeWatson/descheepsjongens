@@ -14,7 +14,7 @@ Lees **ook** de actuele -extra- maatregelen i.v.m. het Corona virus onder het ko
 1.) Vanaf **24 jaar** mag je bij ons een sloep huren.
 Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.
 
-2.) De bestuurder mag **niet** **onder invloed** van alcohol of andere verdovende middelen in onze sloepen **varen**. overmatig alcohol in onze sloepen wordt sowieso **niet** toegestaan,(door ons te bepalen). Dus ook **niet** ergens anders drank in laden.... Er wordt op gecontroleerd.
+2.) De bestuurder mag **niet** **onder invloed** van alcohol of andere verdovende middelen in onze sloepen **varen**. overmatig alcohol in onze sloepen wordt sowieso **niet** toegestaan,(•door ons te bepalen). Dus ook **niet** ergens anders drank in laden.... Er wordt op gecontroleerd.
 
 Houdt de **sloep netjes**, we zijn er **zuinig** op … Ook dient men ervoor te zorgen dat er **geen overlast** voor de **omgeving** veroorzaakt wordt, dus geen harde muziek enz.
 Let op, De borg wordt ingehouden als men zich niet aan deze afspraken houdt)
