@@ -17,9 +17,9 @@ Kinderen **zonder zwemdiploma** moeten een **zwemvest** dragen.
 
 1) Pas op voor **zwemmers** en de **hengels** van vissers! ze zijn soms moeilijk te zien in het water. **houdt afstand!** 
 
-2) **géén afval** in de natuur.  ~Afval zelf mee naar huis nemen.
+2) **géén afval** Onderweg achterlaten.  ~Afval zelf mee naar huis nemen.
 
-3) **Hond** Kosten: **€ 10,- extra.** De hond mag niet op de kussens ed., maar op een eigen kleedje. 
+3) **Hond** Kosten: **€ 10,- extra.** De hond mag niet op de kussens, kap ed., alleen op een eigen kleedje. 
 
 4) De kappen zijn netjes naar beneden gevouwen, **graag zo houden.**  * Alleen bij hevige regen eventueel te gebruiken. - De kap moet altijd **binnenboord** opgevouwen zijn (i.v.m. beschadigen)
 
@@ -43,7 +43,7 @@ U mag bij het naderen van de sluis geen andere boten voorbijvaren. Bij de wachtp
 
 9) Er wordt bij sluizen en bruggen vaak een paar euro **tol** gevraagd en bij de Nieuwkoopse plassen een bijdrage voor natuurbeheer.
 
-Goed oppassen of de sloep onder de brug past, sommigen bruggen zijn echt te laag en pas op uw hoofd, buk tijdig wanneer nodig.
+Goed oppassen of de sloep onder de brug past, sommigen bruggen zijn echt te laag (Mn voor Het stuur of de voorkant Van de sloep) en pas op uw hoofd, buk tijdig wanneer nodig.
  
 Vaar niet samen met een andere boot onder een brug i.v.m. golfslag/hoofd stoten.
 
