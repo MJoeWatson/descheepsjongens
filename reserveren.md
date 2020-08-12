@@ -31,20 +31,11 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvragen worden beantwoord.
 
 
-**Woensdag 12 augustus**
-
-Ochtend vol
-
-Middag: vol
-
-Avond gesloten
-
-
 **Donderdag 13 augustus**
 
 Ochtend vol
 
-Middag 1 vol
+Middag 1 vol  maar ws update donderdag ochtend 
 
 Avond gesloten
 
@@ -53,7 +44,7 @@ Avond gesloten
 
 Ochtend 1 buitenboord motor in Woerden vrij (hele dag) / 2 stille in Harmelen Vrij
 
-Middag 1 buitenboord motor sloep in Woerden vrij/2 stille in harmelen(hele dag vrij)
+Middag 2 sloepen vrij
 
 Avond vrij 
 
