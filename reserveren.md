@@ -60,7 +60,7 @@ Avond gesloten
 
 Ochtend 1 vrij in woerden / 1 vrij in Harmelen
 
-Middag 1 sloep vrij gekomen voor de hele dag 
+Middag 1 sloep vrij gekomen voor alle dagdelen
 
 Avond gesloten
 
