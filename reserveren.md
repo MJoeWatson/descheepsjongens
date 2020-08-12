@@ -30,22 +30,6 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvragen worden beantwoord.
 
-** Maandag 10 augustus** 
-
-Ochtend -
-
-Middag  Vol
- 
-Avond vrij
-
-
-**Dinsdag 11 augustus**
-
-Ochtend vol 
-
-Middag vol 
-
-Avond vol 
 
 **Woensdag 12 augustus**
 
@@ -60,7 +44,7 @@ Avond gesloten
 
 Ochtend 1 vrij harmelen
 
-Middag 1 ochtend vrij harmelen
+Middag 1 vol
 
 Avond gesloten
 
