@@ -76,9 +76,9 @@ Avond vrij
 
 **Zaterdag 15 augustus** 
 
-Ochtend 1 vrij in Woerden  vooralsnog
+Ochtend 1 vol
 
-Middag vol 
+Middag vol in Woerden / 1 vrij in Harmelen
 
 Avond  Vrij
 
