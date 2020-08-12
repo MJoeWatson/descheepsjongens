@@ -58,9 +58,9 @@ Avond gesloten
 
 **Donderdag 13 augustus**
 
-Ochtend 1 vrij in Harmelen
+Ochtend 1 vrij harmelen
 
-Middag 1 sloep vrij gekomen in Woerden voor hele dag 
+Middag 1 ochtend vrij harmelen
 
 Avond gesloten
 
