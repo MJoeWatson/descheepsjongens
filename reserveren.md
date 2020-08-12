@@ -30,10 +30,18 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvragen worden beantwoord.
 
+** Maandag 10 augustus** 
+
+Ochtend -
+
+Middag  Vol
+ 
+Avond vrij
+
 
 **Dinsdag 11 augustus**
 
-Ochtend 1 bootje in Harmelen vrij tot 13.00 uur
+Ochtend vol 
 
 Middag vol 
 
@@ -76,7 +84,7 @@ Avond  Vrij
 
 **Zondag 16 augustus**
 
-Ochtend vrij
+Ochtend woerden vol / 1 vrij in harmelen
 
 Middag Vol
 
