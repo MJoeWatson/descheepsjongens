@@ -84,7 +84,7 @@ Avond  Vrij
 
 **Zondag 16 augustus**
 
-Ochtend woerden vol / 1 vrij in harmelen
+Ochtend vol
 
 Middag Vol
 
