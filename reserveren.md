@@ -42,7 +42,7 @@ Avond gesloten
 
 **Donderdag 13 augustus**
 
-Ochtend 1 vrij harmelen
+Ochtend vol
 
 Middag 1 vol
 
