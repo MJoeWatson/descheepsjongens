@@ -20,6 +20,8 @@ we hebben ook namelijk een aantal nieuwe voorwaarden.
 
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
+Parkeren kan gratis bij ons aan de kade.
+
 ### Beschikbaarheid: update:
 
 Ivm Inmiddels ingekomen aanvragen kan het voorkomen dat bij de beschikbaarheid inmiddels veranderingen zijn ontstaan.
@@ -28,15 +30,11 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 **Op dagen die niet vermeld staan
  zijn de sloepen alle dagdelen - vooralsnog - vrij**
 
-Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvragen worden beantwoord.
-
-
 **Donderdag 13 augustus**
 
-Ochtend vol
+Ochtend -
 
-Middag 1 vol  maar ws update donderdag ochtend 
-
+Middag -
 Avond gesloten
 
 
@@ -70,4 +68,4 @@ Als er wat veranderd melden we het hier.
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
 Bij een gemaakte reservering sturen we de bevestiging met de informatie die je nodig hebt,
-We verwachten **een Berichtje terug** of alles duidelijk is; Dan is de reservering compleet.
+We verwachten **een Berichtje terug** of alles duidelijk is; Dan is de reservering helemaal compleet.
