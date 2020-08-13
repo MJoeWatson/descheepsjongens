@@ -42,9 +42,9 @@ Avond gesloten
 
 **Vrijdag 14 augustus**
 
-Ochtend 1 buitenboord motor in Woerden vrij (hele dag) / 2 stille in Harmelen Vrij
+Ochtend Woerden vol / 2 stille in Harmelen Vrij
 
-Middag 2 sloepen vrij
+Middag  1  buitenboordmotorsloep vrij in Woerden/ stille in Harmelen
 
 Avond vrij 
 
