@@ -35,7 +35,7 @@ Vrijdag middag vol
 
 Ochtend 1 vol
 
-Middag vol in Woerden / 1 vrij in Harmelen
+Middag vol 
 
 Avond  Vrij
 
