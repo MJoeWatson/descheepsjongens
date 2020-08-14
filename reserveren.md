@@ -20,8 +20,6 @@ we hebben ook namelijk een aantal nieuwe voorwaarden.
 
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
-Parkeren kan gratis bij ons aan de kade.
-
 ### Beschikbaarheid: update:
 
 Ivm Inmiddels ingekomen aanvragen kan het voorkomen dat bij de beschikbaarheid inmiddels veranderingen zijn ontstaan.
@@ -30,19 +28,14 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 **Op dagen die niet vermeld staan
  zijn de sloepen alle dagdelen - vooralsnog - vrij**
 
-**Donderdag 13 augustus**
-
-Ochtend -
-
-Middag -
-Avond gesloten
+Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvragen worden beantwoord.
 
 
 **Vrijdag 14 augustus**
 
-Ochtend Woerden vol / 2 stille in Harmelen Vrij
+Ochtend 1 buitenboord motor in Woerden vrij (hele dag) / 2 stille in Harmelen Vrij
 
-Middag  1  buitenboordmotorsloep vrij in Woerden/ stille in Harmelen
+Middag 1  sloep in Woerden vrij/2 stille in harmelen(hele dag vrij)
 
 Avond vrij 
 
@@ -57,7 +50,7 @@ Avond  Vrij
 
 **Zondag 16 augustus**
 
-Ochtend vol
+Ochtend woerden vol / 1 vrij in harmelen
 
 Middag Vol
 
@@ -68,4 +61,4 @@ Als er wat veranderd melden we het hier.
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
 Bij een gemaakte reservering sturen we de bevestiging met de informatie die je nodig hebt,
-We verwachten **een Berichtje terug** of alles duidelijk is; Dan is de reservering helemaal compleet.
+We verwachten **een Berichtje terug** of alles duidelijk is; Dan is de reservering compleet.
