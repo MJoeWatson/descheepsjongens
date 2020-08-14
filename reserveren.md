@@ -29,16 +29,7 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
  zijn de sloepen alle dagdelen - vooralsnog - vrij**
 
 Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvragen worden beantwoord.
-
-
-**Vrijdag 14 augustus**
-
-Ochtend 1 buitenboord motor in Woerden vrij (hele dag) / 2 stille in Harmelen Vrij
-
-Middag 1  sloep in Woerden vrij/2 stille in harmelen(hele dag vrij)
-
-Avond vrij 
-
+Vrijdag middag vol
 
 **Zaterdag 15 augustus** 
 
