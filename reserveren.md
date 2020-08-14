@@ -34,7 +34,7 @@ Vrijdag middag vol
 
 **Zaterdag 15 augustus** 
 
-Ochtend 1 vol
+Ochtend vol
 
 Middag vol 
 
@@ -42,7 +42,7 @@ Avond  Vrij
 
 **Zondag 16 augustus**
 
-Ochtend woerden vol / 1 vrij in harmelen
+Ochtend vol
 
 Middag Vol
 
