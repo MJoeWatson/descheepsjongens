@@ -29,6 +29,7 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
  zijn de sloepen alle dagdelen - vooralsnog - vrij**
 
 Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvragen worden beantwoord.
+
 Vrijdag middag vol
 
 **Zaterdag 15 augustus** 
