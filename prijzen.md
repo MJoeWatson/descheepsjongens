@@ -37,7 +37,8 @@ Wij willen het ook  voor je doen, dan houden we de €10,- schoonmaakborg in.
 De huurder is verantwoordelijk voor de eerste €350,- eigen risico.
 
 We rekenen geen reserveringskosten. 
-Annuleren als het regent is kosteloos , kan op de dag zelf, in overleg met ons =/- een uur voor de vertrek tijd. 
+Annuleren als het regent is kosteloos , kan op de dag zelf, in overleg met ons tot een uur voor de vertrek tijd. 
+**Bij onweer niet** op het water, dat is gevaarlijk.
 
 Indien wij daar speciaal heen gegaan zijn en de vaartocht gaat niet door of je komt niet opdagen, wordt óf het hele huurbedrag berekend óf €20,- reserverings /service onkosten gerekend.
 
