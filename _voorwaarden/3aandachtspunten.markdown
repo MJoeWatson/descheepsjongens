@@ -23,7 +23,7 @@ Kinderen **zonder zwemdiploma** moeten een **zwemvest** dragen.
 
 4) De kappen zijn netjes naar beneden gevouwen, **graag zo houden.**  * Alleen bij hevige regen eventueel te gebruiken. - De kap moet altijd **binnenboord** opgevouwen zijn (i.v.m. beschadigen)
 
-Met zon is het net zo warm onder de kap, je hebt weinig zicht,  sommige bruggen kan je zo **niet** onderdoor, dus beter zo te laten
+Met zon is het net zo warm onder de kap, je hebt weinig/geen zicht,  sommige bruggen kan je zo **niet** onderdoor !, dus beter zo te laten.
 
 5) **Touwen binnenboord**! Anders komen ze in de schroef terecht en draait de **motor stuk.**
 
