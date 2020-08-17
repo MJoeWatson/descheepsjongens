@@ -48,6 +48,6 @@ Een persoon is welkom voor de intake,  de rest van het gezelschap mag alvast naa
 7. Zoals altijd maken we de boten voor en na iedere vaart schoon.
 De sloepen worden nu extra gedesinfecteerd en u kunt zelf gebruik maken van het desinfectiemiddel.
 
-8. ~ Aangezien de situatie blijft veranderen kunnen onze maatregelen verder aangepast worden. Gemaakte reserveringen kunnen in overleg verplaatst of geannuleerd worden.
+8. Aangezien de situatie blijft veranderen kunnen onze maatregelen verder aangepast worden. Gemaakte reserveringen kunnen in overleg verplaatst of geannuleerd worden.
 
 We wensen iedereen een goede gezondheid toe en veel plezier op het water!
