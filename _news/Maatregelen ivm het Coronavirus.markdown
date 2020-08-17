@@ -20,26 +20,34 @@ De regels mbt het Coronavirus:
 5. ~ Koppels/gezinnen die samen wonen mogen samen in de sloep, volwassenen moeten nog steeds 1,5 m afstand houden van elkaar
 
 wat kan:
- bv 
+
 **De Antaris**
-max 3 "afzonderlijke"  personen of 2 samenwonende koppels of max 2 koppels en 3 kinderen. 
+
+Opzich groot genoeg voor 6 personen.
+
+maar ivm de corona 1,5 meter:
+
+max 3 "afzonderlijke"  personen of 2 samenwonende koppels of 
+max 2 koppels en 3 kinderen. 
 
 **De Oudenrijn en de Nicki sloep:**
 
-Opzich root genoeg voor max 9 personen als er geen afstand hoeft worden gehouden.
- 
-bv.1 of 2 koppels met thuis wonende jonge kinderen.
+Opzich root genoeg voor max 9 a 10 personen als er geen afstand hoeft worden gehouden.
 
-max 4 a 5 "afzonderlijke" personen of 3 samenwonende koppels.
+maar ivm de corona 1,5 meter:
+
+bv.1 of 2 koppels met thuis wonende jonge kinderen.
+max. 4 a 5 "afzonderlijke" volwassen personen of 3 samenwonende koppels.
+met evt jonge kinderen.
 
 Het is aan jullie zelf om de goede afstand in de sloep te bewaren.
 
-6. ~ Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven. Houdt afstand aub;
+6. Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven. Houdt afstand aub;
 Een persoon is welkom voor de intake,  de rest van het gezelschap mag alvast naar de hun toegewezen boot en aldaar volgt de uitleg en worden alle vragen beantwoord over boot en routes.
 
-7. ~ Zoals altijd maken we de boten voor en na iedere vaart schoon.
+7. Zoals altijd maken we de boten voor en na iedere vaart schoon.
 De sloepen worden nu extra gedesinfecteerd en u kunt zelf gebruik maken van het desinfectiemiddel.
 
-8. ~ Aangezien de situatie blijft veranderen kunnen onze maatregelen verder aangepast worden. Gemaakte reserveringen kunnen in overleg dan verplaatst of geannuleerd worden.
+8. ~ Aangezien de situatie blijft veranderen kunnen onze maatregelen verder aangepast worden. Gemaakte reserveringen kunnen in overleg verplaatst of geannuleerd worden.
 
 We wensen iedereen een goede gezondheid toe en veel plezier op het water!
