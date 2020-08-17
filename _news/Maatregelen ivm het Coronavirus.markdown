@@ -21,17 +21,25 @@ De regels mbt het Coronavirus:
 
 wat kan:
  bv 
-max 3 "afzonderlijke"  personen of 2 samenwonende koppels in de Antaris** 
-of 
-max 5 "afzonderlijke" personen of 3 samenwonende koppels in de electrische sloepen 
+**De Antaris**
+max 3 "afzonderlijke"  personen of 2 samenwonende koppels of max 2 koppels en 3 kinderen. 
 
-Het is aan jullie zelf om de goede afstand te bewaren.
+**De Oudenrijn en de Nicki sloep:**
 
-6. ~ Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven.  
+Opzich root genoeg voor max 9 personen als er geen afstand hoeft worden gehouden.
+ 
+bv.1 of 2 koppels met thuis wonende jonge kinderen.
+
+max 4 a 5 "afzonderlijke" personen of 3 samenwonende koppels.
+
+Het is aan jullie zelf om de goede afstand in de sloep te bewaren.
+
+6. ~ Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven. Houdt afstand aub;
+Een persoon is welkom voor de intake,  de rest van het gezelschap mag alvast naar de hun toegewezen boot en aldaar volgt de uitleg en worden alle vragen beantwoord over boot en routes.
 
 7. ~ Zoals altijd maken we de boten voor en na iedere vaart schoon.
 De sloepen worden nu extra gedesinfecteerd en u kunt zelf gebruik maken van het desinfectiemiddel.
 
 8. ~ Aangezien de situatie blijft veranderen kunnen onze maatregelen verder aangepast worden. Gemaakte reserveringen kunnen in overleg dan verplaatst of geannuleerd worden.
 
-.. We wensen iedereen een goede gezondheid toe en veel plezier op het water!
+We wensen iedereen een goede gezondheid toe en veel plezier op het water!
