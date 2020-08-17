@@ -10,9 +10,9 @@ layout: reserveren
 ---
 
 Voor je reserveert, lees **éérst** de voorwaarden en reglementen goed door,   
-we hebben ook namelijk een aantal nieuwe voorwaarden.
+We hebben ook namelijk een aantal nieuwe voorwaarden.
 
-**o.a: min leeftijd 24 jaar, geen alcohol aan boord*, max 6 km /uur** etc.
+o.a: min leeftijd 24 jaar, geen alcohol aan boord*, max 6 km /uur etc.
 
 [Klik **hier** voor alle voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
@@ -28,25 +28,13 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 **Op dagen die niet vermeld staan
  zijn de sloepen alle dagdelen - vooralsnog - vrij**
 
-Wegens drukte kan het iets langer duren voor je antwoord krijgt, maar alle aanvragen worden beantwoord.
+**zaterdag 22 augustus**
 
-Vrijdag middag vol
+Ochtend: vrij
 
-**Zaterdag 15 augustus** 
+Middag: in Woerden vol / in Harmelen 2 Stille sloepen vrij
 
-Ochtend vol
-
-Middag vol 
-
-Avond  Vrij
-
-**Zondag 16 augustus**
-
-Ochtend vol
-
-Middag Vol
-
-Avond vrij
+Avond: vrij
 
 
 Als er wat veranderd melden we het hier.
