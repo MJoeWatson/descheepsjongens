@@ -32,7 +32,7 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 Ochtend: vrij
 
-Middag: in Woerden vol / in Harmelen 2 Stille sloepen vrij
+Middag: in Woerden vol / in Harmelen 1 Stille sloep vrij
 
 Avond: vrij
 
