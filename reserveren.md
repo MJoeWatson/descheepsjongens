@@ -41,4 +41,4 @@ Als er wat veranderd melden we het hier.
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
 Bij een gemaakte reservering sturen we de bevestiging met de informatie die je nodig hebt,
-We verwachten **een Berichtje terug** of alles duidelijk is; Dan is de reservering compleet.
+We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
