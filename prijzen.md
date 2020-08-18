@@ -29,7 +29,7 @@ De sloep hebben we namelijk graag weer in de zelfde staat terug als dat deze was
 
 Bij terugkomst kun je zelf de sloep weer schoon maken; (de hele binnenkant)
 
-Wij willen het ook  voor je doen, dan houden we de €10,- schoonmaakborg in.
+Wij willen het ook  voor je doen, daar is de €10,- schoonmaakborg voor.
 
 ~ Kleine schade en onkosten worden van de borg afgehouden.
 
@@ -37,10 +37,12 @@ Wij willen het ook  voor je doen, dan houden we de €10,- schoonmaakborg in.
 De huurder is verantwoordelijk voor de eerste €350,- eigen risico.
 
 We rekenen geen reserveringskosten. 
-Annuleren als het regent is kosteloos , kan op de dag zelf, in overleg met ons tot een uur voor de vertrek tijd. 
+Annuleren als het **regent** is kosteloos , kan op de dag zelf, in overleg met ons tot een uur voor de vertrek tijd. 
 **Bij onweer niet** op het water, dat is gevaarlijk.
 
-Indien wij daar speciaal heen gegaan zijn en de vaartocht gaat niet door of je komt niet opdagen, wordt óf het hele huurbedrag berekend óf €20,- reserverings /service onkosten gerekend.
+Als er om een andere reden geannuleerd wordt vragen we €20,- service kosten.
+
+Indien wij speciaal voor de vaartocht bij de sloep aanwezig  zijn en de vaartocht gaat niet door of je komt niet opdagen, wordt óf het hele huurbedrag berekend óf €20,- de reserverings /service onkosten gerekend.
 
 ~ Een extra uur bij huren is soms mogelijk,dit in overleg, €25,-per uur.  Vooraf te reserveren.
 
