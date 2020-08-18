@@ -40,7 +40,7 @@ avond: vrij
 
 ochtend: Vrij 
 
-Middag: Woerden vol / Harmelen nog 1 stille sloep vrij
+Middag:  vol
        
 Avond: vrij 
 
