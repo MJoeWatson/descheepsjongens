@@ -32,7 +32,7 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 ochtend: Vrij 
 
-Middag: Woerden vol en Harmelen-vooralsnog ook vol
+Middag: Woerden vol en Harmelen vol
        
 avond: vrij 
 
