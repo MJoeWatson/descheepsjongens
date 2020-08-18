@@ -32,8 +32,8 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 ochtend: Vrij 
 
-Middag: Woerden vol
-        1 stille in Harmelen, 
+Middag: Woerden vol en Harmelen-vooralsnog ook vol
+        
 
 avond: vrij 
 
