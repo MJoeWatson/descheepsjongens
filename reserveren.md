@@ -33,15 +33,14 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 ochtend: Vrij 
 
 Middag: Woerden vol en Harmelen-vooralsnog ook vol
-        
-
+       
 avond: vrij 
 
 **zaterdag 22 augustus**
 
 Ochtend: vrij
 
-Middag: in Woerden vol / in Harmelen 1 Stille sloep vrij
+Middag: Woerden vol /  Harmelen vol
 
 Avond: vrij
 
