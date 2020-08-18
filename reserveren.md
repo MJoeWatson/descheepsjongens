@@ -30,9 +30,9 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 **Woensdag 19 augustus **
 
-ochtend: Vrij 
+ochtend: 1 vrij in woerden / Harmelen vol
 
-Middag: Woerden vol en Harmelen vol
+Middag: Woerden 1 vrij  en Harmelen vol
        
 avond: vrij 
 
