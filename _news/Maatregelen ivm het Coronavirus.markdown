@@ -18,8 +18,19 @@ De regels mbt het Coronavirus:
 3. ~ Als je onderweg aanlegt of uitstapt houdt je aan de regels, neem zelf je picknickmand mee, of bestel deze bij een lokaal restaurant; 
 4. ~ Kom niet met het openbaar vervoer.
 5. ~ Koppels/gezinnen die samen wonen mogen samen in de sloep, volwassenen moeten nog steeds 1,5 m afstand houden van elkaar
+Het is aan jullie zelf om de goede afstand in de sloep te bewaren.
 
-wat kan:
+6. Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven. Houdt afstand aub;
+Een persoon is welkom voor de intake,  de rest van het gezelschap mag alvast naar de hun toegewezen boot en aldaar volgt de uitleg en worden alle vragen beantwoord over boot en routes.
+
+7. Zoals altijd maken we de boten voor en na iedere vaart schoon.
+De sloepen worden nu extra gedesinfecteerd en u kunt zelf gebruik maken van het desinfectiemiddel.
+
+8. Aangezien de situatie blijft veranderen kunnen onze maatregelen verder aangepast worden. Gemaakte reserveringen kunnen in overleg verplaatst of geannuleerd worden.
+
+We wensen iedereen een goede gezondheid toe en veel plezier op het water!
+
+wat kan per sloep:
 
 **De Antaris**
 
@@ -41,14 +52,3 @@ max. 4  "afzonderlijke" volwassen personen
 of 2 samenwonende koppels en een enkel persoon.
 met evt jonge kinderen.
 
-Het is aan jullie zelf om de goede afstand in de sloep te bewaren.
-
-6. Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven. Houdt afstand aub;
-Een persoon is welkom voor de intake,  de rest van het gezelschap mag alvast naar de hun toegewezen boot en aldaar volgt de uitleg en worden alle vragen beantwoord over boot en routes.
-
-7. Zoals altijd maken we de boten voor en na iedere vaart schoon.
-De sloepen worden nu extra gedesinfecteerd en u kunt zelf gebruik maken van het desinfectiemiddel.
-
-8. Aangezien de situatie blijft veranderen kunnen onze maatregelen verder aangepast worden. Gemaakte reserveringen kunnen in overleg verplaatst of geannuleerd worden.
-
-We wensen iedereen een goede gezondheid toe en veel plezier op het water!
