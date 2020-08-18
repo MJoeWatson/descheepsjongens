@@ -36,8 +36,9 @@ Opzich root genoeg voor max 9 a 10 personen als er geen afstand hoeft worden geh
 
 maar ivm de corona 1,5 meter:
 
-bv.1 of 2 koppels met thuis wonende jonge kinderen.
-max. 4 a 5 "afzonderlijke" volwassen personen of 3 samenwonende koppels.
+bv.1 of 2 koppels met thuis wonende /jonge kinderen.
+max. 4  "afzonderlijke" volwassen personen 
+of 2 samenwonende koppels en een enkel persoon.
 met evt jonge kinderen.
 
 Het is aan jullie zelf om de goede afstand in de sloep te bewaren.
