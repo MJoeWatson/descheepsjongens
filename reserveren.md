@@ -32,7 +32,7 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 ochtend: Vrij 
 
-Middag: 1 sloep (buitenboord) in Woerden nog vrij hele dag en 1 stille  ook voor hele dag in Harmelen)
+Middag: nog  1 stille  ook voor hele dag in Harmelen, woerden vol
 
 
 **zaterdag 22 augustus**
