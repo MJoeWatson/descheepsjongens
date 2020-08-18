@@ -9,4 +9,4 @@ position: 1
 ![antaris-far.jpeg]({{site.baseurl}}/assets/images/boats/antaris/antaris-far.jpeg){: .centre}
 
 1. 1. Buitenboordmotorsloep voor max. 7 personen.
-
+(Nu minder als het niet om een huishouden gaat, ivm 1,5 meter afstand! zie corona update)
