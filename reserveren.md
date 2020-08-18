@@ -36,6 +36,15 @@ Middag: Woerden vol en Harmelen vol
        
 avond: vrij 
 
+**Donderdag 20 augustus **
+
+ochtend: Vrij 
+
+Middag: Woerden vol / Harmelen nog 1 stille sloep vrij
+       
+Avond: vrij 
+
+
 **zaterdag 22 augustus**
 
 Ochtend: vrij
