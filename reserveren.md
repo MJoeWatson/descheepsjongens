@@ -32,7 +32,7 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 ochtend: 1 vrij in woerden / Harmelen vol
 
-Middag: Woerden 1 vrij  en Harmelen vol
+Middag: vol
        
 avond: vrij 
 
