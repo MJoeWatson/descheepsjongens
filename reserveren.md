@@ -33,8 +33,9 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 ochtend: Vrij 
 
 Middag: Woerden vol
-        1 stille   evt ook voor hele dag in Harmelen, 
+        1 stille in Harmelen, 
 
+avond: vrij 
 
 **zaterdag 22 augustus**
 
