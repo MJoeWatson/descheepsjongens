@@ -30,7 +30,7 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 **Woensdag 19 augustus **
 
-ochtend: 1 vrij in woerden / Harmelen vol
+ochtend: vol
 
 Middag: vol
        
@@ -40,7 +40,7 @@ avond: vrij
 
 ochtend: Vrij 
 
-Middag:  vol
+Middag: Woerden vol / Harmelen nog 1 stille sloep vrij
        
 Avond: vrij 
 
