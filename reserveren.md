@@ -28,21 +28,17 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 **Op dagen die niet vermeld staan
  zijn de sloepen alle dagdelen - vooralsnog - vrij**
 
-**Woensdag 19 augustus **
-
-ochtend: vol
-
-Middag: vol
-       
-avond: vrij 
-
-**Donderdag 20 augustus **
-
-ochtend: Vrij 
-
-Middag: vol 
+**Donderdag 20 augustus** 
        
 Avond: vrij 
+
+**Vrijdag 21 augustus**
+
+Ochtend: vrij
+
+Middag: Woerden een buitenboordmotor sloep vrij / Harmelen vol
+
+Avond: vrij
 
 
 **zaterdag 22 augustus**
