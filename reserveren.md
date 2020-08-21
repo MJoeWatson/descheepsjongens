@@ -18,6 +18,7 @@ o.a: min leeftijd 24 jaar, geen alcohol aan boord*, max 6 km /uur etc.
 
 *Als de reservering is gemaakt gaan we er dus vanuit dat u op de hoogte bent van de regels en gaat u **akkoord** met onze voorwaarden!
 
+
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
 ### Beschikbaarheid: update:
@@ -37,12 +38,11 @@ Middag:  vol
 Avond: vrij
 
 
-
 **zaterdag 22 augustus**
 
 Ochtend: vrij
 
-Middag: Woerden 1 vrij (hele dag) / Harmelen vol 
+Middag: Woerden vol / Harmelen een stille sloep vrij
 
 Avond: vrij
 
@@ -52,3 +52,6 @@ Als er wat veranderd melden we het hier.
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
 Bij een gemaakte reservering sturen we de bevestiging met de informatie die je nodig hebt,
 We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
+
+Als het regent kan de vaartocht **in overleg met ons** op de dag zelf, kosteloos verplaatst of geannuleerd worden; Tot een uur voor de vertrek tijd. Het weer valt namelijk meestal mee.
+
