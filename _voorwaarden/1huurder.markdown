@@ -9,7 +9,7 @@ Voor de veiligheid van onze gasten én omgeving en zodat iedereen zoveel mogelij
 
 ~Als je de reservering maakt ga je akkoord met al deze voorwaarden, dus lees ze goed.~
 
-Lees **ook** de actuele -extra- maatregelen i.v.m. het Corona virus onder het kopje "Nieuws" [klik hier om nu te lezen](http://http://descheepsjongens.nl/news)
+Lees **ook** de actuele -extra- maatregelen i.v.m. het Corona virus onder het kopje "Nieuws" [klik hier om nu te lezen](http://descheepsjongens.nl/news) 
 
 1.) Vanaf **24 jaar** mag je bij ons een sloep huren.
 Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.
