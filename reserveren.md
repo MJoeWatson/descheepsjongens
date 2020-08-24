@@ -26,25 +26,10 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 Ivm Inmiddels ingekomen aanvragen kan het voorkomen dat bij de beschikbaarheid inmiddels veranderingen zijn ontstaan.
 We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
+
+
 **Op dagen die niet vermeld staan
  zijn de sloepen alle dagdelen - vooralsnog - vrij**
-
-**vrijdag 21 augustus**
-
-Ochtend: vrij
-
-Middag:  vol 
-
-Avond: vrij
-
-
-**zaterdag 22 augustus**
-
-Ochtend: vrij
-
-Middag: Woerden vol / Harmelen een stille sloep vrij
-
-Avond: vrij
 
 
 Als er wat veranderd melden we het hier.
