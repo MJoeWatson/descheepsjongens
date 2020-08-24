@@ -31,7 +31,7 @@ Met zon is het net zo warm onder de kap, je hebt weinig/geen zicht,  sommige bru
 
 6) Als de sloep iets **in de schroef** lijkt te hebben en niet goed vaart, dan kun je de sloep een klein moment vol in z’n **achteruit** zetten. Meestal draait het weer los. Zo niet, **motor uitzetten!** en **ons bellen** om te voorkomen dat de motor in de soep draait!! We geven dan instructies of komen naar je toe.
 
-7) De **hendel/joystick **van de stille sloepen is gevoelig, Pas op! als je de hendel **aanstoot** of er langs loopt, anders ** vaart de sloep naar voor(of achter).**
+7) De **hendel/joystick** van de stille sloepen is gevoelig, Pas op! als je de hendel **aanstoot** of er langs loopt, anders **vaart de sloep naar voor(of achter)**
 Bij uitstappen daarom de sloep **uitzetten** met de sleutel.
 
 8) Als je door een **sluis of brug** vaart, moet er goed rekening gehouden worden met de **openingstijden**:   ~sluizen en bruggen worden soms op vaste tijden geopend. Let goed op de laatste doorvaar mogelijkheid en dat je de **goede route** vaart.
