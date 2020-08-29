@@ -26,8 +26,18 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 Ivm Inmiddels ingekomen aanvragen kan het voorkomen dat bij de beschikbaarheid inmiddels veranderingen zijn ontstaan.
 We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
+**Zaterdag 5 september**
+
+Ovhtend vrij
+
+middag  vol
+
+Avnf  vrij 
+
+
 **Op dagen die niet vermeld staan
  zijn de sloepen alle dagdelen - vooralsnog - vrij**
+
 
 Als er wat veranderd melden we het hier.
 
