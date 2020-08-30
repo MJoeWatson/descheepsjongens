@@ -55,6 +55,6 @@ Vaar niet samen met een andere boot onder een brug i.v.m. golfslag/hoofd stoten.
 13) Als het slecht weer is kan de vaartocht **in overleg met ons op de dag zelf** kosteloos verplaatst of geannuleerd worden; 
 let wel:
 
-Indien wij daar **speciaal** naar het vertrekpunt komen en er de **vaartocht** gaat **niet door**, dan rekenen we de gemaakte **kosten**. Het kan of het **hele dagdeel **zijn als de boot niet meer verhuurd kan worden óf de **service kosten á €20,-**, Dit voor ons om te bepalen.
+Indien wij daar **speciaal** naar het vertrekpunt komen en er de **vaartocht** gaat **niet door**, dan rekenen we de gemaakte **kosten**. Het bedrag kan of  Voor het **hele Volgende dagdeel** zijn indien de boot niet meer verhuurd kan worden óf de **service kosten á €20,-**, Dit voor ons om te bepalen.
 
 14) Als de reservering gemaakt is gaat de huurder **akkoord** met **al deze voorwaarden.**
