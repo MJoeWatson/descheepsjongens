@@ -30,9 +30,10 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 Ovhtend vrij
 
-middag  vol
+middag  Er zijn weer 2 sloepen beschikbaar voor vanmiddag!
+13.00-18.00 uur
 
-Avnf  vrij 
+
 
 
 **Op dagen die niet vermeld staan
