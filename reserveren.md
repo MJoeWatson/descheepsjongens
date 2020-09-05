@@ -28,7 +28,7 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 **Zaterdag 5 september**
 
-Ovhtend vrij
+Ochtend vrij
 
 middag  Er zijn weer 2 sloepen beschikbaar voor vanmiddag.
 13.30-18.00 uur
