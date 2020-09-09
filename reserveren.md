@@ -26,19 +26,15 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 Ivm Inmiddels ingekomen aanvragen kan het voorkomen dat bij de beschikbaarheid inmiddels veranderingen zijn ontstaan.
 We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
-**Zaterdag 5 september**
+**Zondag 13 september**
 
-Ochtend vrij
+Ochtend: vrij
 
-**middag  Er zijn weer 2 sloepen beschikbaar voor vanmiddag.
-13.30-18.00 uur**
-
-
+Middag:  Woerden vol / Harmelen nog 2 sloepen beschikbaar
 
 
 **Op dagen die niet vermeld staan
  zijn de sloepen alle dagdelen - vooralsnog - vrij**
-
 
 Als er wat veranderd melden we het hier.
 
@@ -46,5 +42,6 @@ Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een beric
 Bij een gemaakte reservering sturen we de bevestiging met de informatie die je nodig hebt,
 We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
 
-Als het regent kan de vaartocht **in overleg met ons** op de dag zelf, kosteloos verplaatst of geannuleerd worden; Tot een uur voor de vertrek tijd. Het weer valt namelijk meestal mee.
+Als het regent* kan de vaartocht **in overleg met ons** op de dag zelf, kosteloos verplaatst of geannuleerd worden; Tot een uur voor de vertrek tijd. Het weer valt namelijk meestal mee.
 
+*Bij annuleren in andere gevallen zijn wel kosten aan verbonden.
