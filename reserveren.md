@@ -34,13 +34,14 @@ dus  evt avonden **in overleg.**
 
 Ochtend: vrij
 
-Middag:  Woerden vol / Harmelen nog 2 sloepen beschikbaar
+Middag:  Woerden vol / Harmelen vooralsnog ook allemaal gereserveerd.
 
+Als er wat veranderd melden we het hier.
 
 **Op dagen die niet vermeld staan
  zijn de sloepen alle dagdelen - vooralsnog - vrij**
 
-Als er wat veranderd melden we het hier.
+
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
 Bij een gemaakte reservering sturen we de bevestiging met de informatie die je nodig hebt,
