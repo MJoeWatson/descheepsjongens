@@ -34,7 +34,7 @@ dus  evt avonden **in overleg.**
 
 Ochtend: vrij
 
-Middag:  Woerden vol / Harmelen vooralsnog ook allemaal gereserveerd.
+Middag:  Woerden vol / Harmelen ook allemaal gereserveerd.
 
 Als er wat veranderd melden we het hier.
 
