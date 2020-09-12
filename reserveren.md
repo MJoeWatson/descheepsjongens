@@ -30,13 +30,15 @@ De **avonden** zijn niet altijd meer mogelijk;  het wordt nl om **20.30 al donke
 soms is verschuiven naar eerder mogelijk, maar niet altijd ivm middag verhuur.
 dus  evt avonden **in overleg.**
 
+Zaterdag 12 septenber 
 
+Middag: nog 2 elektrische sloepen in Woerden vrij en 1 in Harmelen
  
 **Zondag 13 september**
 
 Ochtend: nog 1 Antaris vrij in Woerden  en 2 stille sloepen in Harmelen.
 
-Middag:  Woerden vol / Harmelen ook allemaal gereserveerd.
+Middag:  Woerden vol / Harmelen vol.
 
 Als er wat veranderd melden we het hier.
 
