@@ -29,10 +29,12 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 De **avonden** zijn niet altijd meer mogelijk;  het wordt nl om **20.30 al donker.** 
 soms is verschuiven naar eerder mogelijk, maar niet altijd ivm middag verhuur.
 dus  evt avonden **in overleg.**
+
+
  
 **Zondag 13 september**
 
-Ochtend: vrij
+Ochtend: nog 1 Antaris vrij in Woerden  en 2 stille sloepen in Harmelen.
 
 Middag:  Woerden vol / Harmelen ook allemaal gereserveerd.
 
