@@ -36,7 +36,7 @@ Middag: nog 2 elektrische sloepen in Woerden vrij en 1 in Harmelen
  
 **Zondag 13 september**
 
-Ochtend:  Woerden vol /2 stille sloepen in Harmelen vrij.
+Ochtend:  Woerden 1 Antaris vrij  /2 stille sloepen in Harmelen vrij.
 
 Middag:  Woerden vol / Harmelen vol.
 
