@@ -33,7 +33,7 @@ dus  evt avonden **in overleg.**
  
 **Zondag 13 september**
 
-Ochtend:  Woerden 1 Antaris vrij  
+Ochtend:  Woerden 1 Antaris en een stille sloep vrij  harmelen ook nog 1 
 
 Middag:  Woerden vol / Harmelen vol.
 
