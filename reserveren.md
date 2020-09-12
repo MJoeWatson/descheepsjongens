@@ -32,7 +32,7 @@ dus  evt avonden **in overleg.**
 
 Zaterdag 12 septenber 
 
-Middag: nog 2 elektrische sloepen in Woerden vrij en 1 in Harmelen
+Middag: nog enkele vrij
  
 **Zondag 13 september**
 
