@@ -26,16 +26,22 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 Ivm Inmiddels ingekomen aanvragen kan het voorkomen dat bij de beschikbaarheid inmiddels veranderingen zijn ontstaan.
 We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
-De **avonden** zijn niet altijd meer mogelijk;  het wordt nl om **20.30 al donker.** 
-soms is verschuiven naar eerder mogelijk, maar niet altijd ivm middag verhuur.
+De **avonden** zijn niet altijd meer mogelijk;  het wordt nl om **20.00 al donker.** 
+Soms is verschuiven naar eerder mogelijk, maar niet altijd ivm middag verhuur.
 dus  evt avonden **in overleg.**
 
+
+**Dinsdag 15 september**
+\
+Ochtend vrij 
+
+Middag: Woerden 1 vrij / Harmelen vol
  
-**woensdag 16 september**
+**Woensdag 16 september**
 
 Ochtend: vrij
 
-Middag:  Woerden vol Harmelen 2 sloepen vrij
+Middag:  Woerden vol / Harmelen 2 sloepen vrij
 
 Als er wat veranderd melden we het hier.
 
