@@ -35,7 +35,7 @@ dus  evt avonden **in overleg.**
 
 Ochtend: vrij
 
-Middag:  Woerden vol
+Middag:  Woerden vol Harmelen 2 sloepen vrij
 
 Als er wat veranderd melden we het hier.
 
