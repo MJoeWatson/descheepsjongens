@@ -31,7 +31,7 @@ soms is verschuiven naar eerder mogelijk, maar niet altijd ivm middag verhuur.
 dus  evt avonden **in overleg.**
 
  
-**woensdag 15 september**
+**woensdag 16 september**
 
 Ochtend: vrij
 
