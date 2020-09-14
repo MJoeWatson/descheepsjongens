@@ -31,11 +31,11 @@ soms is verschuiven naar eerder mogelijk, maar niet altijd ivm middag verhuur.
 dus  evt avonden **in overleg.**
 
  
-**Zondag 13 september**
+**woensdag 15 september**
 
-Ochtend:  Woerden 1 Antaris en een stille sloep vrij  harmelen ook nog 1 
+Ochtend: vrij
 
-Middag:  Woerden vol / Harmelen vol.
+Middag:  Woerden vol
 
 Als er wat veranderd melden we het hier.
 
