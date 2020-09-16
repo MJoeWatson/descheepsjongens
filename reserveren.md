@@ -5,7 +5,20 @@ soldout: '27/03/2020
 
 '
 electricsoldout: 21/5/2020
-buitenboordsoldout: '08/05/2020'
+buitenboordsoldout: |-
+  18/9/2020
+  19/9/2020
+  20/9/2020
+  21/9/2020
+  22/9/2020
+  23/9/2020
+  24/9/2020
+  25/9/2020
+  26/9/2020
+  27/9/2020
+  28/9/2020
+  29/9/2020
+  30/9/2020
 layout: reserveren
 ---
 
@@ -30,12 +43,6 @@ De **avonden** zijn niet altijd meer mogelijk;  het wordt nl om **20.00 al donke
 Soms is verschuiven naar eerder mogelijk, maar niet altijd ivm middag verhuur.
 dus  evt avonden **in overleg.**
 
-
-**Dinsdag 15 september**
-\
-Ochtend vrij 
-
-Middag: Woerden 1 vrij / Harmelen vol
  
 **Woensdag 16 september**
 
