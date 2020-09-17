@@ -31,7 +31,6 @@ o.a: min leeftijd 24 jaar, geen alcohol aan boord*, max 6 km /uur etc.
 
 *Als de reservering is gemaakt gaan we er dus vanuit dat u op de hoogte bent van de regels en gaat u **akkoord** met onze voorwaarden!
 
-
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
 ### Beschikbaarheid: update:
@@ -40,13 +39,6 @@ Ivm Inmiddels ingekomen aanvragen kan het voorkomen dat bij de beschikbaarheid i
 We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 De **avonden** zijn niet meer mogelijk; Het wordt al vroeg donker.
-
-
-**Woensdag 16 september**
-
-Ochtend: vrij
-
-Middag:  Woerden vol / Harmelen 2 sloepen vrij
 
 Als er wat veranderd melden we het hier.
 
