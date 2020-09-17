@@ -5,20 +5,8 @@ soldout: '27/03/2020
 
 '
 electricsoldout: 21/5/2020
-buitenboordsoldout: |-
-  18/9/2020
-  19/9/2020
-  20/9/2020
-  21/9/2020
-  22/9/2020
-  23/9/2020
-  24/9/2020
-  25/9/2020
-  26/9/2020
-  27/9/2020
-  28/9/2020
-  29/9/2020
-  30/9/2020
+buitenboordsoldout:
+- 
 layout: reserveren
 ---
 
@@ -42,15 +30,13 @@ De **avonden** zijn niet meer mogelijk; Het wordt al vroeg donker.
 
 Als er wat veranderd melden we het hier.
 
-**Op dagen die niet vermeld staan
- zijn de sloepen alle dagdelen - vooralsnog - vrij**
-
+**Op dagen die niet vermeld staan zijn de sloepen alle dagdelen -vooralsnog - vrij**
 
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
 Bij een gemaakte reservering sturen we de bevestiging met de informatie die je nodig hebt,
 We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
 
-Als het regent* kan de vaartocht **in overleg met ons** op de dag zelf, kosteloos verplaatst of geannuleerd worden; Tot een uur voor de vertrek tijd. Het weer valt namelijk meestal mee.
+Als het regent kan de vaartocht **in overleg met ons** op de dag zelf, kosteloos verplaatst of geannuleerd worden; Tot een uur voor de vertrek tijd. Het weer valt namelijk meestal mee.
 
-*Bij annuleren in andere gevallen zijn wel kosten aan verbonden.
+*Bij annuleren in andere gevallen zijn wel kosten verbonden.
