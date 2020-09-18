@@ -28,6 +28,13 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 De **avonden** zijn niet meer mogelijk; Het wordt al vroeg donker.
 
+**Zondag 20 september **
+
+Ochtend:Vrij
+
+Middag: Woerden 1 Antaris vrij / Harmelen 2x Nicki vrij
+
+
 Als er wat veranderd melden we het hier.
 
 **Op dagen die niet vermeld staan zijn de sloepen alle dagdelen -vooralsnog - vrij**
