@@ -28,6 +28,11 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 De **avonden** zijn niet meer mogelijk; Het wordt al vroeg donker.
 
+**Zaterdag 19 september**
+
+vrij
+
+
 **Zondag 20 september **
 
 Ochtend:Vrij
