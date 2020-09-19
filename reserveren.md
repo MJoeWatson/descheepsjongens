@@ -37,7 +37,7 @@ vrij
 
 Ochtend:Vrij
 
-Middag: Woerden 1 Antaris vrij / Harmelen 2x Nicki vrij
+Middag: Woerden vol / Harmelen 1 Nicki vrij
 
 
 Als er wat veranderd melden we het hier.
