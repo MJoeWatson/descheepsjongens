@@ -37,7 +37,7 @@ vrij
 
 Ochtend:Vrij
 
-Middag: Woerden vol / Harmelen 1 Nicki vrij
+Middag: Woerden vol / Harmelen vol
 
 
 Als er wat veranderd melden we het hier.
