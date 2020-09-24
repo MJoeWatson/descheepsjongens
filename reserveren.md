@@ -23,15 +23,13 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 ### Beschikbaarheid: update:
 
-Ivm Inmiddels ingekomen aanvragen kan het voorkomen dat bij de beschikbaarheid inmiddels veranderingen zijn ontstaan.
-We sturen een bericht of we de reservering hebben kunnen inplannen of niet
+Ivm de kortere dagen hebben we ook de tijden aangepast, indien je een andere tijd wilt varen als bij de voorstellen staat,laat het ons weten in het berichtvak kan je dat aangeven 
 
 De **avonden** zijn niet meer mogelijk; Het wordt al vroeg donker.
 
 Als er wat veranderd melden we het hier.
 
 **Op dagen die niet vermeld staan zijn de sloepen alle dagdelen -vooralsnog - vrij**
-
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
 Bij een gemaakte reservering sturen we de bevestiging met de informatie die je nodig hebt,
