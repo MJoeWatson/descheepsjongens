@@ -28,11 +28,6 @@ We sturen een bericht of we de reservering hebben kunnen inplannen of niet
 
 De **avonden** zijn niet meer mogelijk; Het wordt al vroeg donker.
 
-We hebben de tijden wat veranderd 
-6 uur (10.30-16.30 uur) €130,-
-en de middag naar voor geschoven (12.00-16.30) €100,-
-Wilt u toch andere tijden, neem dan contact met ons op dan kijken we wat er mogelijk is.
-
 Als er wat veranderd melden we het hier.
 
 **Op dagen die niet vermeld staan zijn de sloepen alle dagdelen -vooralsnog - vrij**
