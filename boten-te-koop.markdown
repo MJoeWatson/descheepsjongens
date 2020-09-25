@@ -1,5 +1,5 @@
 ---
-title: Boten te koop
+title: Te koop
 date: 2020-09-25 13:52:00 +02:00
 ---
 
