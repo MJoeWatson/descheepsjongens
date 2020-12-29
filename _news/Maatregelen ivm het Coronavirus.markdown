@@ -8,8 +8,9 @@ CORONA:
 
 We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid. 
 
-Vanaf 1 juli zijn de regels weer wat soepeler en mogen er een paar meer mensen op de sloep; 
-Maar alleen als je je aan de regels van het RIVM/overheid houdt én er 1.5 meter afstand gehouden wordt tussen personen 18+(indien je niet samenwoont) 
+Hopelijk in het nieuwe seizoen minder Corona !
+
+tot nu toe..Alleen als je je aan de regels van het RIVM/overheid houdt én er 1.5 meter afstand gehouden wordt tussen personen 18+(indien je niet samenwoont) kon je gaan varen.
 
 De regels mbt het Coronavirus:
 
