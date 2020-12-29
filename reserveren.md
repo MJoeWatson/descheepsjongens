@@ -10,10 +10,13 @@ buitenboordsoldout:
 layout: reserveren
 ---
 
+Alle sloepen zijn inmiddels in de winterstalling en worden opgeknapt... In maart liggen ze weer kant en klaar in het water voor het nieuwe seizoen!
+Hopelijk tot dan :)
+
+
 Voor je reserveert, lees **éérst** de voorwaarden en reglementen goed door,   
 We hebben ook namelijk een aantal nieuwe voorwaarden.
-
-o.a: min leeftijd 24 jaar, geen alcohol aan boord*, max 6 km /uur etc.
+o.a: min leeftijd 24 jaar, geen alcohol en de max 6 km /uur etc, dat blijft uiteraard zo.
 
 [Klik **hier** voor alle voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
