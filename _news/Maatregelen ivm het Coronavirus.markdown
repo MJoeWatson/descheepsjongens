@@ -1,10 +1,10 @@
 ---
-title: Tot Volgend Jaar ! :)
+title: Corona
 date: 2020-03-18 12:25:00 +01:00
 ---
 
 
-CORONA:
+CORONA 2021
 
 We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid. 
 
@@ -35,7 +35,7 @@ wat kan per sloep:
 
 **De Antaris**
 
-Opzich groot genoeg voor 6 personen.
+Op zich groot genoeg voor 6 personen.
 
 maar ivm de corona 1,5 meter:
 
@@ -44,7 +44,7 @@ max 2 koppels en 3 kinderen.
 
 **De Oudenrijn en de Nicki sloep:**
 
-Opzich root genoeg voor max 9 a 10 personen als er geen afstand hoeft worden gehouden.
+Op zich groot genoeg voor max 9 a 10 personen als er geen afstand hoeft worden gehouden.
 
 maar ivm de corona 1,5 meter:
 
