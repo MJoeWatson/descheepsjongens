@@ -3,6 +3,13 @@ title: Corona
 date: 2020-03-18 12:25:00 +01:00
 ---
 
+Het is bijna zover...
+
+De boten worden op dit moment weer mooi opgeknapt zodat ze helemaal klaar zijn voor het nieuwe vaar seizoen!
+Einde van deze maand kan er weer gevaren worden,
+
+Paasweekend is vroeg dit jaar het eerste weekend van April (begint 2 april) en hopelijk mooi weer :)
+
 
 CORONA 2021
 
