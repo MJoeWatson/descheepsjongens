@@ -4,24 +4,28 @@ permalink: "/prijzen"
 layout: prijzen
 ---
 
-Alle sloepen hebben de zelfde prijs, electrische sloepen en benzine motorsloepen,
+Alle sloepen hebben de zelfde prijs, elektrische sloepen en benzine motorsloepen,
+
+### ochtend €85,-
+
+#### 10.00 - 13.00 uur (3 uur)
+
 
 ### Middag €100,-
 
-#### 12:00 - 16:30 (4,5 uur)
+#### 13.30 - 18.00 uur (4,5 uur)
 
-### Zes Uren €130,-
+### Hele dag €170,-
 
-#### 10:30 - 16:30 (6 uur) 
-
+#### 10.00 - 18.00 uur (8 uur)
 
 ### De Borg is €160,-  dat is inclusief €10,- schoonmaakborg.
 
 De sloep hebben we namelijk graag weer in de zelfde staat terug als dat deze was bij vertrek. Dan krijg je de borg ook weer terug.
 
-Bij terugkomst kun je zelf de sloep weer schoon maken; (de hele binnenkant)
+Bij terugkomst kun je zelf de sloep weer schoon maken; (de hele binnenkant)  of
 
-Wij willen het ook  voor je doen, daar is de €10,- schoonmaakborg voor.
+Wij willen het ook  voor je doen, daar is de €10,- schoonmaakborg dan voor.
 
 ~ Kleine schade en onkosten worden van de borg afgehouden.
 
