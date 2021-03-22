@@ -38,20 +38,20 @@ De sloepen worden nu extra gedesinfecteerd en u kunt zelf gebruik maken van het 
 
 We wensen iedereen een goede gezondheid toe en veel plezier op het water!
 
-wat kan per sloep:
+Wat kan per sloep:
 
 **De Antaris**
 
-Op zich groot genoeg voor 6 personen.
+Op zich groot genoeg voor 6 personen, maar...
 
-maar ivm de corona 1,5 meter:
+ivm de corona 1,5 meter:
 
 max 3 "afzonderlijke"  personen of 2 samenwonende koppels of 
 max 2 koppels en 3 kinderen. 
 
 **De Oudenrijn en de Nicki sloep:**
 
-Op zich groot genoeg voor max 9 a 10 personen als er geen afstand hoeft worden gehouden.
+Op zich groot genoeg voor max 9 a 10 personen als er geen afstand hoeft worden gehouden....
 
 maar ivm de corona 1,5 meter:
 
