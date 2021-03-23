@@ -36,8 +36,6 @@ Middag 13.30-18.00 uur   ( 4,5 uren €100-)
  
 Als er wat veranderd melden we het hier.
 
-**Op dagen die niet vermeld staan zijn de sloepen alle dagdelen -vooralsnog - vrij**
-
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
 Bij een gemaakte reservering sturen we de bevestiging met de informatie die je nodig hebt,
 We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
