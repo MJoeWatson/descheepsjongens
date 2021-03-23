@@ -25,10 +25,13 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 ### Beschikbaarheid: update:
 
-De tijden zijn weer alsvanouds,
+De tijden zijn weer als van ouds Wordt aangepast dus geef voor nu even aan in het berichtvak of je de **ochtend, middag of hele dag wilt varen **
+tussentijden zijn niet meer mogelijk 
  
 Hele dag 10.00-18.00 uur ( 8 uren €170,- )
+
 Ochtend 10.00-13.00 uur  (3 uren €85,-)
+
 Middag 13.30-18.00 uur   ( 4,5 uren €100-)
  
 Als er wat veranderd melden we het hier.
