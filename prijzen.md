@@ -40,7 +40,7 @@ Als er om een andere reden geannuleerd wordt vragen we €20,- service kosten.
 
 Indien wij speciaal voor de vaartocht bij de sloep aanwezig  zijn en de vaartocht gaat niet door of je komt niet opdagen, wordt óf het hele huurbedrag berekend óf €20,- de reserverings /service onkosten gerekend.
 
-~ Een extra uur bij huren is soms mogelijk,dit in overleg, €25,-per uur.  Vooraf te reserveren.
+~ Een extra uur bij huren is soms mogelijk,dit in overleg, €30,-per uur.  Vooraf te reserveren.
 
 ~Cadeaubonnen zijn te bestellen via reservering formulier of een email.
 We hebben cadeaubonnen voor:
