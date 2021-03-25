@@ -10,7 +10,8 @@ buitenboordsoldout:
 layout: reserveren
 ---
 
-Alle sloepen worden al mooi!... Eind maart liggen de meeste weer kant en klaar in het water voor het nieuwe seizoen!
+Eind maart liggen een aantal sloepen weer in het water voor het nieuwe seizoen! 
+
 Hopelijk tot dan :)
 
 Voor je reserveert, lees **éérst** de voorwaarden en reglementen goed door,   
@@ -23,16 +24,12 @@ bv min leeftijd 24 jaar, geen alcohol en de max 6 km /uur etc, dat blijft uitera
 
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
-### Beschikbaarheid: update:
+### Beschikbaarheid: update: 
 
-De tijden zijn weer als van ouds Wordt aangepast dus geef voor nu even aan in het berichtvak of je de **ochtend, middag of hele dag wilt varen **
-tussentijden zijn niet meer mogelijk 
- 
-Hele dag 10.00-18.00 uur ( 8 uren €170,- )
+Vanaf eind maart zijn de sloepen weer te reserveren;
+16 april gaat het officiële landelijke vaarseizoen weer van start en en gaan ook de sluizen weer open.
+Tot 16 April kan er gewoon gevaren worden,  maar dan tot de sluizen Oudewater, Montfoort, Woerdense Verlaat, Bodegraven of Harmelen. .
 
-Ochtend 10.00-13.00 uur  (3 uren €85,-)
-
-Middag 13.30-18.00 uur   ( 4,5 uren €100-)
  
 Als er wat veranderd melden we het hier.
 
