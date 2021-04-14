@@ -110,5 +110,7 @@ Je vaart de route naar Woerden, daar ben je na ruim een uur,
 Je hebt dan de keuze een stukje van een van de richtingen op te gaan,
 dat is aan jullie, Halverwege de tijd keer je weer om, om te genieten van de terugreis.
 
+ Highlights in Woerden
 
+[](https://www.beleefwoerden.com/nl/wat-te-zien/historische-highlights)
  
