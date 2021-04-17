@@ -3,21 +3,20 @@ title: nieuws
 date: 2020-03-18 12:25:00 +01:00
 ---
 
-Het is bijna zover...
+Het is zover!
 
-De boten zijn deze winter in de loods geweest voor onderhoud zodat ze helemaal klaar zijn voor het nieuwe vaar seizoen!
-Vanaf einde van deze maand kan er weer gevaren worden,
+De boten zijn klaar voor het nieuwe vaar seizoen!
+Er kan weer gevaren worden,
 
-Paasweekend is vroeg dit jaar het eerste weekend van April (begint 2 april) en hopelijk mooi weer.
+Het officiële vaarseizoen is begonnen dat betekend dat de sluizen ook weer bediend worden.
 
 
 CORONA 2021
 
-We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid. 
+We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid en kijken uit naar de versoepelingen.
 
-Hopelijk in het nieuwe seizoen minder Corona !
-
-tot nu toe..Alleen als je je aan de regels van het RIVM/overheid houdt én er 1.5 meter afstand gehouden wordt tussen personen 18+(indien je niet samenwoont) kon je gaan varen.
+Regels die nu gelden:
+Huishoudens / gezinnen mogen samen in een boot of anders alleen 2 afzonderlijke personen, met afstand van 1,5 meter.
 
 De regels mbt het Coronavirus:
 
@@ -46,8 +45,11 @@ Op zich groot genoeg voor 6 personen, maar...
 
 ivm de corona 1,5 meter:
 
-max 2 "afzonderlijke"  personen of 2 samenwonende koppels of 
-max 2 personen en voor kinderen geen beperkingen.
+Huishouden/gezin
+
+max 2 "afzonderlijke"  personen 
+voor kinderen geen beperkingen.
+
 
 **De Oudenrijn en de Nicki sloep:**
 
@@ -55,7 +57,7 @@ Op zich groot genoeg voor max 9 a 10 personen als er geen afstand hoeft worden g
 
 maar ivm de corona 1,5 meter:
 
-bv.1 koppel met thuis wonende of jonge kinderen.
-max. 2 "afzonderlijke" volwassen personen en voor kinderen geen beperkingen.
+Een huishouden/gezin.
+max. 2 "afzonderlijke" personen en voor kinderen geen beperkingen.
 
 
