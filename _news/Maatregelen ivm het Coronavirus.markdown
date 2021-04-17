@@ -9,14 +9,14 @@ De boten zijn klaar voor het nieuwe vaar seizoen!
 Er kan weer gevaren worden,
 
 Het officiële vaarseizoen is begonnen en de sluizen worden ook weer bediend.
-
+Reserveren gaat eenvoudig via de site.
 
 CORONA 2021
 
-We houden het nieuws nauwlettend in de gaten en we houden ons aan de richtlijnen van het RIVM en de overheid en kijken uit naar de versoepelingen.
-
 Regels die nu gelden:
-Huishoudens / gezinnen mogen samen in een boot of anders alleen 2 afzonderlijke personen, met afstand van 1,5 meter.
+
+Huishoudens / gezinnen mogen samen in een boot of 
+2 afzonderlijke personen, met afstand van 1,5 meter.
 
 De regels mbt het Coronavirus:
 
