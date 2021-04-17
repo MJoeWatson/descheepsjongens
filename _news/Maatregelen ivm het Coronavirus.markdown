@@ -8,7 +8,7 @@ Het is zover!
 De boten zijn klaar voor het nieuwe vaar seizoen!
 Er kan weer gevaren worden,
 
-Het officiële vaarseizoen is begonnen dat betekend dat de sluizen ook weer bediend worden.
+Het officiële vaarseizoen is begonnen en de sluizen worden ook weer bediend.
 
 
 CORONA 2021
