@@ -10,17 +10,19 @@ buitenboordsoldout:
 layout: reserveren
 ---
 
-Eind maart liggen een aantal sloepen weer in het water voor het nieuwe seizoen! 
+Klaar voor het nieuwe seizoen! 
+Er kan weer gereserveerd worden :)
 
-Hopelijk tot dan :)
 
-Voor je reserveert, lees **éérst** de voorwaarden en reglementen goed door,   
-We hebben ook namelijk een aantal nieuwe voorwaarden.
-bv min leeftijd 24 jaar, geen alcohol en de max 6 km /uur etc, dat blijft uiteraard zo.
+Voor je reserveert, lees **éérst** de voorwaarden en reglementen goed door;
+   
+We hebben alles wat je weten moet voordat je gaat varen op een rij gezet voor jullie,
+
+*Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van hoe het werkt, wat echt belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden!
 
 [Klik **hier** voor alle voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
-*Als de reservering is gemaakt gaan we er dus vanuit dat u op de hoogte bent van de regels en gaat u **akkoord** met onze voorwaarden!
+
 
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
