@@ -18,7 +18,7 @@ Voor je reserveert, lees **éérst** de voorwaarden en reglementen goed door;
    
 We hebben alles wat je weten moet voordat je gaat varen op een rij gezet voor jullie,
 
-*Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van hoe het werkt, wat echt belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden!
+*Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van hoe het werkt, wat **echt** belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden!
 
 [Klik **hier** voor alle voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
@@ -28,9 +28,8 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 ### Beschikbaarheid: update: 
 
-Vanaf eind maart zijn de sloepen weer te reserveren;
-16 april gaat het officiële landelijke vaarseizoen weer van start en en gaan ook de sluizen weer open.
-Tot 16 April kan er gewoon gevaren worden,  maar dan tot de sluizen Oudewater, Montfoort, Woerdense Verlaat, Bodegraven of Harmelen. .
+De sloepen kunnen weer gereserveerd worden,
+16 april is het officiële landelijke vaarseizoen weer van start gegaan en ook de sluizen gaan weer open.
 
  
 Als er wat veranderd melden we het hier.
