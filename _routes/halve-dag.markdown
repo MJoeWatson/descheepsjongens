@@ -17,6 +17,9 @@ Bij de Oostdam is de dam (nog) massief en de brug bij het kasteel is te laag; Je
 
 Let op:  In een Halve dag vanuit Woerden vaar je **tot** de sluizen en niet er doorheen! 
 
+**Let op.. van Maandag t/m vrijdag is de doorgang naar Oudewater gestremd.. 
+in het weekend wel doorvaarbaar.
+waarschijnlijk tot 4 juni duren de werkzaamheden.**
 
 ### Route Harmelen
 #### Tijd: Heen en weer, 2,5 uur
