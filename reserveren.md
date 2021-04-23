@@ -10,8 +10,13 @@ buitenboordsoldout:
 layout: reserveren
 ---
 
-Klaar voor het nieuwe seizoen! 
-Er kan weer gereserveerd worden :)
+Klaar voor het nieuwe seizoen! Er kan weer gereserveerd worden :)
+
+Er zijn een aantal stremmingen, houd hier rekening mee met het plannen van je vaartocht.
+
+zie bij het kopje Nieuws op deze site [nieuws] (http://https://descheepsjongens.nl/news) 
+
+En op vaarweginformatie.nl staan alle actuele stremmingen gemeld.
 
 
 Voor je reserveert, lees **éérst** de voorwaarden en reglementen goed door;
@@ -21,7 +26,6 @@ We hebben alles wat je weten moet voordat je gaat varen op een rij gezet voor ju
 *Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van hoe het werkt, wat **echt** belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden!
 
 [Klik **hier** voor alle voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
-
 
 
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
