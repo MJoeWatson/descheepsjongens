@@ -3,9 +3,9 @@ title: Stremmingen van de vaarwegen
 date: 2020-04-05 23:11:00 +02:00
 ---
 
-**Op doordeweekse dagen is er voorlopig geen rondje Oudewater- Montfoort mogelijk, naar verwachting 4 juni werkzaamheden afgerond.**
+**Op doordeweekse dagen is er voorlopig geen doorgang naar Oudewater en geen rondje Oudewater- Montfoort mogelijk, naar verwachting zijn 4 juni de werkzaamheden afgerond.**
 
- **~Doorgang naar Oudewater is voorlopig op Maandag t/m Vrijdag op de De Lange Linschoten gestrem, wegens onderhoud van de kade.
+ **~Doorgang naar Oudewater is voorlopig op Maandag t/m Vrijdag op de De Lange Linschoten gestremd, wegens onderhoud van de kade.
 In het weekend doorvaarbaar en een rondje varen mogelijk.~**
 
 **De Goejanwelle sluis in Hekendorp is kapot en wordt gerepareerd, .is voorlopig gesloten.** **Rondje Hekendorp is niet mogelijk tot nader bericht.
