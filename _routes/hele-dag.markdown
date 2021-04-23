@@ -4,6 +4,8 @@ date: 2020-03-18 16:02:00 +01:00
 position: 2
 ---
 
+Houd bij het plannen van de route rekening met de actuele stremmingen , zie bij "nieuws" .op deze site
+
 ## Vanuit Woerden : 
 
 ### Nieuwkoopse plassen
