@@ -19,7 +19,8 @@ Regels die nu gelden:
 
 Huishoudens / gezinnen mogen samen in een boot of 
 2 afzonderlijke personen, met afstand van 1,5 meter.
-vanaf Woensdag 28 april kunnen er 2 stellen/ kleine huishoudens in een sloep alleen indien er 1,5 meter afstand wordt gehouden tussen de verschillende huishoudens! 
+
+vanaf Woensdag 28 april kunnen er 2 stellen/ kleine huishoudens (max 5 volwassenen)in een sloep alleen indien er 1,5 meter afstand wordt gehouden tussen de verschillende huishoudens! 
 
 De regels mbt het Coronavirus:
 
