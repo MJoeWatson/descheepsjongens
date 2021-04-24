@@ -48,7 +48,8 @@ Vanaf de sluis en loop je over het jaagpad in ong 7 minuten naar het centrum, of
 Door de bomen langs het water, is er op warme dagen ook wat schaduw.
 
 
-### Linschoten, Oudewater
+### Linschoten, Oudewater let op: ma t/m vr gestremd tot 4 juni 2021
+
 #### Tijd: Heen en weer, 4,5 uur
 
 **Vaarkaarten:**
@@ -74,6 +75,7 @@ er zijn daar lekkere ijsjes te koop trouwens ...
 [Klik hier voor de routekaart naar Bodegraven](/uploads/route-Bodegraven-De-Scheepsjongens.pdf)
 
 **Brug en Sluistijden: Brug Bodegraven (Vrije doorgang)**
+in een halve dag  is de route **tot** de sluis
 
 **Beschrijving:**
 
@@ -88,7 +90,7 @@ Voorheen heette deze route de Romeinse Limes en dit was de echte noordgrens van 
 
 **Brug en Sluistijden:**
 
-De sluis in Montfoort wordt op afroep, door vrijwilligers, bediend; De sluis doorgaan kost wel wat tijd, en er wordt heen én terug een bijdrage van €3 euro gevraagd; 
+De sluis in Montfoort wordt op afroep door vrijwilligers, bediend; De sluis doorgaan kost wel wat tijd, en er wordt heen én terug een bijdrage van €3 euro gevraagd; 
 
 **Beschrijving:**
 
