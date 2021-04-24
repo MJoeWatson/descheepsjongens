@@ -6,7 +6,9 @@ date: 2020-03-18 12:25:00 +01:00
 Het is zover!
 
 De boten zijn klaar voor het nieuwe vaar seizoen!
-Er kan weer gevaren worden,
+Er kan weer gevaren worden.
+
+
 * let op, er zijn stremmingen!voor meer info zie hieronder.
 
 Reserveren gaat eenvoudig via de site.
@@ -17,6 +19,7 @@ Regels die nu gelden:
 
 Huishoudens / gezinnen mogen samen in een boot of 
 2 afzonderlijke personen, met afstand van 1,5 meter.
+vanaf Woensdag 28 april kunnen er 2 stellen/ kleine huishoudens in een sloep alleen indien er 1,5 meter afstand wordt gehouden tussen de verschillende huishoudens! 
 
 De regels mbt het Coronavirus:
 
