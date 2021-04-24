@@ -10,6 +10,8 @@ Houd bij het plannen van de route rekening met de actuele stremmingen , zie bij 
 
 ### Nieuwkoopse plassen
 
+**let op tot 13 mei is de Slikkendam sluis in Woerdense verlaat in onderhoud dus route gestremd **
+
 #### Tijd: Rondje, bijna 8 uur varen, (incl wachttijden bij de sluizen)
 
 **Vaarkaarten**
@@ -18,7 +20,7 @@ Houd bij het plannen van de route rekening met de actuele stremmingen , zie bij 
 
 **Brug en Sluistijden:**
 
-1. Sluis Slikkendam Woerdenseverlaat
+1. Sluis Slikkendam Woerdenseverlaat (normaal) 
 
  10.00 - 12.00
  13.00 - 17.00
@@ -55,7 +57,9 @@ De informatie van OHWL is heel interessant bij deze route.
 [https://oudehollandsewaterlinie.nl/routes/de-luxembourg-vaarroute/](https://oudehollandsewaterlinie.nl/routes/de-luxembourg-vaarroute/)
 
 
-### Linschoten, Oudewater, Montfoort
+### Linschoten, Oudewater, Montfoort 
+
+***Alleen in het weekend mogelijk tot 4 juni 2021.**
 
 #### Tijd: 6 uur varen, 2 uur vrije tijd
 
@@ -79,7 +83,10 @@ Je kan het nr bellen dat op het bord staat kost €3,- euro.
 
 Populaire en leuke route langs Historische dorpen / stadjes, Linschoten, Montfoort en Oudewater.
 
-### Rondje Oudewater, Hekendorp , Nieuwerbrug.
+### Rondje Oudewater, Hekendorp , Nieuwerbrug. rondje niet mogelijk van maart tot nader bericht) 
+
+**Let op, de Goejanwelle sluis is in onderhoud, voorlopig geen doorgang! **
+
 #### Tijd: Rondje, 7,5 uur varen vanuit Woerden
 
 
