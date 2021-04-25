@@ -1,10 +1,10 @@
 ---
 title: Reserveren
 permalink: "/reserveren"
-soldout: '27/03/2020
+soldout: '27/04/2021
 
 '
-electricsoldout: 21/5/2020
+electricsoldout: 27/03/2021
 buitenboordsoldout:
 - 
 layout: reserveren
