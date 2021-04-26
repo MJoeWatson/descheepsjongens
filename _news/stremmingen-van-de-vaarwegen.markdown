@@ -3,15 +3,15 @@ title: Stremmingen van de vaarwegen
 date: 2020-04-05 23:11:00 +02:00
 ---
 
-**Op doordeweekse dagen is er voorlopig geen doorgang naar Oudewater en geen rondje Oudewater- Montfoort mogelijk, naar verwachting zijn 4 juni de werkzaamheden afgerond.**
+**Doorgang naar Oudewater is op Maandag t/m Vrijdag gestremd wegens werzaamheden aan de kade van de De Lange Linschoten.**
 
- **~Doorgang naar Oudewater is voorlopig op Maandag t/m Vrijdag op de De Lange Linschoten gestremd, wegens onderhoud van de kade.
-In het weekend doorvaarbaar en een rondje varen mogelijk.~**
+**In het weekend is de Lange Linschoten wel doorvaarbaar.** 
 
-**De Goejanwelle sluis in Hekendorp is kapot en wordt gerepareerd, .is voorlopig gesloten.** **Rondje Hekendorp is niet mogelijk tot nader bericht.
+**De Goejanwelle sluis in Hekendorp is kapot en wordt gerepareerd en is voorlopig gesloten. 
+Rondje Hekendorp is niet mogelijk tot nader bericht.**
 
-**De Sluis Slikkendam in Woerdense verlaat is voorlopig gesloten voor onderhoud.** Een rondje Nieuwkoopseplassen is niet mogelijk, tot nader bericht.**
+**De Slikkendammer sluis in Woerdense verlaat is voorlopig gesloten voor onderhoud.** Een rondje Nieuwkoopseplassen is niet mogelijk, tot 13 mei 2021**
 
-Actuele info is te lezen op vaarweginformatie.nl
+Actuele info is te vinden op vaarweginformatie.nl
 
-verdere actuele info over de vaarwegen in de buurt van het HDSR is te zien op de site https://www.hdsr.nl/werk/recreatie/varen/
+
