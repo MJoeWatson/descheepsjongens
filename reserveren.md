@@ -32,7 +32,7 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 ### Beschikbaarheid: update: 
 
-Koningsdag 27 april  zijn alle sloepen gereserveerd, voor alle andere dagen kan er gereserveerd worden. 
+Woensdag middag 28 april zijn alle sloepen gereserveerd, voor alle andere dagen kan er gereserveerd worden. 
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
 Bij een gemaakte reservering sturen we de bevestiging met de informatie die je nodig hebt,
