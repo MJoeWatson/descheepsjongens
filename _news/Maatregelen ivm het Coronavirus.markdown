@@ -8,7 +8,6 @@ Het is zover!
 De boten zijn klaar voor het nieuwe vaar seizoen!
 Er kan weer gevaren worden.
 
-
 * let op, er zijn stremmingen!voor meer info zie hieronder.
 
 Reserveren gaat eenvoudig via de site.
@@ -17,21 +16,18 @@ CORONA 2021
 
 Regels die nu gelden:
 
-Huishoudens / gezinnen mogen samen in een boot of 
-2 afzonderlijke personen, met afstand van 1,5 meter.
-
 vanaf Woensdag 28 april kunnen er 2 stellen/ kleine huishoudens (max 5 volwassenen)in een sloep alleen indien er 1,5 meter afstand wordt gehouden tussen de verschillende huishoudens! 
 
 De regels mbt het Coronavirus:
 
 1. ~Volg de richtlijnen van het RIVM
 2. ~ Voelt u zich niet lekker of bent u verkouden of heeft u koorts, ga er niet op uit, blijf thuis!
-3. ~ Als je onderweg aanlegt of uitstapt houdt je aan de regels, neem zelf je picknickmand mee, of bestel deze bij een lokaal restaurant; 
+3. ~ Als je onderweg aanlegt of uitstapt houdt je aan de regels, neem zelf je picknickmand mee, of bestel deze bij een lokaal restaurant to go.; 
 4. ~ Kom niet met het openbaar vervoer.
-5. ~ Koppels/gezinnen die samen wonen mogen samen in de sloep, volwassenen moeten nog steeds 1,5 m afstand houden van elkaar
 Het is aan jullie zelf om de goede afstand in de sloep te bewaren.
 
-6. Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven. Houdt afstand aub;
+6. Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven. Houdt afstand;
+
 Een persoon is welkom voor de intake,  de rest van het gezelschap mag alvast naar de hun toegewezen boot en aldaar volgt de uitleg en worden alle vragen beantwoord over boot en routes.
 
 7. Zoals altijd maken we de boten voor en na iedere vaart schoon.
@@ -49,10 +45,12 @@ Op zich groot genoeg voor 6 personen, maar...
 
 ivm de corona 1,5 meter:
 
-Huishouden/gezin
+- Een Huishouden/gezin van max 6 á 7 personen
 
-max 2 "afzonderlijke"  personen 
-voor kinderen geen beperkingen.
+- max 2 "afzonderlijke"  personen 
+  voor kinderen geen beperkingen.
+
+- Een koppel en 1 afzonderlijk persoon aan de andere zijde van de boot.
 
 
 **De Oudenrijn en de Nicki sloep:**
@@ -61,7 +59,10 @@ Op zich groot genoeg voor max 9 a 10 personen als er geen afstand hoeft worden g
 
 maar ivm de corona 1,5 meter:
 
-Een huishouden/gezin.
-max. 2 "afzonderlijke" personen en voor kinderen geen beperkingen.
+- Een huishouden/gezin van max 9 á 10 personen.
+
+- max. 2 "afzonderlijke" personen en voor kinderen geen beperkingen.
+
+- 2 koppels, ieder aan een kant van de boot.
 
 
