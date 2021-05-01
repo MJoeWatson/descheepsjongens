@@ -50,7 +50,8 @@ ivm de corona 1,5 meter:
 - max 2 "afzonderlijke"  personen 
   voor kinderen geen beperkingen.
 
-- Een koppel en 1 afzonderlijk persoon aan de andere zijde van de boot & evt. kinderen
+- 2 koppels, ieder aan een kant van de boot & evt. kinderen.
+
 
 
 **De Oudenrijn en de Nicki sloep:**
