@@ -19,7 +19,7 @@ zie bij het kopje Nieuws op deze site [nieuws] (http://https://descheepsjongens.
 En op vaarweginformatie.nl staan alle actuele stremmingen gemeld.
 
 
-Voor je reserveert, lees **éérst** de voorwaarden en reglementen & instructie goed door;
+Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie goed door;
    
 We hebben alles wat je weten moet voordat je gaat varen namelijk op een rij gezet voor jullie, Het is een soort korte cursus.
 
