@@ -11,7 +11,7 @@ De cadeaubonnen zijn na bestelling op afspraak op te halen in Harmelen, Haanwijk
 
 Bij een bon voor een halve of een hele dag (€100.- / €170,-) Krijg je een leuke kapiteinspet!
 
-We kunnen de bon ook opsturen, zonder pet.
+We kunnen de bon ook opsturen, dan zonder pet of evt. met verzend kosten €6,95
 
 Wanneer het plan er is om te varen kan er op de gewenste dag een reservering gemaakt te worden via de site.
 
