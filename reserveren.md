@@ -19,9 +19,9 @@ zie bij het kopje Nieuws op deze site [nieuws] (http://https://descheepsjongens.
 En op vaarweginformatie.nl staan alle actuele stremmingen gemeld.
 
 
-Voor je reserveert, lees **éérst** de voorwaarden en reglementen goed door;
+Voor je reserveert, lees **éérst** de voorwaarden en reglementen & instructie goed door;
    
-We hebben alles wat je weten moet voordat je gaat varen op een rij gezet voor jullie,
+We hebben alles wat je weten moet voordat je gaat varen namelijk op een rij gezet voor jullie, Het is een soort korte cursus.
 
 *Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van hoe het werkt, wat **echt** belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden!
 
