@@ -26,7 +26,7 @@ De regels mbt het Coronavirus:
 4. ~ Kom niet met het openbaar vervoer.
 Het is aan jullie zelf om de goede afstand in de sloep te bewaren.
 
-6. Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven. Houdt afstand;
+6. Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven. Houd afstand;
 
 Een persoon is welkom voor de intake,  de rest van het gezelschap mag alvast naar de hun toegewezen boot en aldaar volgt de uitleg en worden alle vragen beantwoord over boot en routes.
 
