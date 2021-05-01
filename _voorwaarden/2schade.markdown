@@ -1,5 +1,5 @@
 ---
-title: 2. Wat is ook belangrijk om te weten...
+title: 2. Wat is ook belangrijk om te weten vóór vertrek...
 date: 2020-03-18 12:25:00 +01:00
 ---
 
