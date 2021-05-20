@@ -32,8 +32,7 @@ waar iedereen van ip de hoogte moet zijn.
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
 ### Beschikbaarheid: update: 
-
-Elke dag nog sloepen beschikbaar.
+Mandag 29 mei zijn er in de middag vooralsnog, geen sloepen meer beschikbaar
 
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
