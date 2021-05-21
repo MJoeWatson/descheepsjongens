@@ -36,27 +36,28 @@ Bij uitstappen/ langslopen daarom de sloep **uitzetten** met de sleutel.
 
 8) Als je door een **sluis of brug** vaart, houdt rekening met de **openingstijden**:   ~sluizen en bruggen worden soms op vaste tijden geopend. Let goed op de laatste doorvaar mogelijkheid en dat je de **goede route** vaart.
 Wijk niet van de vaarroutes af ivm ondiepe sloten en te lage bruggen.--> schade
--Een heel rondje om de stad Woerden kan niet, de brug bij het kasteel is te laag..
+-Een heel rondje om de stad Woerden kan (nog!)niet, de brug bij het kasteel is te laag..
 
 In de **sluis** de sloep **niet vast binden** maar laten vieren.
 U mag bij het naderen van de sluis geen andere boten voorbijvaren. Bij de wachtplaats van een sluis mag je ligplaats nemen alleen om te schutten. Binnenvaren gaat in volgorde van aankomst.
 
 9) Er wordt bij sluizen en bruggen vaak een paar euro **tol** gevraagd en bij de Nieuwkoopse plassen een bijdrage voor natuurbeheer.
 
-Goed oppassen of de sloep onder de brug past, sommigen bruggen zijn echt te laag (vooral het stuur of de voorkant Van de sloep!) en pas op uw hoofd, buk tijdig wanneer nodig.
+Volg de aangegeven route, en goed oppassen of de sloep onder de brug past, sommigen bruggen zijn echt te laag, vooral het stuur of de voorkant Van de sloep!
+(bv Het middendeel bij de blauwe brug bij Harmelen en de brug bij het kasteel Woerden zijn te laag) en pas op uw hoofd, buk tijdig wanneer nodig.
  
 Vaar niet samen met een andere boot onder een brug i.v.m. golfslag/hoofd stoten.
 
-10) We onderhouden de sloepen goed en het gebeurd niet vaak, maar een technische storing of **pech** **kán** voorkomen, dat is overmacht. We proberen het dan uiteraard zo goed mogelijk op te lossen. We vragen dan ook jullie **begrip** hiervoor. Als pech onderweg overmacht is regelen we uiteraard wat met de huurkosten, restitutie van de niet gevaren tijd, (niet bij nalatigheid)
+10) We onderhouden de sloepen goed en het gebeurd niet vaak, maar een technische storing of **pech** **kán** voorkomen, dat is overmacht. We proberen het dan uiteraard zo goed mogelijk op te lossen. We vragen dan ook jullie **begrip** hiervoor. Als pech onderweg overmacht is* regelen we uiteraard wat met de huurkosten, restitutie van de niet gevaren tijd, (*niet bij nalatigheid)
 
 -Als er een sloep niet meer inzetbaar blijkt, dan zullen we degene van desbetreffende sloep, of indien mogelijk, de laatst geboekte reservering helaas moeten cancelen. gebeurd bijna nooit maar vragen jullie begrip.
 
 11) Er gelden voorlopig **nieuwe extra regels** ivm het corona virus die te lezen zijn bij nieuws / maatregelen mbt het corona virus / **corona update**. Indien wij als onderneming een boete krijgen omdat er ondanks onze regels iets niet wordt nageleefd wordt dit verhaald op de huurder.
 
-13) Als het slecht weer is kan de vaartocht **in overleg met ons op de dag zelf** kosteloos verplaatst of geannuleerd worden; 
+13) Als het slecht weer is, regen / veel wind kan de vaartocht **in overleg op de dag zelf** kosteloos verplaatst of geannuleerd worden; 
 let wel:
 
-Indien wij daar **speciaal** naar het vertrekpunt komen en er de vaartocht gaat **niet door**, dan rekenen we de gemaakte **kosten**. 
+Indien wij daar **speciaal** naar het vertrekpunt komen en er gekozen wordt de vaartocht **niet door**, tr laten gaan, dan rekenen we de gemaakte **kosten**. 
 Het **hele gereserveerde dagdeel**  óf de **service kosten á €20,-**, Dit voor ons om te bepalen.
 
 14) Als de reservering gemaakt is gaat de huurder **akkoord** met **al deze voorwaarden.**
