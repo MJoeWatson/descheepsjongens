@@ -22,7 +22,7 @@ En op vaarweginformatie.nl staan alle actuele stremmingen gemeld.
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie goed door; [](https://descheepsjongens.nl/voorwaarden)
    
 We hebben alles wat je weten moet voordat je gaat varen namelijk op een rij gezet voor jullie, Het is een soort korte cursus/ instructie eigenlijk.
-waar iedereen van ip de hoogte moet zijn.
+waar iedereen van op de hoogte moet zijn.
 
 *Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van hoe het werkt, wat **echt** belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden!
 
