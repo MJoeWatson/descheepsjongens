@@ -8,15 +8,14 @@ Het is zover!
 De boten zijn klaar voor het nieuwe vaar seizoen!
 Er kan weer gevaren worden.
 
-* let op, er zijn stremmingen!voor meer info zie hieronder.
+* let op, er zijn wat stremmingen!voor meer info zie hieronder.
 
 Reserveren gaat eenvoudig via de site.
 
 CORONA 2021
 
 Regels die nu gelden:
-
-vanaf Woensdag 28 april kunnen er 2 stellen/ kleine huishoudens (max 5 volwassenen)in een sloep alleen indien er 1,5 meter afstand wordt gehouden tussen de verschillende huishoudens! 
+Er kunnen 2 stellen/ kleine huishoudens in een sloep, alleen indien er 1,5 meter afstand wordt gehouden tussen de verschillende huishoudens! 
 
 De regels mbt het Coronavirus:
 
@@ -47,10 +46,8 @@ ivm de corona 1,5 meter:
 
 - Een Huishouden/gezin van max 6 á 7 personen
 
-- max 2 "afzonderlijke"  personen 
-  voor kinderen geen beperkingen.
-
-- 2 koppels, ieder aan een kant van de boot & evt. kinderen.
+- max 2 "afzonderlijke"  personen of 2 samenwonende stellen/ kleine huishoudens,  
+ieder aan een kant van de boot & evt. enkele kinderen.
 
 
 
