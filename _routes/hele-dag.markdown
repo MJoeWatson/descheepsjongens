@@ -95,8 +95,11 @@ vaarkaart: [route Hekendorp De Scheepsjongens.pdf](/uploads/route%20Hekendorp%20
 Deze ronde is bijna 8 vaar uren, je komt 2 x een sluis tegen en een spoorbrug op de dubbele Wiericke 
 let op :deze spoorbrug  heeft beperkte openingstijden!. Door de weeks en zaterdag is 17.00 uur de laatste doorgang.
 Op zondag alleen geopend van 14.00-16.00 uur!
+In Hekendorp kom je door de Goejanverwelle sluis.
+Bedieningstijden zondag en maandag 14.00-17.30 uur  
+di,wo,do,vr,za 9.00 uur-18.30 uur
 
-**De Route Prins willem III van de OHWL is ook deze route, alleen daar ga je, ipv naar Gouda, nu bij Hekendop rechtsaf, de Dubbele Wiericke op, daardoor is deze hele route in 1 dag te doen.
+**De Route Prins willem III van de OHWL is ook deze route, alleen daar ga je, ipv naar Gouda, nu bij Hekendorp rechtsaf, de Dubbele Wiericke op, daardoor is deze hele route in 1 dag te doen.
 
 Hieronder de link, met leuke en interessante informatie. 
 
