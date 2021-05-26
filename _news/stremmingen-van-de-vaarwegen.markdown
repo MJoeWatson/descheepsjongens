@@ -7,7 +7,7 @@ date: 2020-04-05 23:11:00 +02:00
 
 **In het weekend is de Lange Linschoten wel doorvaarbaar.** 
 
-**De Goejanwelle sluis in Hekendorp is kapot en wordt gerepareerd en is voorlopig gesloten. 
+**De Goejanverwelle sluis in Hekendorp is kapot en wordt gerepareerd en is voorlopig gesloten. 
 Rondje Hekendorp is niet mogelijk tot nader bericht.**
 
 **De Slikkendammersluis in Woerdense verlaat is weer gemaakt en kan weer open**
