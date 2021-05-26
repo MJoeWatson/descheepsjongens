@@ -63,6 +63,6 @@ Het **hele gereserveerde dagdeel**  óf de **service kosten á €20,-**, Dit vo
 
 14) Als de reservering gemaakt is gaat de huurder **akkoord** met **al deze voorwaarden.**
 
-en...Veel pelzier, geniet ervan!
+en...Veel plezier, geniet ervan!
 
 Groet, de Scheepsjongens
