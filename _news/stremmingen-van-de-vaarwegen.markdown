@@ -10,7 +10,7 @@ date: 2020-04-05 23:11:00 +02:00
 **De Goejanwelle sluis in Hekendorp is kapot en wordt gerepareerd en is voorlopig gesloten. 
 Rondje Hekendorp is niet mogelijk tot nader bericht.**
 
-**De Slikkendammersluis in Woerdense verlaat is voorlopig gesloten voor onderhoud.** Een rondje Nieuwkoopseplassen is niet mogelijk, tot 13 mei 2021**
+**De Slikkendammersluis in Woerdense verlaat is weer gemaakt en kan weer open**
 
 Actuele info is te vinden op vaarweginformatie.nl
 
