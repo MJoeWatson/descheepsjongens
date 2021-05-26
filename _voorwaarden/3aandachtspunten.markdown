@@ -5,11 +5,11 @@ date: 2020-03-18 12:25:00 +01:00
 
 Bij ons op het water gelden uiteraard ook de algemene landelijke vaarregels;
 
-Vaar **in het midden**, dit i.v.m. de soms **ondiepe kanten** en de vele planten waarin je vast kan komen te zitten, maar, als er **tegenliggers** komen of als een sloep wil **passeren** moet je wat **rechts houden**. (net zoals in het normale verkeer)
+Vaar **in het midden**, dit i.v.m. de soms **ondiepe kanten** (bv richting kasteel en onder spoorwegtunnels)  en de vele planten waarin je vast kan komen te zitten. maar, als er **tegenliggers** komen of als een sloep wil **passeren** moet je wat **rechts houden**. (net zoals in het normale verkeer)
 
 Vaarverkeer dat komt vanaf **Stuurboord (rechts)** heeft **voorrang.**
 
-Geef **grote boten voorrang**, maar ook roeibootjes, kano's suppers en zwemmers geef je voorrang want **spierkracht gaat voor motorboot**.
+Geef **grote boten voorrang**, maar ook roeibootjes, kano's suppers en zwemmers hebben voorrang want **spierkracht gaat voor motorboot**.
 
 en ook hier geldt altijd, **voorrang** moet je krijgen, **niet nemen**..
 
@@ -21,22 +21,22 @@ Kinderen **zonder zwemdiploma** moeten een **zwemvest** dragen.
 
 3) **Hond** Kosten: **€ 20,- extra.** De hond mag niet op de kussens, kap ed., alleen op een eigen kleedje. 
 
-4) De kappen zijn netjes naar beneden gevouwen*, **graag zo houden.**  * Alleen bij hevige regen eventueel te gebruiken. - De kap moet altijd **binnenboord** opgevouwen zijn (i.v.m. beschadigen)
+4) De kappen zijn netjes naar beneden gevouwen*, **graag zo houden.**  * Alleen bij hevige regen eventueel te gebruiken. - De kap moet altijd **binnenboord** netjes opgevouwen zijn (i.v.m. beschadigen)
 
-*Met zon is het **net zo warm** onder de kap, je hebt weinig/geen zicht,  sommige bruggen kan je zo **niet** onderdoor !, dus beter zo opgevouwen te laten.
+*Je hebt weinig/geen zicht onder de kap, sommige bruggen kan je zo **niet** onderdoor!, en het is net zo warm daaronder.. dus beter zo opgevouwen te laten.
 
-5) **Touwen binnenboord**! Anders komen ze in de schroef terecht en draait de **motor stuk.**
+5) **Touwen binnenboord**! Anders komen ze in de schroef terecht en draait de **motor stuk!**
 
--Op de rand/ punt/ achterkant van de boot zitten of staan is te gevaarlijk; Iets of iemand achter de boot hangen is niet toegestaan. Zwemmen kan vanaf een kade of steiger langs de route, en niet vanaf de boot.
+-Op de rand/ punt/ achterkant van de boot zitten of staan is te gevaarlijk; Iets of iemand achter de boot hangen is niet toegestaan. Zwemmen kan overal in het water vanaf een kade of steiger langs de route, en niet vanaf de boot.
 
-6) Als de sloep iets **in de schroef** lijkt te hebben en niet goed vaart, dan kun je de sloep een klein moment vol in z’n **achteruit** zetten. Meestal draait het weer los. Zo niet, **motor uitzetten!** en **ons bellen** om te voorkomen dat de motor in de soep draait!! We geven dan instructies of komen naar je toe.
+6) Als de sloep iets **in de schroef** lijkt te hebben en niet goed / te langzaam vaart, dan kun je de sloep een klein moment vol in z’n **achteruit** zetten. Meestal draait het weer los. Zo niet, **motor uitzetten!** en **ons bellen** om te voorkomen dat de motor in de soep draait!! We geven dan instructies of komen naar je toe.
 
 7) De **hendel/joystick** van de stille sloepen is gevoelig, Pas op! als je de hendel **aanstoot** of er langs loopt, anders **vaart de sloep naar voor(of achter)**
 Bij uitstappen/ langslopen daarom de sloep **uitzetten** met de sleutel.
 
 8) Als je door een **sluis of brug** vaart, houdt rekening met de **openingstijden**:   ~sluizen en bruggen worden soms op vaste tijden geopend. Let goed op de laatste doorvaar mogelijkheid en dat je de **goede route** vaart.
 Wijk niet van de vaarroutes af ivm ondiepe sloten en te lage bruggen.--> schade
--Een heel rondje om de stad Woerden kan (nog!)niet, de brug bij het kasteel is te laag..
+-Een heel rondje om de stad Woerden kan (nog!)niet, de brug bij het kasteel is te laag en de Oostdam nog dicht...
 
 In de **sluis** de sloep **niet vast binden** maar laten vieren.
 U mag bij het naderen van de sluis geen andere boten voorbijvaren. Bij de wachtplaats van een sluis mag je ligplaats nemen alleen om te schutten. Binnenvaren gaat in volgorde van aankomst.
@@ -44,9 +44,10 @@ U mag bij het naderen van de sluis geen andere boten voorbijvaren. Bij de wachtp
 9) Er wordt bij sluizen en bruggen vaak een paar euro **tol** gevraagd en bij de Nieuwkoopse plassen een bijdrage voor natuurbeheer.
 
 Volg de aangegeven route, en goed oppassen of de sloep onder de brug past, sommigen bruggen zijn echt te laag, vooral het stuur of de voorkant Van de sloep!
-(bv Het middendeel bij de blauwe brug bij Harmelen en de brug bij het kasteel Woerden zijn te laag) en pas op uw hoofd, buk tijdig wanneer nodig.
+(bv Het middendeel bij de blauwe brug bij Harmelen en de brug bij het kasteel Woerden zijn te laag)  
  
 Vaar niet samen met een andere boot onder een brug i.v.m. golfslag/hoofd stoten.
+Pas op uw hoofd onder de bruggen, buk tijdig wanneer nodig.
 
 10) We onderhouden de sloepen goed en het gebeurd niet vaak, maar een technische storing of **pech** **kán** voorkomen, dat is overmacht. We proberen het dan uiteraard zo goed mogelijk op te lossen. We vragen dan ook jullie **begrip** hiervoor. Als pech onderweg overmacht is* regelen we uiteraard wat met de huurkosten, restitutie van de niet gevaren tijd, (*niet bij nalatigheid)
 
@@ -61,3 +62,7 @@ Indien wij daar **speciaal** naar het vertrekpunt komen en er gekozen wordt de v
 Het **hele gereserveerde dagdeel**  óf de **service kosten á €20,-**, Dit voor ons om te bepalen.
 
 14) Als de reservering gemaakt is gaat de huurder **akkoord** met **al deze voorwaarden.**
+
+en...Veel pelzier, geniet ervan!
+
+Groet, de Scheepsjongens
