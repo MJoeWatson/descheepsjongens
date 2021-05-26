@@ -18,7 +18,7 @@ Houd bij het plannen van de route rekening met de actuele stremmingen , zie bij 
 
 **Brug en Sluistijden:**
 
-1. Sluis Slikkendam Woerdenseverlaat (normaal) 
+1. Sluis Slikkendam Woerdenseverlaat  
 
  10.00 - 12.00
  13.00 - 17.00
