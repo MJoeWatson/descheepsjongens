@@ -57,9 +57,9 @@ De informatie van OHWL is heel interessant bij deze route.
 
 ### Linschoten, Oudewater, Montfoort 
 
-***Alleen in het weekend mogelijk tot 4 juni 2021.**
+***Alleen in het weekend mogelijk, na 4 juni ook door de weeks**
 
-#### Tijd: 6 uur varen, 2 uur vrije tijd
+#### Tijd: 6 uur varen,  dan heb je nog 2 uur vrije tijd op een dag van 8 uur.
 
 **Vaarkaarten:**
 
