@@ -10,8 +10,6 @@ Houd bij het plannen van de route rekening met de actuele stremmingen , zie bij 
 
 ### Nieuwkoopse plassen
 
-**let op tot 13 mei is de Slikkendam sluis in Woerdense verlaat in onderhoud dus route gestremd **
-
 #### Tijd: Rondje, bijna 8 uur varen, (incl wachttijden bij de sluizen)
 
 **Vaarkaarten**
