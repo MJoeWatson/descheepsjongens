@@ -34,8 +34,8 @@ Houd bij het plannen van de route rekening met de actuele stremmingen , zie bij 
 
 Voor wie van rust en natuur houdt, is dit een mooie groene route langs de rietkragen.
 
-Je vaart over de Grecht  naar de Nieuwkoopse plassen.
-Vervolgens vaar de plassen overen ga je richting Zwammerdam.
+Je vaart over de Grecht naar de Nieuwkoopse plassen.
+Vervolgens vaar de plassen over en ga je richting Zwammerdam.
  Over de Rijn via Boegraven en Nieuwerbrug weer terug. 
   Let wel onze sloepen varen **overal 6 km /uur** en het is 8 vaaruren.
 
