@@ -58,7 +58,7 @@ Pas op uw hoofd onder de bruggen, buk tijdig wanneer nodig.
 13) Als het slecht weer is, regen / veel wind kan de vaartocht **in overleg op de dag zelf** kosteloos verplaatst of geannuleerd worden; 
 let wel:
 
-Indien wij daar **speciaal** naar het vertrekpunt komen en er gekozen wordt de vaartocht **niet door**, tr laten gaan, dan rekenen we de gemaakte **kosten**. 
+Indien wij daar **speciaal** naar het vertrekpunt komen en er gekozen wordt de vaartocht **niet door**, te laten gaan, dan rekenen we de gemaakte **kosten**. 
 Het **hele gereserveerde dagdeel**  óf de **service kosten á €20,-**, Dit voor ons om te bepalen.
 
 14) Als de reservering gemaakt is gaat de huurder **akkoord** met **al deze voorwaarden.**
