@@ -30,10 +30,11 @@ waarschijnlijk tot 4 juni duren de werkzaamheden.**
 
 Alle bruggen zijn hoog genoeg voor de sloep om eronderdoor te kunnen. Bereid jullie wel voor om te bukken! 
 
-De hofbrug,(blauwe brug vlak voor Harmelen) kan je voorzichtig zachtjes onderdoor varen;  Vaar door de meest **linkse** kant als je uit Woerden komt, dit is de hoogste doorgang.(**wel bukken**) en **heel** rustig varen, gebruik de haakstok in geval van bijna tegen de kanten..
+De hofbrug,(blauwe brug vlak voor Harmelen) kan open op bepaalde schuttijden, Bediening op hele uren, 10 minuten voor de tijd aanvragen bij brugwachter via tel. 06 51383461
+Als de brug dicht is kan je **niet** onder het midden door,  maar als je heel voorzichtig bent, kun je door de meest **linkse** kant (als je uit Woerden komt), dit is de hoogste doorgang.(**wel bukken**) en **heel** rustig varen, gebruik de haakstok in geval van bijna tegen de kanten; Vanuit Harmelen, neem dezelfde, dan rechter doorgang. 
 
-De Haanwijker sluis is 100 meter verder, en wordt maar om de 2 uur bediend, op afroep.
-Dit is in een halve dag niet haalbaar, dus voor de brug of voor de sluis keer je weer om.
+De Haanwijker sluis is 100 meter verder, en wordt alleen op bepaalde tijden bediend  Bellen tijdens kantooruren, 20 min van te voren op tel. 06 51383461 (bgg 06 52370200). bediend, op afroep.
+**Dit is in een halve dag niet haalbaar, dus voor de brug of voor de sluis keer je weer om.**
 
 **Beschrijving:**
 
@@ -41,7 +42,7 @@ Het is een mooie, rustige en groene route richting het dorpje Harmelen. Je vaart
 
 Naast de Oude Rijn loopt het Jaagpad van Woerden tot Harmelen.
 
-Je kan de sloep bij de sluis draaien of je kan de boot aanleggen voor de sluis en een stukje gaan wandelen;
+Je kan de sloep bij de blauwe brug of de sluis draaien of je kan de boot aanleggen voor de sluis en een stukje gaan wandelen;
 
 Vanaf de sluis en loop je over het jaagpad in ong 7 minuten naar het centrum, of je loopt over de Hollandse kade naar natuurgebied De Kievit.(10 minuten lopen)
 
@@ -65,7 +66,6 @@ In een halve dag kun je, ivm de tijd wat het kost, **niet** door de sluis in Oud
 In al deze mooie oude dorpjes/stadjes is er de mogelijkheid om aan te leggen voor een korte pauze. Let wel goed op de tijd, en keer op tijd om om op de afgesproken tijd terug te zijn.
 
 In Linschoten is het vrij smal dus vaar rustig en voorzichtig;
-er zijn daar lekkere ijsjes te koop trouwens ...
 
 ### Nieuwerbrug, Bodegraven
 #### Tijd: Heen en weer, 4 uur
@@ -94,7 +94,7 @@ De sluis in Montfoort wordt op afroep door vrijwilligers, bediend; De sluis door
 
 **Beschrijving:**
 
-Geniet van een mooie, rustige en groene routevia Linschoten, door de weilanden naar het dorpje Montfoort, je kan een stukje voor de sluis aanleggen of als je meer tijd hebt net na de sluis rechtsaf, aan de overkant is ook een steiger. 
+Geniet van een mooie, rustige en groene route via Linschoten, door de weilanden naar het dorpje Montfoort, je kan een stukje voor de sluis aanleggen of als je meer tijd hebt net na de sluis rechtsaf, aan de overkant is ook een steiger. 
 
 ### Woerdense verlaat over de Grecht
 #### Tijd: Heen en weer, 4,5 uur
@@ -102,8 +102,8 @@ Geniet van een mooie, rustige en groene routevia Linschoten, door de weilanden n
 **Beschrijving:**
 
 Deze route is door een rustig landelijk gebied, als je tegenover de Haven de brug onderdoor gaat, dan vaar je zo Woerden uit, 
-Er is een stoplicht en een bord  dat je moet stoppen bij rood, maar onze sloepen kunnen er onder door.
-Bij de eerst volgende afslag, bij de Blokhuisbrug, ga je naar rechts de Greft op. Halverwege de tijd keer je om, dat is ongeveer bij de sluis in Woerdense Verlaat.
+(Er is een stoplicht en een bord  dat je moet stoppen bij rood, maar onze sloepen kunnen er onder door.)
+Bij de eerst volgende afslag, bij de Blokhuisbrug, ga je naar rechts de Grecht op. Je vaart tussen de weilanden en rrietkragen,  Halverwege de tijd keer je om, dat is ongeveer bij de sluis in Woerdense Verlaat.
 
 ### In de ochtend en de avond heb je iets korter de tijd, dus keer je de sloep op de helft van de tijd weer om om alles van de andere kan te gaan bekijken!
 
