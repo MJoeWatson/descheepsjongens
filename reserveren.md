@@ -33,7 +33,13 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 ### Beschikbaarheid: update: 
 
-**Zaterdag 29 mei zijn er in de middag weer sloepen vrij!    
+**Zaterdag 29 mei 
+
+Ochtend: 1 sloep vrij vooralsnog, de elektrische nicki vrij 
+
+Middag:  1 sloep vrij vooralsnog,  de Antaris (buitenboordmotor sloep) vrij 
+
+
 als het veranderd, meld ik het hier.**
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
