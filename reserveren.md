@@ -37,8 +37,7 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 Ochtend: 1 sloep vrij vooralsnog, de elektrische nicki vrij 
 
-Middag:  1 sloep vrij vooralsnog,  de Antaris (buitenboordmotor sloep) vrij 
-
+Middag:  geen sloepen vrij 
 
 als het veranderd, meld ik het hier.**
 
