@@ -35,9 +35,9 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 **Zaterdag 29 mei 
 
-Ochtend: 1 sloep vrij vooralsnog, de elektrische nicki vrij 
+Ochtend: vol
 
-Middag:  geen sloepen vrij 
+Middag:  vol
 
 als het veranderd, meld ik het hier.**
 
