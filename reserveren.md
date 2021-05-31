@@ -12,14 +12,13 @@ layout: reserveren
 
 Er kan weer gereserveerd worden :)
 
-Er zijn een aantal stremmingen! 
+let op Er zijn een aantal stremmingen! 
 
 houd hier rekening mee met het plannen van je vaartocht.
 
 zie bij het kopje Nieuws op deze site [nieuws] (http://https://descheepsjongens.nl/news) 
 
 En op vaarweginformatie.nl staan alle actuele stremmingen gemeld.
-
 
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie goed door; [](https://descheepsjongens.nl/voorwaarden)
    
