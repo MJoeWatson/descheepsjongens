@@ -24,7 +24,7 @@ Houd bij het plannen van de route rekening met de actuele stremmingen , zie bij 
  13.00 - 17.00
  18.00 - 20.00
 
-2. Nieuwkoopse plassen (neem €5,- tol mee voor natuurbeheer)
+2. Nieuwkoopse plassen (neem +\_€5,- tol mee voor natuurbeheer)
 
 3. Ziende sluis bij Zwammerdam 9.00-19.00 uur
 
@@ -57,7 +57,9 @@ De informatie van OHWL is heel interessant bij deze route.
 
 ### Linschoten, Oudewater, Montfoort 
 
-***Alleen in het weekend mogelijk, na 4 juni ook door de weeks**
+ma-vr : Nieuwe stremming tussen Woerden en linschoten 
+
+***Alleen in het weekend mogelijk, na 2 of 7 juli ook door de weeks**
 
 #### Tijd: 6 uur varen,  dan heb je nog 2 uur vrije tijd op een dag van 8 uur.
 
@@ -81,7 +83,12 @@ Je kan het nr bellen dat op het bord staat kost €3,- euro.
 
 Populaire en leuke route langs Historische dorpen / stadjes, Linschoten, Montfoort en Oudewater.
 
+
 ### Rondje Oudewater, Hekendorp , Nieuwerbrug. rondje niet mogelijk van maart tot nader bericht) 
+
+**ma-vr Stremming tussen Woerden en Linschoten 
+alleen in het weekend doorvaarbaar !
+ws tot 2 of 7 juli** 
 
 **Let op, de Goejanwelle sluis is in onderhoud, voorlopig geen doorgang! **
 
@@ -118,6 +125,10 @@ wat mogelijk is , 8 uur varen is
 
 
 ### Linschoten, Oudewater, Montfoort
+
+**ma-vr Stremming tussen Woerden en Linschoten 
+alleen in het weekend doorvaarbaar !
+ws tot 2 of 7 juli** 
 
 #### Tijd: 8 uur varen, waarvan 15 min vrije tijd.
 
