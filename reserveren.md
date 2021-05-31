@@ -12,7 +12,9 @@ layout: reserveren
 
 Er kan weer gereserveerd worden :)
 
-Er zijn een aantal stremmingen, houd hier rekening mee met het plannen van je vaartocht.
+Er zijn een aantal stremmingen! 
+
+houd hier rekening mee met het plannen van je vaartocht.
 
 zie bij het kopje Nieuws op deze site [nieuws] (http://https://descheepsjongens.nl/news) 
 
@@ -33,11 +35,11 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 ### Beschikbaarheid: update: 
 
-**Zondag 6 juni 
+**Zondag 30 mei
 
-Ochtend: nog wat vrij 
+Ochtend: nog 1 vrij 
 
-Middag:  vol  (vooralsnog)
+Middag:  vol
 
 als het veranderd, meld ik het hier.**
 
