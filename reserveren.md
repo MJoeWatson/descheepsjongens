@@ -35,11 +35,11 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 ### Beschikbaarheid: update: 
 
-**Zondag 30 mei
+**Zondag 6 juni
 
-Ochtend: nog 1 vrij 
+Ochtend: nog wat vrij 
 
-Middag:  vol
+Middag:  vol - vooralsnog-
 
 als het veranderd, meld ik het hier.**
 
