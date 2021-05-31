@@ -17,9 +17,9 @@ Bij de Oostdam is de dam (nog) massief en de brug bij het kasteel is te laag; Je
 
 Let op:  In een Halve dag vanuit Woerden vaar je **tot** de sluizen en niet er doorheen! 
 
-**Let op.. van Maandag t/m vrijdag is de doorgang naar Oudewater gestremd.. 
+**Let op.. van Maandag t/m vrijdag is de doorgang naar Linschoten gestremd.. 
 in het weekend wel doorvaarbaar.
-waarschijnlijk tot 4 juni duren de werkzaamheden.**
+waarschijnlijk tot 2 of 7 juli duren deze werkzaamheden.**
 
 ### Route Harmelen
 #### Tijd: Heen en weer, 2,5 uur
@@ -49,7 +49,8 @@ Vanaf de sluis en loop je over het jaagpad in ong 7 minuten naar het centrum, of
 Door de bomen langs het water, is er op warme dagen ook wat schaduw.
 
 
-### Linschoten, Oudewater let op: ma t/m vr gestremd tot 4 juni 2021
+### Linschoten, Oudewater let op: ma t/m vr gestremd tot 2 of 7 juli 2021
+in het weekend doorvaarbaar 
 
 #### Tijd: Heen en weer, 4,5 uur
 
@@ -84,6 +85,10 @@ Voorheen heette deze route de Romeinse Limes en dit was de echte noordgrens van 
 
 
 ### Montfoort
+
+ma- vr gestremd!
+in het weekend doorvaarbaar. 
+
 #### Tijd: Heen en weer, 3 uur
 [Klik hier voor de routekaart naar Montfoort](/uploads/route%20Montfoort%20De%20Scheepsjongens.pdf)
 
