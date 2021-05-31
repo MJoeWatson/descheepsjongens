@@ -36,7 +36,7 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 **Zondag 6 juni
 
-Ochtend: nog wat vrij 
+Ochtend: nog vrij 
 
 Middag:  vol - vooralsnog-
 
