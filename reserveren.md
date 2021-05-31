@@ -38,7 +38,7 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 Ochtend: nog vrij 
 
-Middag:  vol - vooralsnog-
+Middag:  nog 1 vrij 
 
 als het veranderd, meld ik het hier.**
 
