@@ -42,7 +42,7 @@ alleen ....
 
 Ochtend: nog 2 vrij 
 
-Middag:  vol - vooralsnog -
+Middag:  vol (vooralsnog )
 
 als het veranderd, meld ik het hier.**
 
