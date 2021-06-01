@@ -3,10 +3,11 @@ title: Stremmingen van de vaarwegen
 date: 2020-04-05 23:11:00 +02:00
 ---
 
-**Maandag t/m Vrijdag is de vaarroute naar Linschoten, Montfoort en Oudewater gestremd wegens werkzaamheden tussen Woerden en Linschoten.
+**Maandag t/m Vrijdag is de vaarroute naar Linschoten, Montfoort en Oudewater gestremd.
+Dit wegens werkzaamheden aan de kade tussen Woerden en Linschoten.
 Dit duurt tot 2 juli**
 
-**Gelukkig is in het weekend de Lange Linschoten wel doorvaarbaar en zijn  Linschoten, Montfoort en Oudewater wel bereikbaar!** 
+**In het weekend is de Lange Linschoten wel doorvaarbaar en zijn  Linschoten, Montfoort en Oudewater wel bereikbaar!** 
 
 **De Goejanverwelle sluis in Hekendorp is kapot en wordt gerepareerd en is klaar op 4 juni.
 Rondje Hekendorp is weer mogelijk na 2 juli.**
