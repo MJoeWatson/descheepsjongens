@@ -130,7 +130,7 @@ wat mogelijk is , 8 uur varen is
 alleen in het weekend doorvaarbaar !
 ws tot 2 of 7 juli** 
 
-#### Tijd: 8 uur varen, waarvan 15 min vrije tijd.
+#### Tijd: ongeveer 8 uur varen,
 
 **Vaarkaarten:**
 
@@ -152,4 +152,4 @@ Je kan het nummer bellen dat aldaar op het bord staat en de kosten zijn €3,- e
 
 Leuke route langs oude dorpen en stadjes, Linschoten, Montfoort, Oudewater en Woerden.
 
-Je kan bv ook naar Alphen aan de Rijn, en op de terugweg de route van de andere kant af bekijken. Dan ben je ook een dag onderweg.
+
