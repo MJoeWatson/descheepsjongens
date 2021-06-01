@@ -81,10 +81,12 @@ Je kan het nummer bellen dat op het bord aldaar staat en de kosten zijn  €3,- 
 
 **Beschrijving:**
 
-Populaire en leuke route langs Historische dorpen / stadjes, Linschoten, Montfoort en Oudewater.
+Populaire en leuke route langs oude dorpen en stadjes, Linschoten, Montfoort, Oudewater en Woerden.
 
 
-### Rondje Oudewater, Hekendorp , Nieuwerbrug. rondje niet mogelijk van maart tot nader bericht) 
+### Rondje Oudewater, Hekendorp , Nieuwerbrug.
+ 
+Dit rondje is niet mogelijk tot 2 juli ivm stremmingen.
 
 **ma-vr Stremming tussen Woerden en Linschoten 
 alleen in het weekend doorvaarbaar !
@@ -112,6 +114,10 @@ Hieronder de link, met leuke en interessante informatie.
 
 Deze kan je lezen/luisteren als je deze route over Hekendorp- Nieuwerbrug vaart. Bij punt 13 sla je rechtsaf naar punt 17
 (14,15 en 16 sla je even over met varen als je maar 1 dag gaat) 
+
+Je kan bv ook naar Alphen aan de Rijn, en op de terugweg de route van de andere kant af bekijken. Dan ben je ook een dag onderweg.
+
+Eventueel kan er op sommige dagen een uur bijgehuurd worden om bv wat meer vrije tijd te hebben; De kosten zijn €25,- per uur.
 
 (https://oudehollandsewaterlinie.nl/routes/de-prins-willem-iii-vaarroute/)
 
