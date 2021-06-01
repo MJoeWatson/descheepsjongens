@@ -150,6 +150,6 @@ Je kan het nummer bellen dat aldaar op het bord staat en de kosten zijn €3,- e
 
 **Beschrijving:**
 
-Populaire en leuke route langs Historische dorpen / stadjes, Linschoten, Montfoort en Oudewater.
+Leuke route langs oude dorpen en stadjes, Linschoten, Montfoort, Oudewater en Woerden.
 
-
+Je kan bv ook naar Alphen aan de Rijn, en op de terugweg de route van de andere kant af bekijken. Dan ben je ook een dag onderweg.
