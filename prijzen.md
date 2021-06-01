@@ -29,11 +29,11 @@ Alle sloepen hebben de zelfde prijs, elektrische sloepen en benzine motorsloepen
 
 De sloep hebben we namelijk graag weer in de zelfde staat terug als dat deze was bij vertrek. Dan krijg je de borg ook weer terug.
 
-Bij terugkomst kun je zelf de sloep weer schoon maken; (de hele binnenkant)  of
+Bij terugkomst kun je zelf de sloep weer schoon maken; (de hele binnenkant, boven /onder de kussens etc.)  of
 
 Wij willen het ook  voor je doen, daar is de €10,- schoonmaakborg dan voor.
 
-~ Kleine schade en onkosten worden van de borg afgehouden.
+~ Kleine schade zoals een kras en andere onkosten worden van de borg afgehouden.
 
 ~ Grotere schade loopt via de verzekering.
 De huurder is verantwoordelijk voor de eerste €350,- eigen risico.
@@ -44,13 +44,15 @@ Annuleren als het **regent** is kosteloos , kan op de dag zelf, in overleg met o
 
 Als er om een andere reden geannuleerd wordt vragen we €20,- service kosten.
 
-Indien wij speciaal voor de vaartocht bij de sloep aanwezig  zijn en de vaartocht gaat niet door of je komt niet opdagen, wordt óf het hele huurbedrag berekend óf €20,- de reserverings /service onkosten gerekend.
+Indien wij speciaal voor de vaartocht bij de sloep aanwezig zijn en de vaartocht gaat niet door of je komt niet opdagen, wordt óf het hele huurbedrag berekend óf €20,- de reserverings /service onkosten gerekend.
 
-~ Een extra uur bij huren is soms mogelijk,dit in overleg, €30,-per uur.  Vooraf te reserveren.
+~ Een extra uur bij huren is soms mogelijk, dit in overleg, €30,-per uur. Vooraf te reserveren/. overleggen.
 
 ~Cadeaubonnen zijn te bestellen via reservering formulier of een email.
 We hebben cadeaubonnen voor:
 - Hele dag €170,-
 - Halve dag €100,-
+
 - of een bedrag naar wens.
+Bij Cadeaubonnen voor een hele dag krijg je een leuke kapiteinspet cadeau.
 
