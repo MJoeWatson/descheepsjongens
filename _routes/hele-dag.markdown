@@ -10,7 +10,7 @@ Houd bij het plannen van de route rekening met de actuele stremmingen , zie bij 
 
 ### Nieuwkoopse plassen
 
-#### Tijd: Rondje, bijna 8 uur varen, (incl wachttijden bij de sluizen)
+#### Tijd: Rondje, bijna 8 uur varen, (wachttijden bij de sluizen kunnen op drukke dagen nl. lang zijn, en op rustige dagen heb je soms wat tijd over.)
 
 **Vaarkaarten**
 
@@ -59,7 +59,7 @@ De informatie van OHWL is heel interessant bij deze route.
 
 ma-vr : Nieuwe stremming tussen Woerden en linschoten 
 
-***Alleen in het weekend mogelijk, na 2 of 7 juli ook door de weeks**
+***Alleen in het weekend mogelijk, na 2 juli ook door de weeks**
 
 #### Tijd: 6 uur varen,  dan heb je nog 2 uur vrije tijd op een dag van 8 uur.
 
@@ -76,8 +76,8 @@ ma-vr : Nieuwe stremming tussen Woerden en linschoten
    Druk op de knop en dan moet je **even geduld** hebben, bij te vaak drukken kan er storing ontstaan;
    Sloep niet vastbinden  maar het touw evt laten vieren ivm stijgen/ dalen van het water; je kan de haakstok gebruiken. en houd handen binnenboord! Op je beurt wachten en volg de instructies ter plaatse.
 
-Sluis Montfoort wordt bediend,
-Je kan het nr bellen dat op het bord staat kost €3,- euro.
+Sluis Montfoort wordt bediend door vrijwilligers, 
+Je kan het nummer bellen dat op het bord aldaar staat en de kosten zijn  €3,- euro per doorvaart.
 
 **Beschrijving:**
 
@@ -88,9 +88,9 @@ Populaire en leuke route langs Historische dorpen / stadjes, Linschoten, Montfoo
 
 **ma-vr Stremming tussen Woerden en Linschoten 
 alleen in het weekend doorvaarbaar !
-ws tot 2 of 7 juli** 
+ws tot 2 juli, daarna weer open.** 
 
-**Let op, de Goejanwelle sluis is in onderhoud, voorlopig geen doorgang! **
+**Let op, de Goejanwelle sluis is in onderhoud, voorlopig tot 4 juni geen doorgang.**
 
 #### Tijd: Rondje, 7,5 uur varen vanuit Woerden
 
@@ -100,7 +100,7 @@ vaarkaart: [route Hekendorp De Scheepsjongens.pdf](/uploads/route%20Hekendorp%20
 
 
 Deze ronde is bijna 8 vaar uren, je komt 2 x een sluis tegen en een spoorbrug op de dubbele Wiericke 
-let op :deze spoorbrug  heeft beperkte openingstijden!. Door de weeks en zaterdag is 17.00 uur de laatste doorgang.
+let op :deze spoorbrug  heeft beperkte openingstijden!. Door de weeks en zaterdag wordt deze tot 17.00 uur bediend.
 Op zondag alleen geopend van 14.00-16.00 uur!
 In Hekendorp kom je door de Goejanverwelle sluis.
 Bedieningstijden zondag en maandag 14.00-17.30 uur  
@@ -145,8 +145,8 @@ ws tot 2 of 7 juli**
    Druk op de knop en dan moet je **even geduld** hebben, bij te vaak drukken kan er storing ontstaan;
    Sloep niet vastbinden  maar het touw evt laten vieren ivm stijgen/ dalen van het water; je kan de haakstok gebruiken. en houd handen binnenboord! Op je beurt wachten en volg de instructies ter plaatse.
 
-Sluis Montfoort wordt bediend,
-Je kan het nr bellen dat op het bord staat kost €3,- euro.
+Sluis Montfoort wordt bediend door vrijwilligers,,
+Je kan het nummer bellen dat aldaar op het bord staat en de kosten zijn €3,- euro per doorvaart.
 
 **Beschrijving:**
 
