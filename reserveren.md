@@ -34,11 +34,14 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 ### Beschikbaarheid: update: 
 
+Alle dagen nog sloepen beschikbaar,
+alleen ....
+
 **Zondag 6 juni
 
-Ochtend: nog vrij 
+Ochtend: nog 2 vrij 
 
-Middag:  nog 1 vrij 
+Middag:  vol - vooralsnog-
 
 als het veranderd, meld ik het hier.**
 
