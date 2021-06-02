@@ -34,7 +34,7 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 ### Beschikbaarheid: update: 
 
-Alle dagen nog sloepen beschikbaar,
+Alle dagen nog sloepen beschikbaar!,
 
 alleen ....
 
