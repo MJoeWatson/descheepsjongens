@@ -54,5 +54,5 @@ We hebben cadeaubonnen voor:
 - Halve dag €100,-
 
 - of een bedrag naar wens.
-Bij Cadeaubonnen voor een hele dag krijg je een leuke kapiteinspet cadeau.
+Bij Cadeaubonnen vanaf €100,- krijg je een leuke kapiteinspet cadeau.
 
