@@ -41,7 +41,7 @@ alleen ....
 Zondag 6 juni
 
 
-Middag:  vol - vooralsnog -
+Middag: vooralsnog,  vol in Woerden / 1 vrij in Harmelen (ook evt de hele dag)
 
 26 juni 
 
