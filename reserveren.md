@@ -14,7 +14,7 @@ Er kan weer gereserveerd worden :)
 
 let op Er zijn een aantal stremmingen! 
 
-houd hier rekening mee met het plannen van je vaartocht.
+Houd hier rekening mee met het plannen van je vaartocht.
 
 zie bij het kopje Nieuws op deze site [nieuws] (http://https://descheepsjongens.nl/news) 
 
@@ -34,17 +34,21 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 ### Beschikbaarheid: update: 
 
-Alle dagen nog sloepen beschikbaar!,
+**Alle dagen nog sloepen beschikbaar!,
 
 alleen ....
 
-**Zondag 6 juni
+Zondag 6 juni
 
 Ochtend: nog 2 vrij 
 
-Middag:  vol (vooralsnog )
+Middag:  vol -vooralsnog-
 
-als het veranderd, meld ik het hier.**
+26 juni 
+
+Middag:  Woerden vol - vooralsnog -
+
+Als het veranderd, meld ik het hier.****
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
 Bij een gemaakte reservering sturen we de bevestiging met de informatie die je nodig hebt,
