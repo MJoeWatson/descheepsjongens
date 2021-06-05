@@ -40,9 +40,8 @@ alleen ....
 
 Zondag 6 juni
 
-Ochtend: nog 2 vrij 
 
-Middag:  vol -vooralsnog-
+Middag:  vol - vooralsnog -
 
 26 juni 
 
