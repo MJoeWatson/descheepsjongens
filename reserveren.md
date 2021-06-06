@@ -31,6 +31,12 @@ waar iedereen van op de hoogte moet zijn.
 
 
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
+willen jullie in het berichtvak invullen wat de samenstelling is van jullie gezelschap? 
+1 huishouden of 2 huishoudens ( 2x 2 volwassenen)!met jonge kinderen?
+anders is nl niet toegestaan. 
+
+alvast bedankt! 
+
 
 ### Beschikbaarheid: update: 
 
