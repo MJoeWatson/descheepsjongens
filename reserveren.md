@@ -40,12 +40,15 @@ alleen ....
 
 Zondag 6 juni
 
+Middag: in Woerden vol
 
-Middag: vooralsnog,  vol in Woerden / 1 vrij in Harmelen (ook evt de hele dag)
+13 juni
+
+Middag: in Woerden vol -vooralsnog-
 
 26 juni 
 
-Middag:  Woerden vol - vooralsnog -
+Middag: In Woerden vol - vooralsnog -
 
 Als het veranderd, meld ik het hier.****
 
