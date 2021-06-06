@@ -38,16 +38,13 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 alleen ....
 
-Zondag 6 juni
-
-Middag: in Woerden vol
+12 juni 
+middag vooralsnog vol
 
 13 juni
-
 Middag: in Woerden vol -vooralsnog-
 
 26 juni 
-
 Middag: In Woerden vol - vooralsnog -
 
 Als het veranderd, meld ik het hier.****
