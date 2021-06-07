@@ -36,9 +36,6 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 **Alle dagen nog sloepen beschikbaar, Behalve....
 
-Zondag 6 juni
-Middag:
-Woerden vol
 
 12 juni
 Middag:
@@ -48,6 +45,7 @@ Harmelen Vol
 13 juni
 Middag: 
 Woerden vol 
+Harmelen vol
 
 20juni
 Middag:
@@ -56,9 +54,10 @@ Woerden vol
 
 26 juni 
 Middag:
-Woerden vol 
+Woerden vol  vooralsnog
+Harmelen vol vooralsnog 
 
-Veranderingen meld ik hier.****
+Veranderingen meld ik hier.**** en dat gebeurd nog wel eens.
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
 Bij een gemaakte reservering sturen we de bevestiging met de informatie die je nodig hebt,
