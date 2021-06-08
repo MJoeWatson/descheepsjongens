@@ -46,8 +46,8 @@ ivm de corona 1,5 meter:
 
 - Een Huishouden/gezin van max 6 á 7 personen
 
-- max 2 "afzonderlijke"  personen of 2 samenwonende stellen/ kleine huishoudens,  
-ieder aan een kant van de boot & evt. enkele kinderen.
+- max 3 "afzonderlijke"  personen of 2 samenwonende stellen  
+ieder aan een kant van de boot & evt. enkele kinderen jonger dan 13 jaar
 
 
 
@@ -59,7 +59,7 @@ maar ivm de corona 1,5 meter:
 
 - Een huishouden/gezin van max 9 á 10 personen.
 
-- max. 2 "afzonderlijke" personen en voor kinderen geen beperkingen.
+- max. 4 "afzonderlijke" personen  jonge kinderen geen beperkingen, (behalve dan de bootmaat)
 
 - 2 koppels, ieder aan een kant van de boot & evt. kinderen.
 
