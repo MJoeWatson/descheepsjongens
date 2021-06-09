@@ -2,7 +2,7 @@ var LPAWS = {};
 var SES = {};
 AWS.config.region = 'eu-west-1'; // Region
 AWS.config.credentials = new AWS.CognitoIdentityCredentials({
-  IdentityPoolId: 'eu-west-1:f0683e77-1d3c-4ffd-9485-0311d408a766',
+  IdentityPoolId: 'eu-west-1:aec18d86-c291-45da-a592-7184a7020fc0',
 });
 
 LPAWS.sendToTopic = function() {
