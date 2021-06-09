@@ -47,6 +47,7 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 
 **Zaterdag 12 juni**
+
 Ochtend boten vrij !
 
 Middag:
@@ -54,13 +55,16 @@ Woerden  Vol
 Harmelen Vol
 
 **Zondag 13 juni**
-Ochten boten vrij!
+
+Ochtend boten vrij!
 
 Middag: 
+
 Woerden vol 
 Harmelen vol
 
 **Zondag 20 juni**
+
 Ochtend boten vrij!
 
 Middag:
@@ -68,6 +72,7 @@ Woerden 1 vrij
 Harmelen 1 vrij
 
 Zaterdag 26 juni 
+
 Ochtend boten vrij!
 
 Middag:
