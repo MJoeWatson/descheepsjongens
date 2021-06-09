@@ -71,7 +71,7 @@ Middag: Woerden 1 vrij
 
 Harmelen 1 vrij
 
-**Zaterdag 26 juni **
+**Zaterdag 26 juni**
 
 Ochtend boten vrij!
 
