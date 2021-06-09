@@ -10,7 +10,14 @@ buitenboordsoldout:
 layout: reserveren
 ---
 
-Er kan weer gereserveerd worden :)
+Er kan weer gereserveerd worden 
+maar er is een storing in het systeem!
+als je gereserveerd hebt 
+we krijgen het momenteel niet juist binnen in sommige gevallen 
+zou je dan nog extra een bericht willen sturen?
+dan mail ik terug 
+alvast bedankt!
+
 
 let op Er zijn een aantal stremmingen! 
 
