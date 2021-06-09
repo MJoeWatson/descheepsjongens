@@ -41,10 +41,19 @@ SES.sendEmail = function() {
       ],
       Source: 'descheepsjongens@gmail.com',
       ConfigurationSetName: 'descheepsjongens',
-      Template: 'reservation_basic',
+      Template: 'reservation_extended',
       TemplateData: `{ \"name\": \"${document.querySelector('#voornaam').value} ${document.querySelector('#achternaam').value}\",
+        \"address\": \"${document.querySelector('#adres').value}\",
+        \"city\": \"${document.querySelector('#woonplaats').value}\",
+        \"email\": \"${document.querySelector('#email').value}\",
+        \"address\": \"${document.querySelector('#adres').value}\",
+        \"phone\": \"${document.querySelector('#tel').value}\",
         \"day\": \"${document.querySelector('#date').value}\",
-        \"time\": \"${document.querySelector('#dagdeel').value}\"
+        \"time\": \"${document.querySelector('#dagdeel').value}\",
+        \"boat\": \"${document.querySelector('#boot').value}\",
+        \"vertreklocatie\": \"${document.querySelector('#vertreklocatie').value}\",
+        \"number\": \"${document.querySelector('#person').value}a.p.\",
+        \"message\": \"${document.querySelector('#bericht').value}\"
 
       }`
     };
