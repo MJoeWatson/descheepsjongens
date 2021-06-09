@@ -46,7 +46,6 @@ SES.sendEmail = function() {
         \"address\": \"${document.querySelector('#adres').value}\",
         \"city\": \"${document.querySelector('#woonplaats').value}\",
         \"email\": \"${document.querySelector('#email').value}\",
-        \"address\": \"${document.querySelector('#adres').value}\",
         \"phone\": \"${document.querySelector('#tel').value}\",
         \"day\": \"${document.querySelector('#date').value}\",
         \"time\": \"${document.querySelector('#dagdeel').value}\",
