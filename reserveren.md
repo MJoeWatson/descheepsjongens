@@ -10,13 +10,14 @@ buitenboordsoldout:
 layout: reserveren
 ---
 
-Er kan weer gereserveerd worden 
-maar er is een storing in het systeem!
+Er kan weer gereserveerd worden! 
 
-Als je gereserveerd hebt of reserveerd,
-krijgen het momenteel niet juist binnen.
+Er was gister en vandaag een storing in het systeem; 
 
-zou je dan nog extra een bericht willen sturen?
+Als had gereserveerd,
+kan het zijn dat we het toch niet binnen hebben gehad.
+dus bij geen bevestiging, 
+graag even  opnieuw reserveren,  het is nu opgelost! 
 dan mail ik terug 
 alvast bedankt!
 
