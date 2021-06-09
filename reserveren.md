@@ -59,30 +59,26 @@ Harmelen Vol
 
 Ochtend boten vrij!
 
-Middag: 
+Middag: Woerden vol 
 
-Woerden vol 
-
-Harmelen vol
+        Harmelen vol
 
 **Zondag 20 juni**
 
 Ochtend boten vrij!
 
-Middag:
-Woerden 1 vrij
+Middag: Woerden 1 vrij
 
-Harmelen 1 vrij
+        Harmelen 1 vrij
 
 Zaterdag 26 juni 
 
 Ochtend boten vrij!
 
-Middag:
+Middag: Woerden vol  vooralsnog
 
-Woerden vol  vooralsnog
+        Harmelen 1 vrij vooralsnog 
 
-Harmelen 1 vrij vooralsnog 
 
 Veranderingen meld ik hier.**** en dat gebeurd nog wel eens.
 
