@@ -12,8 +12,10 @@ layout: reserveren
 
 Er kan weer gereserveerd worden 
 maar er is een storing in het systeem!
-als je gereserveerd hebt 
-we krijgen het momenteel niet juist binnen in sommige gevallen 
+
+Als je gereserveerd hebt of reserveerd,
+krijgen het momenteel niet juist binnen.
+
 zou je dan nog extra een bericht willen sturen?
 dan mail ik terug 
 alvast bedankt!
@@ -62,7 +64,7 @@ Woerden vol
 26 juni 
 Middag:
 Woerden vol  vooralsnog
-Harmelen vol vooralsnog 
+Harmelen 1 vrij vooralsnog 
 
 Veranderingen meld ik hier.**** en dat gebeurd nog wel eens.
 
