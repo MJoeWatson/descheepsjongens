@@ -41,7 +41,7 @@ SES.sendEmail = function() {
       ],
       Source: 'descheepsjongens@gmail.com',
       ConfigurationSetName: 'descheepsjongens',
-      Template: 'reservation',
+      Template: 'reservation_basic',
       TemplateData: `{ \"name\": \"${document.querySelector('#voornaam').value} ${document.querySelector('#achternaam').value}\",
         \"day\": \"${document.querySelector('#date').value}\",
         \"time\": \"${document.querySelector('#dagdeel').value}\"
