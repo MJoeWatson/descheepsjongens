@@ -12,13 +12,13 @@ layout: reserveren
 
 Er kan weer gereserveerd worden! 
 
-Er was gister en vandaag een storing in het systeem; 
+Er was gister en  een storing in het systeem; 
 
 Als had gereserveerd,
 kan het zijn dat we het toch niet binnen hebben gehad.
-dus bij geen bevestiging, 
-graag even  opnieuw reserveren,  het is nu opgelost! 
-dan mail ik terug 
+dus bij geen bevestiging, graag even  opnieuw reserveren.Dan mail ik terug.
+Het is nu opgelost! 
+
 alvast bedankt!
 
 
@@ -68,9 +68,9 @@ Harmelen vol
 
 Ochtend boten vrij!
 
-Middag: Woerden 1 vrij
+Middag: Woerden vol
 
-Harmelen 1 vrij
+Harmelen 1 vol
 
 **Zaterdag 26 juni**
 
