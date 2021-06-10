@@ -76,7 +76,7 @@ Harmelen 1 vol
 
 Ochtend boten vrij!
 
-Middag: Woerden vol  vooralsnog
+Middag: Woerden weer sloepen vrij beschikbaar !
 
 Harmelen 1 vrij vooralsnog 
 
