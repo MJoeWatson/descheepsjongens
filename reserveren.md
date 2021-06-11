@@ -56,6 +56,8 @@ Woerden  Vol
 
 Harmelen Vol
 
+avond  vol
+
 **Zondag 13 juni**
 
 Ochtend boten vrij!
