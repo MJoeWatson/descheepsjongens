@@ -49,7 +49,6 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 **Zaterdag 12 juni**
 
-Ochtend boten vrij !
 
 Middag:
 Woerden  Vol 
