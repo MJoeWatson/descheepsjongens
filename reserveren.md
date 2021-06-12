@@ -58,6 +58,7 @@ Harmelen vol
 
 avond : vol 
 
+
 **Zondag 13 juni**
 
 Ochtend boten vrij
@@ -65,6 +66,8 @@ Ochtend boten vrij
 Middag: Woerden vol 
 
 Harmelen vol
+
+Avond   niets beschikbaar 
 
 **Zondag 20 juni**
 
