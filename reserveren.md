@@ -54,13 +54,11 @@ Ochtend boten vrij !
 Middag:
 Woerden  Vol 
 
-Harmelen Vol
-
-avond  vol
+Harmelen 1 stille Nicki sloep vrij!
 
 **Zondag 13 juni**
 
-Ochtend boten vrij!
+Ochtend boten vrij
 
 Middag: Woerden vol 
 
@@ -72,7 +70,7 @@ Ochtend boten vrij!
 
 Middag: Woerden vol
 
-Harmelen 1 vol
+Harmelen vol
 
 **Zaterdag 26 juni**
 
