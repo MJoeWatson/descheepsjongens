@@ -49,14 +49,12 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 **Zaterdag 12 juni**
 
+Ochtend boten vrij !
 
 Middag:
 Woerden  Vol 
 
-Harmelen vol 
-
-avond : vol 
-
+Harmelen 1 stille Nicki sloep vrij!
 
 **Zondag 13 juni**
 
@@ -66,11 +64,9 @@ Middag: Woerden vol
 
 Harmelen vol
 
-Avond   niets beschikbaar 
-
 **Zondag 20 juni**
 
-Ochtend boten vrij!
+Ochtend vol in woerden 
 
 Middag: Woerden vol
 
