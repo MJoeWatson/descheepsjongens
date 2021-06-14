@@ -12,7 +12,7 @@ layout: reserveren
 
 Er kan weer gereserveerd worden! 
 
-Er was gister en  een storing in het systeem; 
+Er was vorige week even een storing in het systeem; 
 
 Als had gereserveerd,
 kan het zijn dat we het toch niet binnen hebben gehad.
@@ -47,30 +47,13 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 **Alle dagen nog sloepen beschikbaar, Behalve....
 
 
-**Zaterdag 12 juni**
-
-Ochtend boten vrij !
-
-Middag:
-Woerden  Vol 
-
-Harmelen 1 stille Nicki sloep vrij!
-
-**Zondag 13 juni**
-
-Ochtend boten vrij
-
-Middag: Woerden vol 
-
-Harmelen vol
-
 **Zondag 20 juni**
 
-Ochtend vol in woerden 
+Ochtend vol 
 
-Middag: Woerden vol
+Middag: vol
 
-Harmelen vol
+Harmelen: vol
 
 **Zaterdag 26 juni**
 
@@ -79,6 +62,16 @@ Ochtend boten vrij!
 Middag: Woerden weer sloepen vrij beschikbaar !
 
 Harmelen 1 vrij vooralsnog 
+
+Zaterdag 4 juli
+
+Woerden : 
+
+Ochtend 1 vrij
+
+middag vol
+
+Harmelen nog beschikbaar vooralsnog
 
 
 Veranderingen meld ik hier.**** en dat gebeurd nog wel eens.
