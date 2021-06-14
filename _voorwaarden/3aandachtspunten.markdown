@@ -31,7 +31,10 @@ Kinderen **zonder zwemdiploma** moeten een **zwemvest** dragen.
 
 6) Als de sloep **in de schroef** lijkt te hebben en niet goed / te langzaam vaart, dan kun je de sloep een klein moment vol in z’n **achteruit** zetten. Meestal draait het weer los. Zo niet of als er een storings melding verschijnt op het display  bv een "C" dan **motor uitzetten!** en **ons bellen** om te voorkomen dat de motor onherstelbaar kapot draait!! We geven dan instructies of komen naar je toe.
 
-7) De **hendel/joystick** van de stille sloepen is gevoelig, Pas op! als je de hendel **aanstoot** of er langs loopt, anders **vaart de sloep naar voor(of achter)**
+7) De **hendel/joystick** van de stille sloepen is gevoelig,  
+Altijd beginnen in **neutraal**, en ** 5 tellen wachten** voordat je de hendel beweegt. (ivm anders storing)
+
+en pas op, Als je de hendel **aanstoot** of er langs loopt, anders **vaart de sloep naar voor(of achter)**
 Bij uitstappen/ langslopen daarom de sloep **uitzetten** met de sleutel.
 
 8) Als je door een **sluis of brug** vaart, houdt rekening met de **openingstijden**:   ~sluizen en bruggen worden soms op vaste tijden geopend. Let goed op de laatste doorvaar mogelijkheid en dat je de **goede route** vaart.
