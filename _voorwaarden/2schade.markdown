@@ -6,7 +6,8 @@ date: 2020-03-18 12:25:00 +01:00
 1)De Scheepsjongens zijn **niet aansprakelijk** voor geleden schade van de huurder;  het zij persoonlijk letsel of materiële schade, opgelopen in de verhuurperiode. 
 
 Eventuele **schade** aan de sloep, kussenset, kap .ed. of aan derden wordt **verhaald op de huurder**. 
-Kleine beschadigingen worden van de borg ingehouden. ( meldt een kras ,het is ong €10,-)
+Kleine beschadigingen worden van de borg ingehouden. ( meldt ook een kras, het is ong. €10,-) achteraf constatering is duurder.
+
 Grotere schade gaat via de verzekering, Het eigen risico bedrag wat de huurder dan betaald is €350,-
 Bij je eigen verzekering kun je nagaan of je hiervoor ook verzekerd bent.
 
