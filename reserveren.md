@@ -55,6 +55,11 @@ Middag: vol
 
 Harmelen: vol
 
+22 juni
+
+Avond:  niets beschikbaar
+
+
 **Zaterdag 26 juni**
 
 Ochtend boten vrij!
