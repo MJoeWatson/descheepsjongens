@@ -12,21 +12,12 @@ layout: reserveren
 
 Er kan weer gereserveerd worden! 
 
-Er was vorige week even een storing in het systeem; 
-
-Als had gereserveerd,
-kan het zijn dat we het toch niet binnen hebben gehad.
-dus bij geen bevestiging, graag even  opnieuw reserveren.Dan mail ik terug.
-Het is nu opgelost! 
-
-alvast bedankt!
-
-
-let op Er zijn een aantal stremmingen! 
+De vaarroute naar Linschoten, Oudewater of Montfoort is alleen in het weekend door vaarbaar 
+Door de weeks is er een stremming, tot 7 juli daarna is het weer elke dag open.
 
 Houd hier rekening mee met het plannen van je vaartocht.
 
-zie bij het kopje Nieuws op deze site [nieuws] (http://https://descheepsjongens.nl/news) 
+zie bij het kopje Nieuws op deze site [nieuws] (http://https://descheepsjongens.nl/new) 
 
 En op vaarweginformatie.nl staan alle actuele stremmingen gemeld.
 
@@ -55,20 +46,23 @@ Middag: vol
 
 Harmelen: vol
 
-22 juni
+**22 juni**
 
-Avond:  niets beschikbaar
+Avond: Gesloten
 
 
-**Zaterdag 26 juni**
+**Zondag 27 juni**
 
-Ochtend boten vrij!
+Woerden:
 
-Middag: Woerden weer sloepen vrij beschikbaar !
+Ochtend: nog sloepen beschikbaar
 
-Harmelen 1 vrij vooralsnog 
+Middag vol
 
-Zaterdag 4 juli
+Harmelen:  nog sloepen beschikbaar
+
+
+**Zondag 4 juli**
 
 Woerden : 
 
@@ -76,10 +70,10 @@ Ochtend 1 vrij
 
 middag vol
 
-Harmelen nog beschikbaar vooralsnog
+Harmelen nog 2 sloepen beschikbaar
 
+Veranderingen worden hier vermeld
 
-Veranderingen meld ik hier.**** en dat gebeurd nog wel eens.
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
 Bij een gemaakte reservering sturen we de bevestiging met de informatie die je nodig hebt,
