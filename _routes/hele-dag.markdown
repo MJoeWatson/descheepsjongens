@@ -96,7 +96,6 @@ Dit rondje is niet mogelijk tot 2 juli ivm stremmingen.
 alleen in het weekend doorvaarbaar !
 ws tot 2 juli, daarna weer open.** 
 
-**Let op, de Goejanwelle sluis is in onderhoud, voorlopig tot 4 juni geen doorgang.**
 
 #### Tijd: Rondje, 7,5 uur varen vanuit Woerden
 
@@ -121,7 +120,7 @@ Deze kan je lezen/luisteren als je deze route over Hekendorp- Nieuwerbrug vaart.
 
 Je kan bv ook naar Alphen aan de Rijn, en op de terugweg de route van de andere kant af bekijken. Dan ben je ook een dag onderweg.
 
-Eventueel kan er op sommige dagen een uur bijgehuurd worden om bv wat meer vrije tijd te hebben; De kosten zijn €25,- per uur.
+Eventueel kan er op sommige dagen een uur bij gehuurd worden om bv wat meer vrije tijd te hebben; De kosten zijn €25,- per uur.
 
 (https://oudehollandsewaterlinie.nl/routes/de-prins-willem-iii-vaarroute/)
 
@@ -153,7 +152,7 @@ ws tot 2 of 7 juli**
 2. Deze sluis draait op zelfbediening.
    Vaar de sloep tot in de sluis, volg de instructies ter plaatse,
    Druk op de knop en dan moet je **even geduld** hebben, bij te vaak drukken kan er storing ontstaan;
-   Sloep niet vastbinden  maar het touw evt laten vieren ivm stijgen/ dalen van het water; je kan de haakstok gebruiken. en houd handen binnenboord! Op je beurt wachten en volg de instructies ter plaatse.
+   Sloep niet vastbinden  maar het touw evt. laten vieren i.v.m. stijgen/ dalen van het water; je kan de haakstok gebruiken. en houd handen binnenboord! Op je beurt wachten en volg de instructies ter plaatse.
 
 Sluis Montfoort wordt bediend door vrijwilligers,,
 Je kan het nummer bellen dat aldaar op het bord staat en de kosten zijn €3,- euro per doorvaart.
