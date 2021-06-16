@@ -37,14 +37,28 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 **Alle dagen nog sloepen beschikbaar, Behalve....
 
+**Zaterdag 19 juni**
 
-**Zondag 20 juni**
-
-Ochtend vol 
+**Woerden**
 
 Middag: vol
 
-Harmelen: vol
+
+**Zondag 20 juni**
+
+**Woerden :**
+
+Ochtend: vol 
+
+Middag: vol
+
+
+**Harmelen:** 
+
+Ochtend: vol
+
+Middag: vol
+
 
 **22 juni**
 
@@ -53,24 +67,25 @@ Avond: Gesloten
 
 **Zondag 27 juni**
 
-Woerden:
+**Woerden:**
 
 Ochtend: nog sloepen beschikbaar
 
 Middag vol
 
-Harmelen:  nog sloepen beschikbaar
+**Harmelen:**  nog een sloep beschikbaar
 
 
 **Zondag 4 juli**
 
-Woerden : 
+**Woerden :** 
 
-Ochtend 1 vrij
+Ochtend: 1 vrij
 
-middag vol
+Middag: vol
 
-Harmelen nog 2 sloepen beschikbaar
+**Harmelen** nog 2 sloepen beschikbaar
+
 
 Veranderingen worden hier vermeld
 
