@@ -16,23 +16,23 @@ Er zijn stremmingen opgelost.
 
 Naar Linschoten en Montfoort is gewoon weer mogelijk, ook door de week.
 
-De route Oudwater is in het weekend gewoon mogelijk
+De route Oudewater is in het weekend gewoon mogelijk
 Door de week soms alleen een half uurtje vertraging ivm de werkzaamheden.
 
 
-Op vaarweginformatie.nl staan alle actuele stremmingen gemeld.
-
-Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie goed door; [](https://descheepsjongens.nl/voorwaarden)
+Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **goed** door; [](https://descheepsjongens.nl/voorwaarden)
    
 We hebben alles wat je weten moet voordat je gaat varen namelijk op een rij gezet voor jullie, Het is een soort korte cursus/ instructie eigenlijk.
-waar iedereen van op de hoogte moet zijn.
+**waar iedereen van op de hoogte moet zijn.**
 
 *Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van hoe het werkt, wat **echt** belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden!
 
 [Klik **hier** voor alle voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
 
-Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
+Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder. 
+Willen jullie aub de samenstelling van het gezelschap in het berichtvak vermelden? 
+Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 jaar er meegaan.  dit i.v.m. de coronaregels, Alvast bedankt.
 
 ### Beschikbaarheid: update: 
 
