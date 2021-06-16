@@ -12,14 +12,14 @@ layout: reserveren
 
 Er kan weer gereserveerd worden! 
 
-De vaarroute naar Linschoten, Oudewater of Montfoort is alleen in het weekend door vaarbaar 
-Door de weeks is er een stremming, tot 7 juli daarna is het weer elke dag open.
+Er zijn stremmingen opgelost!
+Naar Linschoten en Montfoort is gewoon weer mogelijk, ook door de weeks,
 
-Houd hier rekening mee met het plannen van je vaartocht.
+En de route Oudwater is in het weekend gewoon mogelijk
+Door de week soms alleen een half uurtje vertraging ivm de werkzaamheden.
 
-zie bij het kopje Nieuws op deze site [nieuws] (http://https://descheepsjongens.nl/new) 
 
-En op vaarweginformatie.nl staan alle actuele stremmingen gemeld.
+Op vaarweginformatie.nl staan alle actuele stremmingen gemeld.
 
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie goed door; [](https://descheepsjongens.nl/voorwaarden)
    
