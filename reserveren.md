@@ -40,7 +40,7 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 **Zaterdag 19 juni**
 
-**Woerden**
+****Woerden****
 
 Middag: vol
 
