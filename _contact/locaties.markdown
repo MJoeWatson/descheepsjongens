@@ -14,8 +14,8 @@ Vanaf bus- en treinstation Woerden is het 10 minuten lopen. ( kom niet met het o
 
 ### Harmelen
 
-Voor vaartochten vanuit Harmelen, kunt u terecht op Haanwijk
+Voor vaartochten vanuit Harmelen en cadeaubonnen , kunt u op afspraak terecht op Haanwijk nr 4 Harmelen
 
-Hier zijn parkeerplekken beperkt, dus kom zo veel mogelijk op de fiets.
+Hier zijn parkeerplekken beperkt,(1 plek per sloep) dus kom zo veel mogelijk op de fiets.
 
 Cadeaubonnen kunnen op bestelling opgehaald worden in Harmelen of Woerden na afspraak.
