@@ -31,8 +31,9 @@ We hebben alles wat je weten moet voordat je gaat varen namelijk op een rij geze
 
 
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder. 
-Willen jullie aub de samenstelling van het gezelschap in het berichtvak vermelden? 
-Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 jaar er meegaan.  dit i.v.m. de coronaregels, Alvast bedankt.
+
+Willen jullie a.u.b de samenstelling van het gezelschap in het berichtvak vermelden? 
+Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 jaar er meegaan, etc.  dit i.v.m. de corona regels, Alvast bedankt.
 
 ### Beschikbaarheid: update: 
 
