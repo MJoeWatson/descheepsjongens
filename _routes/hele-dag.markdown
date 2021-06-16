@@ -4,7 +4,9 @@ date: 2020-03-18 16:02:00 +01:00
 position: 2
 ---
 
-Houd bij het plannen van de route rekening met de actuele stremmingen , zie bij "nieuws" .op deze site
+Houd bij het plannen van de route rekening met de actuele stremmingen , zie  
+[actuele vaarweginformatie](https://vaarweginformatie.nl/frp/main/#/home)
+
 
 ## Vanuit Woerden : 
 
@@ -26,9 +28,11 @@ Houd bij het plannen van de route rekening met de actuele stremmingen , zie bij 
 
 2. Nieuwkoopse plassen (neem +\_€5,- tol mee voor natuurbeheer)
 
-3. Ziende sluis bij Zwammerdam 9.00-19.00 uur
+3. Ziende sluis bij Zwammerdam: 9.00-19.00 uur
 
-4. Sluis bodegraven 9.00-19.00 uur
+4. Sluis bodegraven: 9.00-19.00 uur
+
+5. Blokhuisbrug Woerden: bediening tot 20.00 uur
 
 **Beschrijving:**
 
@@ -57,7 +61,7 @@ De informatie van OHWL is heel interessant bij deze route.
 
 ### Linschoten, Oudewater, Montfoort 
 
-ma-vr : Nieuwe stremming tussen Woerden en linschoten 
+ma-vr : Stremming tussen Woerden en linschoten 
 
 ***Alleen in het weekend mogelijk, na 2 juli ook door de weeks**
 
