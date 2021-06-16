@@ -43,6 +43,8 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 ~Woerden~
 
+Ochtend: 2 vrij 
+
 Middag: vol
 
 
