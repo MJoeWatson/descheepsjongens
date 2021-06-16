@@ -10,12 +10,13 @@ buitenboordsoldout:
 layout: reserveren
 ---
 
-Er kan weer gereserveerd worden! 
+Er kan weer gereserveerd worden. 
 
-Er zijn stremmingen opgelost!
-Naar Linschoten en Montfoort is gewoon weer mogelijk, ook door de weeks,
+Er zijn stremmingen opgelost.
 
-En de route Oudwater is in het weekend gewoon mogelijk
+Naar Linschoten en Montfoort is gewoon weer mogelijk, ook door de week.
+
+De route Oudwater is in het weekend gewoon mogelijk
 Door de week soms alleen een half uurtje vertraging ivm de werkzaamheden.
 
 
