@@ -18,9 +18,8 @@ Bij de Oostdam is de dam (nog) massief en de brug bij het kasteel is te laag; Je
 
 Let op:  In een Halve dag vanuit Woerden vaar je **tot** de sluizen en niet er doorheen! 
 
-**Let op.. van Maandag t/m vrijdag is de doorgang naar Linschoten gestremd.. 
-in het weekend is het wel doorvaarbaar.
-waarschijnlijk tot 2 juli duren deze werkzaamheden.**
+De  doorgang naar Linschoten weer open!. 
+naar Montfoort kan gewoon weer.
 
 ### Route Harmelen
 #### Tijd: Heen en weer, 2,5 uur
@@ -56,8 +55,9 @@ Vanaf de sluis en loop je over het jaagpad in ong. 7 minuten naar het centrum, o
 Door de bomen langs het water, is er op warme dagen ook wat schaduw.
 
 
-### Linschoten, Oudewater let op: ma t/m vr gestremd tot 2 juli 2021
-in het weekend doorvaarbaar. 
+### Linschoten, Oudewater 
+
+(Door de weeks kan er een stremming zijn.)
 
 #### Tijd: Heen en weer, 4,5 uur
 
