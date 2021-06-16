@@ -127,6 +127,14 @@ Je vaart de route naar Woerden, daar ben je na ruim een uur,
 Je hebt dan de keuze een stukje van een van de richtingen op te gaan,
 dat is aan jullie, Halverwege de tijd keer je weer om, om te genieten van de terugreis.
 
+In het begin na ongeveer 200 meter kom je de Hofbrug tegen, 
+(blauwe brug) Deze kan open op verzoek op bepaalde schuttijden, Bediening om de 2 uur (10.00-12.00-15.00-17.00 uur) 
+Denk erom: 20 minuten voor de tijd aanvragen bij de brugwachter via tel. 06 51383461
+
+Als de brug dicht is kun je **heel rustig** door de meest **rechtse** kant als je vanuit Harmelen komt. (middendoor niet mogelijk!)
+ 
+Rechts is de hoogste doorgang.(**wel bukken**) gebruik de haakstok in geval van bijna tegen de kanten; Vanuit Woerden op de terugweg, neem dezelfde, dan linker doorgang en wees voorzichtig. 
+
  Highlights in Woerden
 
 [](https://www.beleefwoerden.com/nl/wat-te-zien/historische-highlights)
