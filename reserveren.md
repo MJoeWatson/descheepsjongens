@@ -93,7 +93,7 @@ Ochtend: 1 vrij
 
 Middag: vol
 
-~Harmelen: nog een sloep beschikbaar
+~Harmelen: middag vol vooralsnog
 
 
 Veranderingen worden hier vermeld
