@@ -48,6 +48,10 @@ Ochtend: 2 vrij
 
 Middag: vol
 
+~Harmelen~ 
+
+1 Hele dag of een Tussentijd van 12.00-16.30 uur
+
 
 
 **Zondag 20 juni**
