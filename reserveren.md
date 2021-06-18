@@ -54,7 +54,7 @@ Middag: vol
 
 ~Woerden~
 
-Ochtend: vol 
+Ochtend: 1 vrij 
 
 Middag: vol
 
@@ -93,7 +93,7 @@ Ochtend: 1 vrij
 
 Middag: vol
 
-~Harmelen: middag vol vooralsnog
+~Harmelen: nog een sloep beschikbaar
 
 
 Veranderingen worden hier vermeld
