@@ -50,7 +50,7 @@ Middag: vol
 
 ~Harmelen~ 
 
-1 Hele dag of een Tussentijd van 12.00-16.30 uur
+2x een sloep de Hele dag vrij
 
 
 
