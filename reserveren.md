@@ -71,8 +71,7 @@ Ochtend: nog sloepen beschikbaar
 
 Middag vol
 
-~Harmelen nog een sloep beschikbaar
-
+~Harmelen nog 1 sloep beschikbaar
 
 
 **Zondag 4 juli**
@@ -83,7 +82,29 @@ Ochtend: 1 vrij
 
 Middag: vol
 
-~Harmelen: nog een sloep beschikbaar
+~Harmelen: nog 1 sloep beschikbaar
+
+
+**Zondag 3 juli**
+
+~Woerden~
+
+Ochtend: enkele sloepen vrij
+
+Middag: vol
+
+~Harmelen: nog 1 sloep beschikbaar
+
+
+**Zondag 10 juli**
+
+~Woerden~
+
+Ochtend: nog enkele sloepen vrij
+
+Middag: vol  - vooralsnog
+
+~Harmelen: nog 2 sloepen beschikbaar
 
 
 Veranderingen worden hier vermeld
