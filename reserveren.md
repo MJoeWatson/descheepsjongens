@@ -40,20 +40,6 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 **Alle dagen nog sloepen beschikbaar, Behalve....
 
 
-**Zaterdag 19 juni**
-
-~Woerden~
-
-Ochtend: 2 vrij 
-
-Middag: vol
-
-~Harmelen~ 
-
-2x een sloep de Hele dag vrij
-
-
-
 **Zondag 20 juni**
 
 ~Woerden~
