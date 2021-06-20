@@ -46,8 +46,8 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 
 Ochtend: 1 vrij 
 
-Middag: vol
-
+Middag: 1 Antaris vrij gekomen!
+ook hele dag mogelijk
 
 ~Harmelen~ 
 
