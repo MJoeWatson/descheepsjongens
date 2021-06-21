@@ -40,9 +40,24 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 **Alle dagen nog sloepen beschikbaar, Behalve....
 
 
+**Zondag 20 juni**
+
+~Woerden~
+
+Ochtend: 1 vrij 
+
+Middag: vol
+
+
+~Harmelen~ 
+
+Ochtend: vol
+
+Middag: vol
+
+
 
 **22 juni**
-
 
 Avond: Gesloten
 
@@ -67,7 +82,13 @@ Ochtend: 1 vrij
 
 Middag: vol
 
-~Harmelen: nog 1 sloep beschikbaar
+
+~Harmelen: 
+
+ochtend 2 vrij 
+
+middag Vol
+
 
 
 **Zondag 3 juli**
