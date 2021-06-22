@@ -14,8 +14,12 @@ Reserveren gaat eenvoudig via de site.
 
 CORONA 2021
 
-Regels die nu gelden:
-Er kunnen 2 stellen/ kleine huishoudens in een sloep, alleen indien er 1,5 meter afstand wordt gehouden tussen de verschillende huishoudens! 
+Regels die nu gelden en ook na 26 juni ( zie site overheid):
+In de sloepen passen met de 1,5 m regel
+max 4 personen (boven 13 jaar) indien geen huishouden.
+Voor huishoudens normale aantal per sloep. 
+
+Er kunnen bv 2 stellen/ kleine huishoudens in een sloep, alleen indien er 1,5 meter afstand wordt gehouden tussen de verschillende huishoudens! 
 
 De regels mbt het Coronavirus:
 
@@ -61,6 +65,6 @@ maar ivm de corona 1,5 meter:
 
 - max. 4 "afzonderlijke" personen  jonge kinderen geen beperkingen, (behalve dan de bootmaat)
 
-- 2 koppels, ieder aan een kant van de boot & evt. kinderen.
+- 2 koppels, ieder aan een kant van de boot (& evt. 6 kinderen onder 13 jaar)
 
 
