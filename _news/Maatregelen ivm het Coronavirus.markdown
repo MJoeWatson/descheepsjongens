@@ -14,7 +14,7 @@ Reserveren gaat eenvoudig via de site.
 
 CORONA 2021
 
-Regels die nu gelden en ook na 26 juni ( zie site overheid):
+Regels die nu gelden **en ook na 26 juni** ( zie site overheid):
 In de sloepen passen met de 1,5 m regel
 max 4 personen (boven 13 jaar) indien geen huishouden.
 Voor huishoudens normale aantal per sloep. 
