@@ -82,13 +82,7 @@ Ochtend: 1 vrij
 
 Middag: vol
 
-
-~Harmelen: 
-
-ochtend 2 vrij 
-
-middag Vol
-
+~Harmelen: middag vol 
 
 
 **Zondag 3 juli**
