@@ -30,7 +30,7 @@ We hebben alles wat je weten moet voordat je gaat varen namelijk op een rij geze
 [Klik **hier** voor alle voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
 
-Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder. 
+Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.  
 
 Willen jullie a.u.b de samenstelling van het gezelschap in het berichtvak vermelden? 
 Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 jaar er meegaan, etc.  dit i.v.m. de corona regels, Alvast bedankt.
@@ -80,7 +80,7 @@ Middag vol
 
 Ochtend: 1 vrij
 
-Middag: vol
+Middag: vol vooralsnog  
 
 ~Harmelen: middag vol 
 
@@ -117,3 +117,7 @@ We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te 
 Als het regent of hard waait kan de vaartocht **in overleg met ons** op de dag zelf, kosteloos verplaatst of geannuleerd worden; Tot een uur voor de vertrek tijd. Het weer valt namelijk meestal mee.
 
 *Bij annuleren in andere gevallen zijn wel kosten verbonden.
+
+Bij het reserveren van meerdere sloepen is de reservering gemaakt zodra het huurbedrag van de sloepen betaald is. 
+
+(Voor annuleren van de reservering van meerdere sloepen rekenen we een bepaald bedrag zie  “prijzen”)
