@@ -50,14 +50,6 @@ Middag: vol in Woerden
 Middag in Woerden vol
 
 
-
-**Zondag 10 juli**
-
-
-Middag in Woerden : vol  - vooralsnog
-
-
-
 Veranderingen worden hier vermeld
 
 
