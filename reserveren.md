@@ -28,15 +28,7 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 
 ### Beschikbaarheid: update: 
 
-**Alle dagen nog sloepen beschikbaar, Behalve....
-
-
-
-**Zondag 27 juni**
-
-
-Middag vol in Woerden 
-
+**Alle dagen nog boten beschikbaar  behalve….
 
 **Zondag 3 juli**
 
