@@ -31,71 +31,31 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 **Alle dagen nog sloepen beschikbaar, Behalve....
 
 
-**Zondag 20 juni**
-
-~Woerden~
-
-Ochtend: 1 vrij 
-
-Middag: vol
-
-
-~Harmelen~ 
-
-Ochtend: vol
-
-Middag: vol
-
-
-
-**22 juni**
-
-Avond: Gesloten
-
-
 
 **Zondag 27 juni**
 
-~Woerden~
 
-Ochtend: nog sloepen beschikbaar
-
-Middag vol
-
-~Harmelen nog 1 sloep beschikbaar
-
-
-**Zondag 4 juli**
-
-~Woerden~
-
-Ochtend: 1 vrij
-
-Middag: vol
-
-~Harmelen: middag vol 
+Middag vol in Woerden 
 
 
 **Zondag 3 juli**
 
-~Woerden~
 
-Ochtend: enkele sloepen vrij
+Middag: vol in Woerden
 
-Middag: vol
 
-~Harmelen: nog 1 sloep beschikbaar
+**Zondag 4 juli**
+
+
+Middag in Woerden vol
+
 
 
 **Zondag 10 juli**
 
-~Woerden~
 
-Ochtend: nog enkele sloepen vrij
+Middag in Woerden : vol  - vooralsnog
 
-Middag: vol  - vooralsnog
-
-~Harmelen: nog 2 sloepen beschikbaar
 
 
 Veranderingen worden hier vermeld
