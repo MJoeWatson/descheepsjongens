@@ -30,6 +30,12 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 
 **Alle dagen nog boten beschikbaar  behalve….
 
+**zondag 27 juni**
+
+
+Middag: vol 
+
+
 **Zondag 3 juli**
 
 
@@ -40,15 +46,6 @@ Middag: vol in Woerden
 
 
 Middag in Woerden vol
-
-
-*Zaterdag 10 juli**
-
-
-Middag in Woerden vol
-
-
-
 
 
 Veranderingen worden hier vermeld
