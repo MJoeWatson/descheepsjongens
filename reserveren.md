@@ -30,19 +30,19 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 
 **Alle dagen nog boten beschikbaar  behalve….
 
-**zondag 27 juni**
-
-
-Middag: vol 
-
-
 **Zondag 3 juli**
 
 
-Middag: vol in Woerden
+Middag: ws vol in Woerden (vooralsnog) 
 
 
 **Zondag 4 juli**
+
+
+Middag in Woerden vol
+
+
+**Zaterdag 10 juli**
 
 
 Middag in Woerden vol
