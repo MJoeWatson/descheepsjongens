@@ -33,19 +33,13 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 **Zondag 3 juli**
 
 
-Middag: ws vol in Woerden (vooralsnog) 
+Middag: vol 
 
 
 **Zondag 4 juli**
 
 
-Middag in Woerden vol
-
-
-**Zaterdag 10 juli**
-
-
-Middag vol   vooralsnog
+Middag  vol
 
 
 Veranderingen worden hier vermeld
