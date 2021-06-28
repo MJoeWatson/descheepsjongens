@@ -32,6 +32,7 @@ De sloep hebben we namelijk graag weer in de zelfde staat terug als dat deze was
 Bij terugkomst kun je zelf de sloep weer schoon maken; (de hele binnenkant, boven /onder de kussens etc.)  of
 
 Wij willen het ook  voor je doen, daar is de €10,- schoonmaakborg dan voor.
+Is de boot erg vies, dan zijn er meer kosten aan verbonden.
 
 ~ Kleine schade zoals een kras en andere onkosten worden van de borg afgehouden.
 
@@ -44,7 +45,8 @@ Annuleren als het **regent** is kosteloos , kan op de dag zelf, in overleg met o
 
 Als er om een andere reden geannuleerd wordt vragen we €20,- service kosten.
 
-Indien wij speciaal voor de vaartocht bij de sloep aanwezig zijn en de vaartocht gaat niet door of je komt niet opdagen, wordt óf het hele huurbedrag berekend óf €20,- de reserverings /service onkosten gerekend.
+Indien wij speciaal voor de vaartocht bij de sloep aanwezig zijn en de vaartocht gaat niet door of je komt niet opdagen, wordt óf het hele huurbedrag berekend.
+In sommige gevallen wordt alleen de  €20,- de reserverings /service onkosten gerekend.
 
 ~ Een extra uur bij huren is soms mogelijk, dit in overleg, €30,-per uur. Vooraf te reserveren/. overleggen.
 
@@ -52,7 +54,6 @@ Indien wij speciaal voor de vaartocht bij de sloep aanwezig zijn en de vaartocht
 We hebben cadeaubonnen voor:
 - Hele dag €170,-
 - Halve dag €100,-
-
 - of een bedrag naar wens.
 Bij Cadeaubonnen vanaf €100,- krijg je een leuke kapiteinspet cadeau.
 
