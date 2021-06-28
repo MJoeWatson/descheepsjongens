@@ -43,9 +43,12 @@ We rekenen geen reserveringskosten.
 Annuleren als het **regent** is kosteloos , kan op de dag zelf, in overleg met ons tot een uur voor de vertrek tijd. 
 **Bij onweer niet** op het water, dat is gevaarlijk.
 
-Als er om een andere reden geannuleerd wordt vragen we €20,- service kosten.
+Als er om een **andere reden** geannuleerd wordt vragen we **€20,- service kosten**.
 
-Indien wij speciaal voor de vaartocht bij de sloep aanwezig zijn en de vaartocht gaat niet door of je komt niet opdagen, wordt óf het hele huurbedrag berekend.
+Voor reserveren van 2 of meer sloepen zullen we ook een vooruit betaling vragen.
+
+Indien wij speciaal voor de vaartocht bij de sloep aanwezig zijn en de vaartocht gaat niet door of je komt niet opdagen, wordt het hele huurbedrag berekend.
+
 In sommige gevallen wordt alleen de  €20,- de reserverings /service onkosten gerekend.
 
 ~ Een extra uur bij huren is soms mogelijk, dit in overleg, €30,-per uur. Vooraf te reserveren/. overleggen.
