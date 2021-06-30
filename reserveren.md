@@ -51,12 +51,10 @@ Woerden vol
 
 **zondag 18 juli**
 
-Middag: elektrische sloepen in Woerden al gereserveerd .. nog 1 Antaris (buitenboordmotor sloep) vrij 
-
-in Harmelen nog 1 nicki sloep vrij 
+Middag: vol  -vooralsnog-
 
 
-Veranderingen worden hier vermeld
+Veranderingen worden hier vermeld.
 
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
