@@ -30,7 +30,7 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 
 **Alle dagen nog boten beschikbaar  behalve….
 
-**Zondag 3 juli**
+**Zaterdag  3 juli**
 
 
 Middag: vol 
@@ -40,6 +40,14 @@ Middag: vol
 
 
 Middag  vol
+
+
+**Zaterdag  10 juli**
+
+
+Middag: elektrische sloepen in Woerden al gereserveers  nog 1 Antaris (buitenboordmotor sloep)
+
+in Harmelen nog 1 nicki sloep vrij 
 
 
 Veranderingen worden hier vermeld
