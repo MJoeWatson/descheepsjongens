@@ -44,8 +44,14 @@ Middag  vol
 
 **Zaterdag  10 juli**
 
+Woerden vol 
 
-Middag: elektrische sloepen in Woerden al gereserveers  nog 1 Antaris (buitenboordmotor sloep)
+(nog 1 vrij in Harmelen)
+
+
+**zondag 18 juli**
+
+Middag: elektrische sloepen in Woerden al gereserveerd .. nog 1 Antaris (buitenboordmotor sloep) vrij 
 
 in Harmelen nog 1 nicki sloep vrij 
 
