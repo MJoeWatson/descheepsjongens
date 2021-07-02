@@ -27,7 +27,7 @@ Kinderen **zonder zwemdiploma** moeten een **zwemvest** dragen.
 
 5) **Touwen binnenboord**! Anders komen ze in de schroef terecht en draait de **motor stuk!**
 
--Op de rand/ punt/ achterkant van de boot zitten of staan is te gevaarlijk; Iets of iemand achter de boot hangen is niet toegestaan. Zwemmen kan overal in het water vanaf een kade of steiger langs de route, en niet vanaf de boot.
+-O**p de rand/ punt/ achterkant** van de boot zitten of staan is **te gevaarlijk**; Iets of iemand achter de boot hangen is niet toegestaan. **Zwemmen** kan overal in het water **vanaf een kade of steiger** langs de route, en **niet vanaf de boot**.
 
 6) Als de sloep **in de schroef** lijkt te hebben en niet goed / te langzaam vaart, dan kun je de sloep een klein moment vol in z’n **achteruit** zetten. Meestal draait het weer los. Zo niet of als er een storings melding verschijnt op het display  bv een "C" dan **motor uitzetten!** en **ons bellen** om te voorkomen dat de motor onherstelbaar kapot draait!! We geven dan instructies of komen naar je toe.
 
