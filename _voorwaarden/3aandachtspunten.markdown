@@ -64,20 +64,26 @@ let wel: in **alle** andere gevallen worden er kosten berekend.
 We houden de sloep namelijk speciaal voor u bezet, 
 
 Annuleren met droog weer?,
-* tot 24 uur van tevoren: Kosten: €20,- wordt in rekening gebracht.
 
-* korter dan 24 uur van te voren:  50 % van de huurprijs wordt in rekening gebracht.
+* Tot 24 uur van tevoren en geen slecht weer:
+€20,- wordt in rekening gebracht.
+
+* Korter dan 24 uur van te voren en geen slecht weer:  
+50 % van de huurprijs wordt in rekening gebracht.
+
 **Nogmaals: Bij regen en harde wind tijdens de huurperiode is annuleren gratis** op de dag zelf.
  
-(niet 1 of 2 dagen ervoor!, omdat je dan nog niets kan zeggen over het werkelijke weer namelijk.
+(niet 1 of 2 dagen ervoor, omdat je dan nog niets kan zeggen over het werkelijke weer namelijk.
 Dan kost annuleren €20,- 
 
-Indien wij **speciaal** naar het vertrekpunt komen en er gekozen wordt de vaartocht **niet door**, te laten gaan, dan rekenen we de gemaakte **kosten**. 
+Indien wij **speciaal** naar het vertrekpunt komen en de vaartocht blijkt **niet door**, te gaan, dan rekenen we de gemaakte **kosten**. 
+
 Het **hele gereserveerde dagdeel**  (óf de **service kosten á €20,-**, Dit voor ons om te bepalen.)
 
 14) Als de reservering gemaakt is gaat de huurder **akkoord** met **al deze voorwaarden.**
 
-Deze regels zijn ontstaan door onze ervaring:)
+Als je bovenstaande allemaal weet, komt het helemaal goed!
+Deze regels zijn allemaal ontstaan door onze ervaring:)
 
 Dan is het in ieder geval duidelijk voor iedereen en hoeven wij niet veel meer uit te leggen als je vertrekt zodat je lekker gauw het water op kan!
 
