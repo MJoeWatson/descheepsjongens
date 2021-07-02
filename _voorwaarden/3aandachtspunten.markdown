@@ -21,7 +21,7 @@ Kinderen **zonder zwemdiploma** moeten een **zwemvest** dragen.
 
 3) **Hond** Kosten: **€ 20,- extra.** De hond mag niet op de kussens, kap ed., alleen op een eigen kleedje. 
 
-4) De kappen zijn netjes naar beneden gevouwen*, **graag zo houden.**  * Alleen bij hevige regen eventueel te gebruiken. - De kap moet altijd **binnenboord** netjes opgevouwen zijn (i.v.m. beschadigen)
+4) De **kappen** zijn netjes naar beneden gevouwen*, **graag zo houden.**  * Alleen bij hevige regen eventueel te gebruiken. - De kap moet altijd **binnenboord** netjes opgevouwen zijn (i.v.m. beschadigen)
 
 *Je hebt weinig/geen zicht onder de kap, sommige bruggen kan je zo **niet** onderdoor!, en het is net zo warm daaronder.. dus beter zo opgevouwen te laten.
 
