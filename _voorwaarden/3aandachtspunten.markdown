@@ -62,6 +62,7 @@ Pas op uw hoofd onder de bruggen, buk tijdig wanneer nodig.
 let wel: in **alle** andere gevallen worden er kosten berekend.
 
 We houden de sloep namelijk speciaal voor u bezet, 
+
 Annuleren met droog weer?,
 * tot 24 uur van tevoren: Kosten: €20,- wordt in rekening gebracht.
 
