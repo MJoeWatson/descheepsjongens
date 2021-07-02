@@ -33,7 +33,7 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 **Zaterdag  3 juli**
 
 
-Middag: vol 
+Middag: 1 vrij in Harmelen!
 
 
 **Zondag 4 juli**
