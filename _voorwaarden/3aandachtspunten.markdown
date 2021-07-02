@@ -38,7 +38,7 @@ en pas op, Als je de hendel **aanstoot** of er langs loopt, anders **vaart de sl
 Bij uitstappen/ langslopen daarom de sloep **uitzetten** met de sleutel.
 
 8) Als je door een **sluis of brug** vaart, houdt rekening met de **openingstijden**:   ~sluizen en bruggen worden soms op vaste tijden geopend. Let goed op de laatste doorvaar mogelijkheid en dat je de **goede route** vaart.
-Wijk niet van de vaarroutes af ivm ondiepe sloten en te lage bruggen.--> schade
+Wijk niet van de vaarroutes af ivm **ondiepe** sloten en te lage bruggen.--> schade
 -Een heel rondje om de stad Woerden kan (nog!)niet, de brug bij het kasteel is te laag en de Oostdam nog dicht...
 
 In de **sluis** de sloep **niet vast binden** maar laten vieren.
