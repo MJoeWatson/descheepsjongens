@@ -33,9 +33,8 @@ Elke boot is uitgerust met een GPS volg systeem. Zorg dat je bij ons het **goede
 
 4.) De sloep wordt op de **afgesproken tijd** opgehaald en weer teruggebracht.
 
-Moeten we op je **wachten** dan zijn er **kosten** aan verbonden, €10,- per kwartier, want we zijn daar speciaal voor jullie, ook bij vertrek.
+Moeten we op je **wachten** dan zijn er **kosten** aan verbonden, €10,- per kwartier, want we zijn daar speciaal voor jullie, **ook bij vertrek.**
 
 Als de sloep naderhand verhuurd is, brengen we het volgende dagdeel **in rekening** 
 
-Bij geen volgend verhuur dan zijn de extra kosten €10,- per 15 min.
 Langer varen kan soms, maar dit in overleg van tevoren.
