@@ -28,25 +28,38 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 
 ### Beschikbaarheid: update: 
 
+
+(evt aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
+
 **Alle dagen nog boten beschikbaar  behalve….
 
 **Zaterdag  3 juli**
 
 
-Middag:  of hele dag: 1 vrij in Harmelen!
+Ochtend: Boten vrij
+
+Middag: Woerden vol 
+
+In Harmelen  hele dag of dagdeel : 1 vrij !
 
 
 **Zondag 4 juli**
 
 
-Middag  vol
+Ochtend: Boten vrij
+
+Middag: Woerden vol 
+
+In Harmelen  hele dag of dagdeel : 1 vrij !
 
 
 **Zaterdag  10 juli**
 
-Woerden vol 
+Ochtend: Boten vrij
 
-(nog 1 vrij in Harmelen)
+Middag: Woerden vol 
+
+In Harmelen  hele dag of dagdeel : 1 vrij !
 
 
 **zondag 18 juli**
