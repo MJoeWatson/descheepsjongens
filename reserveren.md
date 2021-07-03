@@ -33,15 +33,6 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 
 **Alle dagen nog boten beschikbaar  behalve….
 
-**Zaterdag  3 juli**
-
-
-Ochtend: Boten vrij
-
-Middag: Woerden vol 
-
-In Harmelen  hele dag of dagdeel : 1 vrij !
-
 
 **Zondag 4 juli**
 
