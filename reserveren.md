@@ -34,15 +34,6 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 **Alle dagen nog boten beschikbaar  behalve….
 
 
-**Zondag 4 juli**
-
-
-Ochtend: Boten vrij
-
-Middag: Woerden vol 
-
-In Harmelen  hele dag of dagdeel : 1 vrij !
-
 
 **Zaterdag  10 juli**
 
@@ -51,6 +42,15 @@ Ochtend: Boten vrij
 Middag: Woerden vol 
 
 In Harmelen  hele dag of dagdeel : 1 vrij !
+
+
+**Zaterdag 27 juli**
+
+ochtend vrij 
+
+Middag of hele dag  1 antaris nog vrij in Woerden 
+
+1 nicki in Harmelen hele dag of dagdeel
 
 
 **zondag 18 juli**
