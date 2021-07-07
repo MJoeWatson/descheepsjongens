@@ -41,7 +41,7 @@ Ochtend: Boten vrij
 
 Middag: Woerden vol 
 
-In Harmelen  hele dag of dagdeel : 1 vrij !
+In Harmelen  hele dag of dagdeel :  vrij !
 
 
 **Zaterdag 27 juli**
