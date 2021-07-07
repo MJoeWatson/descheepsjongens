@@ -39,7 +39,7 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 
 Ochtend: Boten vrij
 
-Middag: Woerden vol 
+Middag: Woerden  hele dag  en of middag 1 vrij! 
 
 In Harmelen  hele dag of dagdeel :  vrij !
 
