@@ -43,12 +43,18 @@ Middag: Woerden  hele dag  en of middag 1 vrij!
 
 In Harmelen  hele dag of dagdeel :  vrij !
 
+**zondag 11 juli**
+
+Middag: 
+Woerden:  De elektrische zijn gereserveerd, Antaris nog vrij..
+
+harmelen Elektrisch mogelijk hele dag / dagdeel
 
 **Zaterdag 27 juli**
 
 ochtend vrij 
 
-Middag of hele dag  1 antaris nog vrij in Woerden 
+Middag of hele dag  1 Antaris nog vrij in Woerden 
 
 1 nicki in Harmelen hele dag of dagdeel
 
