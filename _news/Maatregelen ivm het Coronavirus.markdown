@@ -10,14 +10,16 @@ date: 2020-03-18 12:25:00 +01:00
 CORONA 2021
 
 Regels die nu gelden zie site van de rijks overheid.
-overheid
+
+**Vanaf nu zijn er wat versoepelingen, We vertrouwen erop dat u zelf de verantwoording neemt en "corona-veilig" vaart;**
+
 
 De regels mbt het Coronavirus:
 
 1. ~Volg de richtlijnen van het RIVM
 2. ~ Voelt u zich niet lekker of bent u verkouden of heeft u koorts, ga er niet op uit, blijf thuis!
-3. ~ Als je onderweg aanlegt of uitstapt houdt je aan de regels, neem zelf je picknickmand mee, of bestel deze bij een lokaal restaurant to go.; 
-Het is aan jullie zelf om de goede afstand in de sloep te bewaren.
+3. ~ Als je onderweg aanlegt of uitstapt houdt je aan de regels, neem zelf je picknickmand mee;
+Het is aan jullie zelf om de goede afstand in de sloep te bewaren wanneer nodig.
 
 6. Bij vertrek zal de uitleg buiten en op gepaste afstand worden gegeven.
 
@@ -32,16 +34,14 @@ We wensen iedereen een goede gezondheid toe en veel plezier op het water!
 
 Wat kan per sloep:
 
-Vanaf nu zijn er wat versoepelingen,
-
 
 **De Antaris**
 
 Op zich groot genoeg voor 6 personen, maar...
 
-- met de 1,5 meter in acht genomen: 
+- Als de 1,5 meter in acht wordt genomen: 
 
-- Een Huishouden/gezin van max 6 á 7 personen
+- Een Huishouden/gezin van max 6 (á 7 kleinere personen)
 
  max 3 "afzonderlijke" personen of 2 samenwonende stellen  
 ieder aan een kant van de boot & evt. enkele kinderen jonger dan 13 jaar
