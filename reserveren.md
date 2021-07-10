@@ -34,15 +34,6 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 **Alle dagen nog boten beschikbaar  behalve….
 
 
-
-**Zaterdag  10 juli**
-
-Ochtend: Boten vrij
-
-Middag: Woerden  hele dag  en of middag 1 vrij! 
-
-In Harmelen  hele dag of dagdeel :  vrij !
-
 **zondag 11 juli**
 
 Middag: 
@@ -50,13 +41,14 @@ Woerden:  De elektrische zijn gereserveerd, Antaris nog vrij..
 
 harmelen Elektrisch mogelijk hele dag / dagdeel
 
-**Zaterdag 27 juli**
+**Zaterdag 17 juli**
 
-ochtend vrij 
+ochtend 
 
-Middag of hele dag  1 Antaris nog vrij in Woerden 
+vrij in woerden 10.00-13.00 uur 
+Harmelen ochtend vrij evt mogelijk ook van 9.30- 14.00 uur 
 
-1 nicki in Harmelen hele dag of dagdeel
+Middag vol 
 
 
 **zondag 18 juli**
