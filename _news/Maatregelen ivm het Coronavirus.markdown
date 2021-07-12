@@ -11,7 +11,8 @@ CORONA 2021
 
 Regels die nu gelden zie site van de rijks overheid.
 
-**Vanaf nu zijn er wat versoepelingen, We vertrouwen erop dat u zelf de verantwoording neemt en "corona-veilig" vaart;**
+**Vanaf nu zijn er wat versoepelingen,  Maar we blijven voorzichtig;
+We vertrouwen erop dat u zelf de verantwoording neemt en "corona-veilig" vaart;**
 
 
 De regels mbt het Coronavirus:
