@@ -29,38 +29,36 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 ### Beschikbaarheid: update: 
 
 
-(evt aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
+(aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
 
-**Alle dagen nog boten beschikbaar  behalve….
+**Meeste dagen nog boten beschikbaar, (vooral door de weekse dagen! )  
 
 
-**zondag 11 juli**
-
-Middag: 
-Woerden:  De elektrische zijn gereserveerd, Antaris nog vrij..
-
-harmelen Elektrisch mogelijk hele dag / dagdeel
+Drukke dagen: 
 
 **Zaterdag 17 juli**
 
-ochtend 
+Ochtend:
 
-vrij in woerden 10.00-13.00 uur 
+vrij in Woerden 10.00-13.00 uur 
+
 Harmelen ochtend vrij evt mogelijk ook van 9.30- 14.00 uur 
 
-Middag vol 
+Middag alles vol 
 
 
 **zondag 18 juli**
 
-Middag: vol  -vooralsnog-
+Ochtend: vrij 
+
+Middag: vol  
 
 
 Veranderingen worden hier vermeld.
 
 
-Wanneer de aanvraag voor de reservering is gemaakt sturen we je altijd een bericht of er plaats is.
-Bij een gemaakte reservering sturen we de bevestiging met de informatie die je nodig hebt,
+Wanneer de aanvraag voor de reservering is gemaakt sturen we je **altijd** een bericht **of** er plaats is.
+Bij een gemaakte reservering sturen we de **bevestiging met de informatie die je nodig hebt**,
 We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
 
 Als het regent of hard waait kan de vaartocht **in overleg met ons** op de dag zelf, kosteloos verplaatst of geannuleerd worden; Tot een uur voor de vertrek tijd. Het weer valt namelijk meestal mee.
