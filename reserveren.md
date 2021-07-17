@@ -36,20 +36,9 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 
 Drukke dagen: 
 
-**Zaterdag 17 juli**
-
-Ochtend:
-
-vrij in Woerden 10.00-13.00 uur 
-
-Harmelen ochtend vrij evt mogelijk ook van 9.30- 14.00 uur 
-
-Middag alles vol 
-
-
 **zondag 18 juli**
 
-Ochtend: vrij 
+Ochtend: vrij in Harmelen
 
 Middag: vol  
 
