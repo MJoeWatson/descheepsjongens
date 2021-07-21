@@ -36,11 +36,12 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 
 Drukke dagen: 
 
-**zondag 18 juli**
+**zondag 25 juli**
 
-Ochtend: vrij in Harmelen
+Ochtend: nicki sloep vrij in Harmelen
 
-Middag: vol  
+Middag: elektrische sloepen in woerden zijn in de middG gereserveerd 
+de antaris is nog beschikbaar 
 
 
 Veranderingen worden hier vermeld.
