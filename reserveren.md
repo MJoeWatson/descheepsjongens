@@ -36,6 +36,12 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 
 Drukke dagen: 
 
+**Donderdag 22 juli**
+
+In de ochtend nog vrij
+maar in de middag zijn de elektrische sloepen in Woerden gereserveerd (buitenboordmotor sloep nog beschikbaar)
+in Harmelen  wel elektrische sloep vrij
+
 **zondag 25 juli**
 
 Ochtend: nicki sloep vrij in Harmelen
