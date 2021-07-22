@@ -39,9 +39,8 @@ Drukke dagen:
 **Donderdag 22 juli**
 
 In de ochtend nog vrij
-maar in de middag zijn de sloepen in Woerden gereserveerd 
+maar in de middag zijn de sloepen gereserveerd 
 
-in Harmelen  wel elektrische sloep vrij
 
 **zondag 25 juli**
 
