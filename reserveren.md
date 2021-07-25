@@ -13,7 +13,7 @@ layout: reserveren
 
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **goed** door; [](https://descheepsjongens.nl/voorwaarden)
    
-We hebben alles wat je weten moet voordat je gaat varen namelijk op een rij gezet voor jullie, Het is een soort korte cursus/ instructie eigenlijk.
+We hebben alles wat je weten moet voordat je gaat varen namelijk op een rij gezet voor jullie,
 **waar iedereen van op de hoogte moet zijn.**
 
 *Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van hoe het werkt, wat **echt** belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden!
@@ -32,23 +32,6 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
 
 **Meeste dagen nog boten beschikbaar, (vooral door de weekse dagen! )  
-
-
-Drukke dagen: 
-
-**Donderdag 22 juli**
-
-In de ochtend nog vrij
-maar in de middag zijn de sloepen gereserveerd 
-
-
-**zondag 25 juli**
-
-Ochtend: nicki sloep vrij in Harmelen
-
-Middag: elektrische sloepen in woerden zijn in de middG gereserveerd 
-de antaris is nog beschikbaar 
-
 
 Veranderingen worden hier vermeld.
 
