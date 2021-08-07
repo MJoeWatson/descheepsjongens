@@ -27,11 +27,17 @@ Willen jullie a.u.b de samenstelling van het gezelschap in het berichtvak vermel
 Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 jaar er meegaan, etc.  dit i.v.m. de corona regels, Alvast bedankt.
 
 ### Beschikbaarheid: update: 
+drukke dag:
+
+zaterdag 14 augustus: Woerden vol in de middag
+
 
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
 
 **Meeste dagen nog boten beschikbaar, (vooral door de weekse dagen! )  
+
+
 
 Veranderingen worden hier vermeld.
 
