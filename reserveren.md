@@ -29,6 +29,8 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 ### Beschikbaarheid: update: 
 drukke dag:
 
+11 augustus vol in de middag
+
 zaterdag 14 augustus: Woerden vol in de middag
 
 
