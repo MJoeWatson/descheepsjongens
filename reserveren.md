@@ -33,6 +33,7 @@ drukke dag:
 
 zaterdag 14 augustus: Woerden vol in de middag
 
+zondag 15 augustus is elektrisch varen alleen nog mogelijk in harmelen 
 
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
