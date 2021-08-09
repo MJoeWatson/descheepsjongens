@@ -33,9 +33,8 @@ drukke dag:
 
 zaterdag 14 augustus: Woerden vol in de middag
 
-zondag 15 augustus 
-
-en - vooralsnog - 1 antaris (buitenboordmotor sloep) voor de hele dag/ in de middag in woerden
+zondag 15 augustus vol - vooralsnog-  
+evt plaats op reserveerlijst mogelijk 
 
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
