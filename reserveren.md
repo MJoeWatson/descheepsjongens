@@ -29,18 +29,35 @@ Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 ja
 ### Beschikbaarheid: update: 
 drukke dag:
 
+vooralsnog deze dagen :
+
 11 augustus vol in de middag
+
+
+12 augustus vol in woerden 
+
+in Harmelen nog 1 sloep vrij voor de ochtend
 
 13 aug zijn de stille sloepen in woerden 
 al uit varen 
-in Harmelen is er nog 2 vrij 
+de Antaris is nog vrij (buitenboordmotor sloep) 
+en 
+in Harmelen is er nog een stille vrij vrij voir de hele dag/ dagdelen
 
 
-zaterdag 14 augustus: Woerden vol in de middag
+zaterdag 14 augustus: Woerden vol in de middag, 
 
-zondag 15 augustus vol in de middag
-in woerden in de ochtend nog 1 vrij 
+Harmelen wel 1 vrij voor de hele dag/ dagdelen 
+
+ochtend in woerden nog 1 stille beschikbaar..
+
+zondag 15 augustus in de middag
+in woerden nog 1 buitenboordmotor sloep Antaris vrij gekomen voor de hele dag 
+
+en 1 stille sloep in de ochtend nog vrij 
  
+
+
 evt plaats op reserveerlijst mogelijk 
 
 
