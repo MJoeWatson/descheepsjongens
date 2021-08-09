@@ -31,6 +31,11 @@ drukke dag:
 
 11 augustus vol in de middag
 
+13 aug zijn de stille sloepen in woerden 
+al uit varen 
+in Harmelen is er nog 2 vrij 
+
+
 zaterdag 14 augustus: Woerden vol in de middag
 
 zondag 15 augustus vol in de middag
