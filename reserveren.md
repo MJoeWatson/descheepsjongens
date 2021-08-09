@@ -33,7 +33,11 @@ drukke dag:
 
 zaterdag 14 augustus: Woerden vol in de middag
 
-zondag 15 augustus is elektrisch varen alleen nog mogelijk in harmelen 
+zondag 15 augustus 
+
+elektrisch alleen nog in de ochtend vrij; in de middag niet meer
+
+en 1 antaris (buitenboordmotor sloep) voor de hele dag/ in de middag in woerden
 
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
