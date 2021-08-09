@@ -33,7 +33,8 @@ drukke dag:
 
 zaterdag 14 augustus: Woerden vol in de middag
 
-zondag 15 augustus vol - vooralsnog-  
+zondag 15 augustus vol
+ 
 evt plaats op reserveerlijst mogelijk 
 
 
