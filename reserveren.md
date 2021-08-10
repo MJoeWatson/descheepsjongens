@@ -47,8 +47,8 @@ in de ochtend nog 1 Antaris vrij in Woerden
 
 De stille sloepen in woerden 
 zijn al uit varen,  
-De Antaris is nog vrij (buitenboordmotor sloep) 
-en 
+
+
 in Harmelen zijn er nog 2 stille sloepen vrij  voor de hele dag/ dagdelen
 
 
