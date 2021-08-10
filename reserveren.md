@@ -54,11 +54,10 @@ in Harmelen is er nog een stille vrij vrij voir de hele dag/ dagdelen
 
 **Zaterdag 14 augustus**:
 
-In Woerden vol in de middag, 
+vol in de middag, 
 
-Harmelen wel 1 vrij voor de hele dag/ dagdelen 
-
-ochtend in woerden nog 1 stille beschikbaar..
+ochtend:
+in woerden en in Harmelen nog 1 sloep beschikbaar..
 
 **Zondag 15 augustus**
 
