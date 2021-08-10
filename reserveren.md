@@ -31,11 +31,11 @@ drukke dag:
 
 vooralsnog deze dagen :
 
-**Woensdag 11 augustus **
+**Woensdag 11 augustus**
 
-vol in de middag, 
+**in de middag nog 1 stille sloep vrijgekomen in Woerden!**
 
-in de ochtend nog 1 Antaris vrij!
+in de ochtend nog 1 Antaris vrij in Woerden
 
 
 **Donderdag 12 augustus**
@@ -49,24 +49,22 @@ De stille sloepen in woerden
 zijn al uit varen,  
 De Antaris is nog vrij (buitenboordmotor sloep) 
 en 
-in Harmelen is er nog een stille vrij vrij voir de hele dag/ dagdelen
+in Harmelen zijn er nog 2 stille sloepen vrij  voor de hele dag/ dagdelen
 
 
 **Zaterdag 14 augustus**:
 
-vol in de middag, 
+In Woerden vol in de middag, in de ochtend nog mogelijk.
 
-ochtend:
-in woerden en in Harmelen nog 1 sloep beschikbaar..
+Harmelen  1 elektrische sloep vrij in de ochtend, middag vol
+
 
 **Zondag 15 augustus**
 
-in de middag
+Woerden: in de ochtend 1 stille sloep vrij
 
-in woerden nog 1 buitenboordmotor sloep Antaris vrij gekomen voor de hele dag 
+en nog 1 buitenboordmotor sloep Antaris vrij gekomen voor de hele dag/dagdelen 
 
-en 1 stille sloep in de ochtend nog vrij 
-  
 
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
