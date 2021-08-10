@@ -33,7 +33,7 @@ vooralsnog deze dagen :
 
 **Woensdag 11 augustus**
 
-**in de middag nog 1 stille sloep vrijgekomen in Woerden!**
+
 
 in de ochtend nog 1 Antaris vrij in Woerden
 
