@@ -33,14 +33,15 @@ vooralsnog deze dagen :
 
 **Woensdag 11 augustus **
 
-vol in de middag
+vol in de middag, 
+
+in de ochtend nog 1 Antaris vrij!
 
 
 **Donderdag 12 augustus**
 
- vol in woerden 
+ Alles vol in Woerden en in Harmelen
 
-in Harmelen nog 1 sloep vrij voor de ochtend
 
 **Vrijdag 13 augustus **
 
