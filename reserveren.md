@@ -39,11 +39,10 @@ vooralsnog deze dagen :
 
 **Vrijdag 13 augustus **
 
-De stille sloepen in woerden 
-zijn al uit varen,  
+In de ochtend nog enkele sloepen vrij in Woerden
 
-
-in Harmelen zijn er nog 2 stille sloepen vrij  voor de hele dag/ dagdelen
+alle sloepen 
+zijn n de middag al uit varen 
 
 
 **Zaterdag 14 augustus**:
