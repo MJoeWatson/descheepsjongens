@@ -33,8 +33,6 @@ vooralsnog deze dagen :
 
 **Woensdag 11 augustus**
 
-
-
 in de ochtend nog 1 Antaris vrij in Woerden
 
 
