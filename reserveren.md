@@ -34,7 +34,7 @@ vooralsnog deze dagen :
 
 **Donderdag 12 augustus**
 
- Alles vol in Woerden en in Harmelen
+ Alles vol in Woerden en in Harmelen 
 
 
 **Vrijdag 13 augustus **
