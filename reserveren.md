@@ -31,10 +31,6 @@ drukke dag:
 
 vooralsnog deze dagen :
 
-**Woensdag 11 augustus**
-
-in de ochtend nog 1 Antaris vrij in Woerden
-
 
 **Donderdag 12 augustus**
 
