@@ -59,16 +59,12 @@ Harmelen  1 elektrische sloep vrij in de ochtend, middag vol
 
 **Zondag 15 augustus**
 
-Woerden: in de ochtend 1 stille sloep vrij
-
-en nog 1 buitenboordmotor sloep Antaris vrij gekomen voor de hele dag/dagdelen 
-
+Woerden: in de ochtend 1 stille sloep vrij- vooralsnog- 
 
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
 
-**Meeste dagen nog boten beschikbaar, (vooral door de weekse dagen! )  
-
+**verder zijn de sloepen op de meeste dagen nog boten beschikbaar, (vooral door de weekse dagen! )  
 
 
 Veranderingen worden hier vermeld.
