@@ -34,7 +34,7 @@ vooralsnog deze dagen :
 
 **Vrijdag 13 augustus **
 
-In de ochtend nog enkele sloepen vrij in Woerden en 1 in Harmelen
+In de ochtend nog 1 soep vrij in Harmelen
 
 In de middag zijn de sloepen allemaal al uit varen;
 
