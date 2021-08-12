@@ -39,22 +39,22 @@ vooralsnog deze dagen :
 
 **Vrijdag 13 augustus **
 
-In de ochtend nog een Antaris, (buitenboordmotor sloep) vrij in Woerden
+In de ochtend nog enkele sloepen vrij in Woerden
 
-alle sloepen 
-zijn n de middag al uit varen 
+In de middag is er een sloep in Harmelen vrijgekomen!
+
 
 
 **Zaterdag 14 augustus**:
 
-In Woerden vol in de middag, in de ochtend nog een paar sloepjes vrij.
+In Woerden vol in de middag, in de ochtend nog mogelijk.
 
 Harmelen  1 elektrische sloep vrij in de ochtend, middag vol
 
 
 **Zondag 15 augustus**
 
-Woerden: in de ochtend 1 stille sloep en 1 Antaris vrij- vooralsnog- 
+Woerden: in de ochtend 1 stille sloep vrij- vooralsnog- 
 
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
