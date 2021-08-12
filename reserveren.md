@@ -39,7 +39,7 @@ vooralsnog deze dagen :
 
 **Vrijdag 13 augustus **
 
-In de ochtend nog enkele sloepen vrij in Woerden
+In de ochtend nog een Antaris, (buitenboordmotor sloep) vrij in Woerden
 
 alle sloepen 
 zijn n de middag al uit varen 
