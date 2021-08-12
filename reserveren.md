@@ -47,14 +47,14 @@ zijn n de middag al uit varen
 
 **Zaterdag 14 augustus**:
 
-In Woerden vol in de middag, in de ochtend nog mogelijk.
+In Woerden vol in de middag, in de ochtend nog een paar sloepjes vrij.
 
 Harmelen  1 elektrische sloep vrij in de ochtend, middag vol
 
 
 **Zondag 15 augustus**
 
-Woerden: in de ochtend 1 stille sloep vrij- vooralsnog- 
+Woerden: in de ochtend 1 stille sloep en 1 Antaris vrij- vooralsnog- 
 
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
