@@ -32,18 +32,11 @@ drukke dag:
 vooralsnog deze dagen :
 
 
-**Donderdag 12 augustus**
-
- Alles vol in Woerden en in Harmelen 
-
-
 **Vrijdag 13 augustus **
 
-In de ochtend nog enkele sloepen vrij in Woerden
+In de ochtend nog enkele sloepen vrij in Woerden en 1 in Harmelen
 
-In de middag is er een sloep in Harmelen vrijgekomen!
-
-
+In de middag zijn de sloepen allemaal al uit varen;
 
 **Zaterdag 14 augustus**:
 
