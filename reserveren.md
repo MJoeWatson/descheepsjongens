@@ -32,15 +32,9 @@ drukke dag:
 vooralsnog deze dagen :
 
 
-**Vrijdag 13 augustus **
-
-In de ochtend nog 1 soep vrij in Harmelen
-
-In de middag zijn de sloepen allemaal al uit varen;
-
 **Zaterdag 14 augustus**:
 
-In Woerden vol in de middag, in de ochtend nog mogelijk.
+In Woerden vol in de middag, in de ochtend nog 1 Antaris en 1 nicki sloep 
 
 Harmelen vol 
 
