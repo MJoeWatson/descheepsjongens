@@ -42,7 +42,7 @@ In de middag zijn de sloepen allemaal al uit varen;
 
 In Woerden vol in de middag, in de ochtend nog mogelijk.
 
-Harmelen  1 elektrische sloep vrij in de ochtend, middag vol
+Harmelen vol 
 
 
 **Zondag 15 augustus**
