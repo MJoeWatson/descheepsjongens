@@ -32,17 +32,19 @@ drukke dag:
 vooralsnog deze dagen :
 
 
-**Zaterdag 14 augustus**:
-
-In Woerden vol in de middag, in de ochtend nog 1 Antaris en 1 nicki sloep 
-
-Harmelen vol 
-
-
 **Zondag 15 augustus**
 
 in Woerden en Harmelen is alles uit varen deze dag …
 
+**Zaterdag 21 juli**
+
+in Woerden zijn in de middag de elektrische boten al uit varen
+
+in de ochtend nog elektrisch sloepen beachikbaar
+en
+2 x Antaris nog vrij voor de hele dag/ dagdelen
+
+in Harmelen nog 2 stille sloepen vrij voor de hele dag/ dagdelem
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
 
