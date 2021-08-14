@@ -41,7 +41,7 @@ Harmelen vol
 
 **Zondag 15 augustus**
 
-Woerden: in de ochtend 1 stille sloep vrij- vooralsnog- 
+in Woerden en Harmelen is alles uit varen deze dag …
 
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
