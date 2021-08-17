@@ -24,7 +24,7 @@ We hebben alles wat je weten moet voordat je gaat varen namelijk op een rij geze
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder. 
 
 Willen jullie a.u.b de samenstelling van het gezelschap in het berichtvak vermelden? 
-Bijvoorbeeld: 1 huishouden, samenwonende stellen of hoeveel kinderen onder 13 jaar er meegaan, etc.  dit i.v.m. de corona regels, Alvast bedankt.
+Bijvoorbeeld: 1 huishouden, vrienden groep, samenwonende stellen of hoeveel kinderen onder 13 jaar er meegaan, etc.  dit i.v.m. de corona regels, Alvast bedankt.
 
 ### Beschikbaarheid: update: 
 drukke dag:
@@ -33,17 +33,18 @@ vooralsnog deze dagen :
 
 **Zaterdag 21 juli**
 
-in Woerden zijn in de middag de boten al uit varen
 
 in de ochtend nog sloepen beschikbaar
 
 in de middag is alles gereserveerd
 
-Zondag 22 juli is er 1 Antaris in Woerden nog vrij de hele dag/ dagdelen
+Zondag 22 augustus 
 
-In Harmelen is 1 Nicki sloep nog vrij 
-de hele dag/ dagdelen 
+In Harmelen zijn er 2 Nicki sloepen vrij de hele dag/ dagdelen 
 
+In Woerden zijn in de middag alle sloepen al uit varen
+
+in de ochtend kan nog!
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
 
