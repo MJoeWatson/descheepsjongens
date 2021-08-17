@@ -37,8 +37,7 @@ in Woerden zijn in de middag de boten al uit varen
 
 in de ochtend nog sloepen beschikbaar
 
-
-in Harmelen nog 1 stille sloep vrij voor de hele dag/ dagdelen
+in de middag is alles gereserveerd
 
 Zondag 22 juli is er 1 Antaris in Woerden nog vrij de hele dag/ dagdelen
 
