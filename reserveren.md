@@ -27,13 +27,14 @@ Willen jullie a.u.b de samenstelling van het gezelschap in het berichtvak vermel
 Bijvoorbeeld: 1 huishouden, vrienden groep, samenwonende stellen of hoeveel kinderen onder 13 jaar er meegaan, etc.  dit i.v.m. de corona regels, Alvast bedankt.
 
 ### Beschikbaarheid: update: 
-drukke dag:
 
-vooralsnog deze dagen :
+**De sloepen zijn op de meeste dagen nog beschikbaar**
+
+Alleen op onderstaande dagen beperkt:
 
 **Zaterdag 21 juli**
 
-in de ochtend lijkt ook alles te zijn gereserveerd, (dit onder voorbehoud)
+In de ochtend 1 Antaris vrij in Woerden
 
 in de middag is alles gereserveerd
 
@@ -44,10 +45,7 @@ In Harmelen zijn er 2 Nicki sloepen vrij de hele dag/ dagdelen
 In Woerden zijn in de middag alle sloepen al uit varen
 
 
-
-(aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
-
-**verder zijn de sloepen op de meeste dagen nog beschikbaar, (vooral door de weekse dagen)  
+(aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt) 
 
 
 Veranderingen worden hier vermeld.
