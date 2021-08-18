@@ -44,7 +44,9 @@ In Harmelen zijn er 2 Nicki sloepen vrij de hele dag/ dagdelen
 
 In Woerden zijn in de middag alle sloepen al uit varen
 
-in de ochtend kan nog!
+in de ochtend is in Harmelen nog een sloep vrij, 
+
+
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
 
