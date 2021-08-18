@@ -34,7 +34,7 @@ Alleen op onderstaande dagen beperkt:
 
 **Zaterdag 21 juli**
 
-In de ochtend 1 Antaris vrij in Woerden
+In de ochtend nog enkele sloepen vrij in Woerden
 
 in de middag is alles gereserveerd
 
