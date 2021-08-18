@@ -33,8 +33,7 @@ vooralsnog deze dagen :
 
 **Zaterdag 21 juli**
 
-
-in de ochtend nog sloepen beschikbaar
+in de ochtend lijkt ook alles te zijn gereserveerd, (dit onder voorbehoud)
 
 in de middag is alles gereserveerd
 
@@ -43,8 +42,6 @@ Zondag 22 augustus
 In Harmelen zijn er 2 Nicki sloepen vrij de hele dag/ dagdelen 
 
 In Woerden zijn in de middag alle sloepen al uit varen
-
-in de ochtend is in Harmelen nog een sloep vrij, 
 
 
 
