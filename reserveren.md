@@ -48,7 +48,7 @@ in de ochtend kan nog!
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt)
 
-**verder zijn de sloepen op de meeste dagen nog boten beschikbaar, (vooral door de weekse dagen! )  
+**verder zijn de sloepen op de meeste dagen nog beschikbaar, (vooral door de weekse dagen)  
 
 
 Veranderingen worden hier vermeld.
