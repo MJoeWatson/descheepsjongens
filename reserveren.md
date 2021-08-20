@@ -32,11 +32,13 @@ Bijvoorbeeld: 1 huishouden, vrienden groep, samenwonende stellen of hoeveel kind
 
 Alleen op onderstaande dagen beperkt:
 
-**Zaterdag 21 juli**
+**Zaterdag 21 augustus :)**
 
-In de ochtend nog enkele sloepen vrij in Woerden
+In de ochtend 1 Antaris vrij in Woerden
 
 in de middag is alles gereserveerd
+(ook in harmelen )
+
 
 Zondag 22 augustus 
 
