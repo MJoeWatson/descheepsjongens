@@ -34,9 +34,8 @@ Alleen op onderstaande dagen beperkt:
 
 **Zaterdag 21 augustus :)**
 
-In de ochtend 1 Antaris vrij in Woerden
 
-in de middag is alles gereserveerd
+De hele dag is alles al gereserveerd
 (ook in harmelen )
 
 
