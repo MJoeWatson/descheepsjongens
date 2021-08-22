@@ -34,10 +34,10 @@ Alleen op onderstaande dagen beperkt:
 
 **Woensdag 25 augustus**
 
-In Woerden zijn de stille sloepen al uit varen 
-1 Antaris nog beschikbaar de hele dag/ dagdelen 
+In Woerden zijn de sloepen in de middag al uit varen 
 
 in Harmelen nog 1 vrij hele dag/ dagdelen
+
 
 **Zaterdag 28 augustus**
 
