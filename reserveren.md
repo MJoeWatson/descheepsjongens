@@ -32,18 +32,13 @@ Bijvoorbeeld: 1 huishouden, vrienden groep, samenwonende stellen of hoeveel kind
 
 Alleen op onderstaande dagen beperkt:
 
-**Zaterdag 21 augustus :)**
+**Zaterdag 28 augustus**
 
+In Harmelen is er nog 1 Nicki sloep vrij de hele dag/ dagdelen 
 
-De hele dag is alles al gereserveerd
-(ook in harmelen )
+In woerden is in de middag alles al uit varen 
 
-
-Zondag 22 augustus 
-
-In Harmelen zijn er 2 Nicki sloepen vrij de hele dag/ dagdelen 
-
-In Woerden zijn in de middag alle sloepen al uit varen
+in de ochtend nog sloepen vrij
 
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt) 
