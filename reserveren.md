@@ -36,21 +36,21 @@ Alleen op onderstaande dagen beperkt:
 
 In Woerden zijn de sloepen in de middag al uit varen 
 
-in Harmelen nog 1 vrij hele dag/ dagdelen
+in Harmelen nog 1 elektrische sloep vrij hele dag/ dagdelen
 
 **Woensdag 25 augustus**
 
-nog 1 sloep vrij gekomen in Woerden hele dag/ dagdelen
+nog 1 sloep vrij gekomen in Woerden hele dag/ dagdelen! 
 
-Harmelen vrij
+Harmelen  2 Nicki sloepen vrij
 
 **Zaterdag 28 augustus**
 
 In Harmelen is er nog 1 Nicki sloep vrij de hele dag/ dagdelen 
 
-In woerden is in de middag alles al uit varen 
+In woerden in de ochtend nog sloepen vrij
 
-in de ochtend nog sloepen vrij
+in de middag alles al uit varen in Woerden
 
 
 (aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt) 
