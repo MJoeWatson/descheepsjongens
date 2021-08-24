@@ -51,9 +51,12 @@ Harmelen  2 Nicki sloepen vrij.
 **Zaterdag 28 augustus**
  
 
-In Woerden en in Harmelen in de ochtend nog sloepen vrij
+In Woerden is er 1 sloep vrij gekomen!
+voor de hele dag/ dagdelen
 
-in de middag alles al uit varen in Woerden en in Harmelen 
+in Harmelen in de ochtend nog sloepen vrij
+
+in de middag alles al uit varen in Harmelen 
 
 
 (aanmelden voor wachtlijst is altijd mogelijk, je krijgt een seintje als er een sloep vrij komt) 
