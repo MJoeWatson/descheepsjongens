@@ -45,7 +45,7 @@ In de ochtend nog een bootje vrij,
 
 In woerden in de middag alles gereserveerd,
 
-Harmelen  2 Nicki sloepen vrij.
+in Harmelen zijn de sloepen ook inmiddels gereserveerd.
 
 
 **Zaterdag 28 augustus**
