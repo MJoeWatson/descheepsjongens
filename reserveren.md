@@ -40,9 +40,11 @@ in Harmelen nog 1 elektrische sloep vrij hele dag/ dagdelen
 
 **Woensdag 25 augustus**
 
-nog 1 sloep vrij gekomen in Woerden hele dag/ dagdelen! 
+In Woerden zijn in de ochtend nog een paar sloepen vrij 
+in de middag zijn alle sloepen vanuit Woerden uit varen..
 
-Harmelen  2 Nicki sloepen vrij
+In Harmelen  2 Nicki sloepen vrij
+
 
 **Zaterdag 28 augustus**
  
