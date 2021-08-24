@@ -32,9 +32,9 @@ Bijvoorbeeld: 1 huishouden, vrienden groep, samenwonende stellen of hoeveel kind
 
 Alleen op onderstaande dagen beperkt:
 
-**Dinssdag 24 augustus**
+**Dinsdag 24 augustus**
 
-In Woerden zijn de sloepen in de middag al uit varen 
+**In Woerden is er een sloep vrij gekomen!**
 
 in Harmelen nog 1 elektrische sloep vrij hele dag/ dagdelen
 
