@@ -56,7 +56,7 @@ In Woerden en in Harmelen in de ochtend nog sloepen vrij
 in de middag alles al uit varen in Woerden en in Harmelen 
 
 
-(aanmelden voor wachtlijst mogelijk, je krijgt een seintje als er een sloep vrij komt) 
+(aanmelden voor wachtlijst is altijd mogelijk, je krijgt een seintje als er een sloep vrij komt) 
 
 
 Veranderingen worden hier vermeld.
