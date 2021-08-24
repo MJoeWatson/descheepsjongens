@@ -34,7 +34,7 @@ Alleen op onderstaande dagen beperkt:
 
 **Dinsdag 24 augustus**
 
-**In Woerden is er een sloep vrij gekomen!**
+**In Woerden is er een sloep vrij gekomen! **  De Antaris ( buitenboordmotor sloep 6 pers. )
 
 in Harmelen nog 1 elektrische sloep vrij hele dag/ dagdelen
 
