@@ -34,17 +34,15 @@ Alleen op onderstaande dagen beperkt:
 
 **Dinsdag 24 augustus**
 
-**In Woerden is er een sloep vrij gekomen! **  De Antaris ( buitenboordmotor sloep 6 pers. )
+**In Woerden gaan alle boten al varen vanmiddag  :)
 
 in Harmelen nog 1 elektrische sloep vrij hele dag/ dagdelen
 
 **Woensdag 25 augustus**
 
-In Woerden zijn in de ochtend nog een paar sloepen vrij 
-in de middag zijn alle sloepen vanuit Woerden uit varen..
+nog 1 sloep vrij gekomen in Woerden hele dag/ dagdelen! 
 
-In Harmelen  2 Nicki sloepen vrij
-
+Harmelen  2 Nicki sloepen vrij
 
 **Zaterdag 28 augustus**
  
