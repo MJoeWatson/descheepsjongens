@@ -33,13 +33,21 @@ Bijvoorbeeld: 1 huishouden, vrienden groep, samenwonende stellen of hoeveel kind
 Alleen op onderstaande dagen beperkt:
 
 **Zaterdag 28 augustus**
- 
 
 in Harmelen en Woerden zijn in de ochtend nog sloepen vrij
 
 in Woerden is er een sloep vrijgekomen voor de hele dag/ dagdelen!
 
 in de middag is alles al uit varen in Harmelen 
+
+ 
+**Donderdag 2 september** 
+
+Woerden: vooralsnog alle sloepen uit varen in de ochtend
+
+middag mogelijk 
+
+of hele dag in Harmelen
 
 
 (aanmelden voor wachtlijst is altijd mogelijk, je krijgt een seintje als er een sloep vrij komt) 
