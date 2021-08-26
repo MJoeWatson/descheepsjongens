@@ -32,31 +32,12 @@ Bijvoorbeeld: 1 huishouden, vrienden groep, samenwonende stellen of hoeveel kind
 
 Alleen op onderstaande dagen beperkt:
 
-**Dinsdag 24 augustus**
-
-**In Woerden gaan alle boten al varen vanmiddag  :)
-
-in Harmelen nog 1 elektrische sloep vrij hele dag/ dagdelen
-
-**Woensdag 25 augustus**
-
-
-In de ochtend nog een bootje vrij, 
-
-In woerden in de middag alles gereserveerd,
-
-in Harmelen zijn de sloepen ook inmiddels gereserveerd.
-
-
 **Zaterdag 28 augustus**
  
 
-In Woerden is er 1 sloep vrij gekomen!
-voor de hele dag/ dagdelen
+in Woerden en in Harmelen zijn in de ochtend nog sloepen vrij
 
-in Harmelen in de ochtend nog sloepen vrij
-
-in de middag alles al uit varen in Harmelen 
+in de middag is alles al uit varen in Harmelen en in Woerden 
 
 
 (aanmelden voor wachtlijst is altijd mogelijk, je krijgt een seintje als er een sloep vrij komt) 
