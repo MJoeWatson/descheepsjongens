@@ -35,9 +35,11 @@ Alleen op onderstaande dagen beperkt:
 **Zaterdag 28 augustus**
  
 
-in Woerden en in Harmelen zijn in de ochtend nog sloepen vrij
+in Harmelen en Woerden zijn in de ochtend nog sloepen vrij
 
-in de middag is alles al uit varen in Harmelen en in Woerden 
+in Woerden is er een sloep vrijgekomen voor de hele dag/ dagdelen!
+
+in de middag is alles al uit varen in Harmelen 
 
 
 (aanmelden voor wachtlijst is altijd mogelijk, je krijgt een seintje als er een sloep vrij komt) 
