@@ -22,7 +22,7 @@ Alle sloepen hebben de zelfde prijs, elektrische sloepen en benzine motorsloepen
 
 ### Avond €85,-
 
-#### 18.30 - 21.00 uur (2,5 uur)
+#### 18.30 - 21.00 uur (2,5 uur) (alleen mogelijk op sommige dagen)
 
 
 ### De Borg is €160,-  dat is inclusief €10,- schoonmaakborg.
