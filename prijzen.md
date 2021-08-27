@@ -1,10 +1,10 @@
 ---
-title: Prijzen
+title: Prijzen & annuleren
 permalink: "/prijzen"
 layout: prijzen
 ---
 
-Alle sloepen hebben de zelfde prijs, elektrische sloepen en benzine motorsloepen,
+Alle sloepen hebben de zelfde prijs, elektrische sloepen en benzine motorsloepen, inclusief brandstof
 
 ### ochtend €85,-
 
@@ -31,10 +31,11 @@ De sloep hebben we namelijk graag weer in de zelfde staat terug als dat deze was
 
 Bij terugkomst kun je zelf de sloep weer schoon maken; (de hele binnenkant, boven /onder de kussens etc.)  of
 
-Wij willen het ook  voor je doen, daar is de €10,- schoonmaakborg dan voor.
-Is de boot erg vies, dan zijn er meer kosten aan verbonden.
-
+Wij willen het ook voor je doen, €10,- schoonmaakborg voor redelijke boot,
+Is de boot erg vies, minimaal €20,-
 ~ Kleine schade zoals een kras en andere onkosten worden van de borg afgehouden.
+
+Kleine kras €20,- aub zelf melden, wees eerlijk.
 
 ~ Grotere schade loopt via de verzekering.
 De huurder is verantwoordelijk voor de eerste €350,- eigen risico.
@@ -53,10 +54,13 @@ In sommige gevallen wordt alleen de  €20,- de reserverings /service onkosten g
 
 ~ Een extra uur bij huren is soms mogelijk, dit in overleg, €30,-per uur. Vooraf te reserveren/. overleggen.
 
+Als je te laat komt rekenen we €10,- per kwartier, dus houd je tijd goed in de gaten.
+
+
 ~Cadeaubonnen zijn te bestellen via reservering formulier of een email.
 We hebben cadeaubonnen voor:
 - Hele dag €170,-
 - Halve dag €100,-
 - of een bedrag naar wens.
-Bij Cadeaubonnen vanaf €100,- krijg je een leuke kapiteinspet cadeau.
+Bij Cadeaubonnen vanaf €100,- krijg je een leuke kapiteinspet cadeau.zolang de voorraad strekt.
 
