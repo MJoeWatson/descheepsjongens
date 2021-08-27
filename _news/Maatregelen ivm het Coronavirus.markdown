@@ -57,7 +57,7 @@ met de 1,5 meter in acht genomen:
 
 - Een huishouden/gezin van max 9 á 10 personen.
 
-- max. 4 "afzonderlijke" personen  jonge kinderen geen beperkingen, (behalve dan de bootmaat)
+- max. 4 "afzonderlijke" personen (& evt. 6 kinderen onder 13 jaar)
 
 - 2 koppels, ieder aan een kant van de boot (& evt. 6 kinderen onder 13 jaar)
 
