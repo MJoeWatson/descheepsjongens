@@ -36,7 +36,7 @@ Alleen op onderstaande dagen beperkt:
 
 in Harmelen en Woerden zijn in de ochtend nog sloepen vrij
 
-in Woerden is er een sloep vrijgekomen voor de hele dag/ dagdelen!
+**In Woerden is er een sloep vrijgekomen voor de hele dag/ dagdelen!**
 
 in de middag is alles al uit varen in Harmelen 
 
