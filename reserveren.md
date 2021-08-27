@@ -52,7 +52,7 @@ of hele dag in Harmelen
 
 **Zaterdag 11 september**
 
-Vooralsnog alleen varen tot 14.30 mogelijk  ivm een optie in de middag
+Vooralsnog alleen varen van 10.00 tot 13.00 uur of van 10.00-14.30 mogelijk  ivm een optie in de middag.
 
 
 (aanmelden voor wachtlijst is altijd mogelijk, je krijgt een seintje als er een sloep vrij komt) 
