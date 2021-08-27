@@ -9,7 +9,7 @@ date: 2020-03-18 12:25:00 +01:00
 
 CORONA 2021
 
-Regels die nu gelden zie site van de rijks overheid.
+Regels die nu gelden zie site van de rijks overheid.[klik hier voor deze regels](https://www.rijksoverheid.nl/onderwerpen/coronavirus-covid-19/algemene-coronaregels)
 
 **Vanaf nu zijn er wat versoepelingen,  Maar we blijven voorzichtig;
 We vertrouwen erop dat u zelf de verantwoording neemt en "corona-veilig" vaart;**
