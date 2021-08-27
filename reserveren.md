@@ -49,6 +49,7 @@ middag mogelijk
 
 of hele dag in Harmelen
 
+
 **Zaterdag 11 september**
 
 Vooralsnog alleen varen tot 14.30 mogelijk  ivm een optie in de middag
