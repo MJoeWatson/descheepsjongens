@@ -60,6 +60,3 @@ Wanneer de aanvraag voor de reservering is gemaakt sturen we je **altijd** een b
 Bij een gemaakte reservering sturen we de **bevestiging met de informatie die je nodig hebt**,
 We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
 
-Als het regent of hard waait kan de vaartocht **in overleg met ons** op de dag zelf, kosteloos verplaatst of geannuleerd worden; Tot een uur voor de vertrek tijd. Het weer valt namelijk meestal mee.
-
-*Bij annuleren in andere gevallen zijn wel kosten verbonden.
