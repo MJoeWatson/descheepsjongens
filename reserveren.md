@@ -60,3 +60,5 @@ Wanneer de aanvraag voor de reservering is gemaakt sturen we je **altijd** een b
 Bij een gemaakte reservering sturen we de **bevestiging met de informatie die je nodig hebt**,
 We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
 
+Avonden worden al korter , reserveren alleen in overleg mogelijk tot uiterlijk 20.30 uur
+
