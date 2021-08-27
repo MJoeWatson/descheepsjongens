@@ -54,7 +54,8 @@ In sommige gevallen wordt alleen de  €20,- de reserverings /service onkosten g
 
 ~ Een extra uur bij huren is soms mogelijk, dit in overleg, €30,-per uur. Vooraf te reserveren/. overleggen.
 
-Als je te laat komt rekenen we €10,- per kwartier, dus houd je tijd goed in de gaten.
+Als je te laat komt rekenen we €10,- per kwartier, dus houd je route en tijd goed in de gaten.
+
 
 
 ~Cadeaubonnen zijn te bestellen via reservering formulier of een email.
@@ -62,5 +63,8 @@ We hebben cadeaubonnen voor:
 - Hele dag €170,-
 - Halve dag €100,-
 - of een bedrag naar wens.
-Bij Cadeaubonnen vanaf €100,- krijg je een leuke kapiteinspet cadeau.zolang de voorraad strekt.
+Bij Cadeaubonnen vanaf €100,- krijg je een leuke kapiteinspet cadeau, zolang de voorraad strekt.
 
+Betaal gegevens 
+Rekeningnummer:  NL85 INGB 0001797258
+tnv. De Scheepsjongens
