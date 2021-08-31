@@ -47,7 +47,7 @@ of hele dag in Harmelen
 
 in Harmelen en Woerden zijn in de ochtend nog sloepen vrij
 
-**In Woerden is er nog maar 1 buitenboordmotor sloep vrij voor de hele dag/middag**
+**In Woerden is  in de middag alles uit varen 
 
 
 In Harmelen kun je nog wel terecht voor de hele dag  of dagdelen
