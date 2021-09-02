@@ -31,23 +31,22 @@ Bijvoorbeeld: 1 huishouden, vrienden groep, samenwonende stellen of hoeveel kind
 **De sloepen zijn op de meeste dagen nog beschikbaar**
 
 Alleen op onderstaande dagen beperkt:
-
-
-
  
-**Donderdag 2 september** 
-
-alle sloepen uit varen in de ochtend
-
-middag varen mogelijk 
-
-of hele dag in Harmelen
 
 **Zaterdag 4 september**
 
 in Harmelen en Woerden zijn in de ochtend nog sloepen vrij
 
 **In Woerden en harmelen is in de middag alles uit varen.
+
+
+
+**Zondag 5 september**
+
+In Woerden is alleen nog 1 Antaris (buitenboordmotor sloep) vrij de hele dag 
+
+In Harmelen  deze dag alleen een tussentijd mogelijk, een vervroegde middag . 
+ Varen van 12.00-16.30 uur 
 
 
 **Zaterdag 11 september**
