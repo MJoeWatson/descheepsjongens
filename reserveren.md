@@ -47,9 +47,7 @@ of hele dag in Harmelen
 
 in Harmelen en Woerden zijn in de ochtend nog sloepen vrij
 
-**In Woerden is  in de middag alles uit varen 
-
-In Harmelen kun je nog wel terecht voor de hele dag  of dagdelen.
+**In Woerden en harmelen is in de middag alles uit varen.
 
 
 **Zaterdag 11 september**
