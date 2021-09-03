@@ -43,10 +43,9 @@ In Woerden en harmelen is in de middag alles uit varen.
 
 **Zondag 5 september**
 
-In Woerden zijn in de middag geen sloepen vrij 
+In de ochtend lekker varen kan! 
 
-In Harmelen is deze dag (alleen) een tussentijd mogelijk, een vervroegde middag . 
-Varen van 12.00-16.30 uur 
+In Woerden en in Harmelen zijn in de middag geen sloepen vrij 
 
 
 (aanmelden voor wachtlijst is altijd mogelijk, je krijgt een seintje als er een sloep vrij komt) 
