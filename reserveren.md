@@ -37,21 +37,17 @@ Alleen op onderstaande dagen beperkt:
 
 in Harmelen en Woerden zijn in de ochtend nog sloepen vrij
 
-**In Woerden en harmelen is in de middag alles uit varen.
+In Woerden en harmelen is in de middag alles uit varen.
 
 
 
 **Zondag 5 september**
 
-In Woerden is alleen nog 1 Antaris (buitenboordmotor sloep) vrij de hele dag 
+In Woerden zijn in de middag geen sloepen vrij 
 
-In Harmelen  deze dag alleen een tussentijd mogelijk, een vervroegde middag . 
- Varen van 12.00-16.30 uur 
+In Harmelen is deze dag (alleen) een tussentijd mogelijk, een vervroegde middag . 
+Varen van 12.00-16.30 uur 
 
-
-**Zaterdag 11 september**
-
-Vooralsnog varen van 10.00 tot 13.00 uur of van 10.00-14.30 mogelijk  ivm een optie in de middag.
 
 (aanmelden voor wachtlijst is altijd mogelijk, je krijgt een seintje als er een sloep vrij komt) 
 
