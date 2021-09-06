@@ -33,20 +33,6 @@ Bijvoorbeeld: 1 huishouden, vrienden groep, samenwonende stellen of hoeveel kind
 Alleen op onderstaande dagen beperkt:
  
 
-**Zaterdag 4 september**
-
-in Harmelen en Woerden zijn in de ochtend nog sloepen vrij
-
-In Woerden en harmelen is in de middag alles uit varen.
-
-
-
-**Zondag 5 september**
-
-In de ochtend lekker varen kan! 
-
-In Woerden en in Harmelen zijn in de middag geen sloepen vrij 
-
 
 (aanmelden voor wachtlijst is altijd mogelijk, je krijgt een seintje als er een sloep vrij komt) 
 
@@ -58,5 +44,5 @@ Wanneer de aanvraag voor de reservering is gemaakt sturen we je **altijd** een b
 Bij een gemaakte reservering sturen we de **bevestiging met de informatie die je nodig hebt**,
 We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
 
-Avonden worden al korter , reserveren alleen in overleg mogelijk tot uiterlijk 20.30 uur
+Avonden worden al korter, reserveren alleen in overleg mogelijk tot uiterlijk 20.30 uur
 
