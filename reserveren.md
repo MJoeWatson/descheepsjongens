@@ -16,7 +16,7 @@ Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **
 We hebben alles wat je weten moet voordat je gaat varen namelijk op een rij gezet voor jullie,
 **waar iedereen van op de hoogte moet zijn.**
 
-*Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van hoe het werkt, wat **echt** belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden!
+*Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van hoe het werkt, wat **echt** belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden.
 
 [Klik **hier** voor alle voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
@@ -44,5 +44,5 @@ Wanneer de aanvraag voor de reservering is gemaakt sturen we je **altijd** een b
 Bij een gemaakte reservering sturen we de **bevestiging met de informatie die je nodig hebt**,
 We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
 
-Avonden worden al korter, reserveren alleen in overleg mogelijk tot uiterlijk 20.30 uur
+**Avonden zijn niet meer mogelijk!**
 
