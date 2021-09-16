@@ -15,7 +15,6 @@ Regels die nu gelden zie site van de rijks overheid.[klik hier voor deze regels]
 We vertrouwen erop dat u zelf de verantwoording neemt en "corona-veilig" vaart;**
 
 
-De regels mbt het Coronavirus:
 
 1. ~Volg de richtlijnen van het RIVM
 2. ~ Voelt u zich niet lekker of bent u verkouden of heeft u koorts, ga er niet op uit, blijf thuis!
@@ -40,7 +39,7 @@ Wat kan per sloep:
 
 Op zich groot genoeg voor 6 personen, maar...
 
-- Als de 1,5 meter in acht wordt genomen: 
+(- Als je de 1,5 meter in acht moet nemen: 
 
 - Een Huishouden/gezin van max 6 (á 7 kleinere personen)
 
@@ -51,7 +50,7 @@ ieder aan een kant van de boot & evt. enkele kinderen jonger dan 13 jaar
 
 **De Oudenrijn en de Nicki sloep:**
 
-Op zich groot genoeg voor max 9 a 10 personen als er geen afstand hoeft worden gehouden....
+Op zich groot genoeg voor max 9 a 10 personen als er geen afstand gehouden hoeft te worden 
 
 met de 1,5 meter in acht genomen:
 
