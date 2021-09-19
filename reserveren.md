@@ -32,11 +32,11 @@ Bijvoorbeeld: 1 huishouden, vrienden groep, samenwonende stellen of hoeveel kind
 
 Alleen op onderstaande dagen beperkt:
  
-19 september alle sloepen in de middag verhuurd in Woerden
+**Zondag 19 september** 
 
-in de ochtend  van 10.00-13.00 nog vrij in Woerden
+Geen sloepen in de middag meer beschikbaar in Woerden en Harmelen
 
-in Harmelen alleen een hele dag mogelijk van 10.00-18.00 uur 
+in de ochtend  van 10.00-13.00 nog vrij in Woerden 
 
 (aanmelden voor wachtlijst is altijd mogelijk, je krijgt een seintje als er een sloep vrij komt) 
 
