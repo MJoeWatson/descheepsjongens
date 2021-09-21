@@ -24,29 +24,12 @@ We hebben alles wat je weten moet voordat je gaat varen namelijk op een rij geze
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder. 
 
 Willen jullie a.u.b de samenstelling van het gezelschap in het berichtvak vermelden? 
-Bijvoorbeeld: 1 huishouden, vrienden groep, samenwonende stellen of hoeveel kinderen onder 13 jaar er meegaan, etc.  dit i.v.m. de corona regels, Alvast bedankt.
-
-### Beschikbaarheid: update: 
-
-**De sloepen zijn op de meeste dagen nog beschikbaar**
-
-Alleen op onderstaande dagen beperkt:
- 
-**Zondag 19 september** 
-
-Geen sloepen in de middag meer beschikbaar in Woerden en Harmelen
-
-in de ochtend  van 10.00-13.00 nog vrij in Woerden 
-
-(aanmelden voor wachtlijst is altijd mogelijk, je krijgt een seintje als er een sloep vrij komt) 
-
-
-Veranderingen worden hier vermeld.
+Bijvoorbeeld: 1 huishouden, vrienden groep, samenwonende stellen of hoeveel kinderen onder 13 jaar er meegaan, etc.  dit i.v.m. de corona regels.
 
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je **altijd** een bericht **of** er plaats is.
 Bij een gemaakte reservering sturen we de **bevestiging met de informatie die je nodig hebt**,
 We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
 
-**Avonden zijn niet meer mogelijk!**
+**Avonden zijn te vroeg donker dus helaas niet meer mogelijk**
 
