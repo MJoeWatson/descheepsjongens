@@ -29,7 +29,7 @@ Bij een gemaakte reservering sturen we de **bevestiging met de informatie die je
 We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
 
 **Er zijn nu speciale nazomer tijden te reserveren! 
-varen van 11.00-17.00 uur €120,-**
+varen van 11.00-17.00 uur €130,-**
 
 nog niet aan te vinken in het formulier maar vermeld het in het berichtvak
 
