@@ -12,9 +12,6 @@ layout: reserveren
 
 
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **goed** door; [](https://descheepsjongens.nl/voorwaarden)
-   
-We hebben alles wat je weten moet voordat je gaat varen namelijk op een rij gezet voor jullie,
-**waar iedereen van op de hoogte moet zijn.**
 
 *Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van hoe het werkt, wat **echt** belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden.
 
@@ -30,6 +27,11 @@ Bijvoorbeeld: 1 huishouden, vrienden groep, samenwonende stellen of hoeveel kind
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je **altijd** een bericht **of** er plaats is.
 Bij een gemaakte reservering sturen we de **bevestiging met de informatie die je nodig hebt**,
 We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
+
+**Er zijn nu speciale nazomer tijden te reserveren! 
+varen van 11.00-17.00 uur €120,-**
+
+nog niet aan te vinken in het formulier maar vermeld het in het berichtvak
 
 **Avonden zijn te vroeg donker dus helaas niet meer mogelijk**
 
