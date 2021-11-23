@@ -11,7 +11,7 @@ Alle sloepen hebben de zelfde prijs, elektrische sloepen en benzine motorsloepen
 #### 10.00 - 13.00 uur (3 uur)
 
 
-### Middag €100,-
+### Middag €110,-
 
 #### 13.30 - 18.00 uur (4,5 uur)
 
