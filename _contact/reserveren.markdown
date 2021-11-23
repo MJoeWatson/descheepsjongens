@@ -7,9 +7,9 @@ date: 2020-03-18 12:25:00 +01:00
 
 1. We krijgen de aanvraag meteen binnen en kunnen kijken of er een sloep beschikbaar is voor jullie; We laten het zsm weten;
 
-2. Heeft u vragen, dan zijn wij de hele week telefonisch voor u bereikbaar. op de voice mail zetten we de actuele informatie.
+2. Heeft u vragen, dan zijn wij de hele week telefonisch voor u bereikbaar. op de voicemail zetten we de actuele informatie.
 
-Er kan geen bericht worden achtergelaten op onze voice mail.
+Er kan geen bericht worden achtergelaten op onze voicemail.
 
 ### Telefoon
 
