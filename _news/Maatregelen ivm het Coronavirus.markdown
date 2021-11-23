@@ -3,13 +3,19 @@ title: nieuws
 date: 2020-03-18 12:25:00 +01:00
 ---
 
+De sloepen liggen in de winterstalling en worden weer mooi opgeknapt;
 
+In Maart gaan de sloepen weer te water,
+Woerden viert aankomend jaar het 650 jarig bestaan dus dat beloofd een leuk jaar te worden.
+en erg leuk is...  Het is vanaf maart mogelijk om de stad helemaal rond te varen!
+
+Graag tot ziens in 2022!
 
 
 
 CORONA 2021
 
-Regels die nu gelden zie site van de rijks overheid.[klik hier voor deze regels](https://www.rijksoverheid.nl/onderwerpen/coronavirus-covid-19/algemene-coronaregels)
+Regels die nu gelden zie site van de rijksoverheid.[klik hier voor deze regels](https://www.rijksoverheid.nl/onderwerpen/coronavirus-covid-19/algemene-coronaregels)
 
 **Vanaf nu zijn er wat versoepelingen,  Maar we blijven voorzichtig;
 We vertrouwen erop dat u zelf de verantwoording neemt en "corona-veilig" vaart;**
