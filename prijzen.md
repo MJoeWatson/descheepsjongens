@@ -60,9 +60,10 @@ Als je te laat komt rekenen we €10,- per kwartier, dus houd je route en tijd g
 ~Cadeaubonnen zijn te bestellen via reservering formulier of een email.
 We hebben cadeaubonnen voor:
 - Hele dag €170,-
-- Halve dag €100,-
+- Ochtend/avond €85,-
+- Middag €110,-
 - of een bedrag naar wens.
-Bij Cadeaubonnen vanaf €100,- krijg je een leuke kapiteinspet cadeau, zolang de voorraad strekt.
+Bij Cadeaubonnen vanaf €110,- krijg je een leuke kapiteinspet cadeau, zolang de voorraad strekt.
 
 Betaal gegevens 
 Rekeningnummer:  NL85 INGB 0001797258
