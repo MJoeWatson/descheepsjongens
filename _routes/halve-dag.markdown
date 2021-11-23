@@ -13,8 +13,6 @@ Naar verwachting is dit in 2022 mogelijk,
 
 Dit jaar dus nog even 3/4 rond.
 
-De brug bij het kasteel is te laag; Je vaart dan dus weer terug.
-en de Oostadam is -nog- niet open.
 
 Let op:  In een Halve dag vanuit Woerden vaar je **tot** de sluizen en niet er doorheen! 
 
@@ -30,12 +28,13 @@ Tot de blauwe Hofbrug, daar is keren het makkelijkst.
 Alle bruggen zijn hoog genoeg voor de sloep om eronderdoor te kunnen. Bereid jullie wel voor om te bukken! 
 
 De Hofbrug,(blauwe brug vlak voor Harmelen) kan eventueel wel open op bepaalde schuttijden, maar...Bediening om de 2 uur (10.00-12.00-15.00-17.00 uur) 
-Denk erom: 20 minuten voor de tijd aanvragen bij de brugwachter via tel. 06 51383461
+en Denk erom: 20 minuten voor de tijd aanvragen bij de brugwachter via tel. 06 51383461
 
 Als de brug dicht is keer je om. dat is het beste;
-of (wel wat moeilijker) je kunt eventueel... **heel voorzichtig** door de meest **linkse** smalle opening als je vanuit Woerden komt. (middendoor niet mogelijk!)
+of (wel wat moeilijker) je kunt eventueel **heel voorzichtig** door de meest **linkse** smalle opening als je vanuit Woerden komt. (middendoor niet mogelijk!)
  
-Links is de hoogste doorgang.(**wel bukken**) en **heel** rustig varen, gebruik de haakstok in geval van bijna tegen de kanten; Vanuit Harmelen, neem dezelfde, dan rechter doorgang en wees voorzichtig. 
+Links is de hoogste doorgang.(**wel bukken**) en **heel** rustig varen, gebruik de haakstok in geval van bijna tegen de kanten; 
+Vanuit Harmelen richting Woerden, neem dezelfde, dan rechter doorgang en wees voorzichtig. 
 
 De Haanwijkersluis is 200 meter verderop, Deze wordt alleen rond deze bepaalde tijden bediend (ook om de 2 uur)  Bellen tijdens kantooruren, 20 min van te voren op tel. 06 51383461 (bgg 06 52370200). bediend, op afroep.
 
@@ -43,16 +42,16 @@ De Haanwijkersluis is 200 meter verderop, Deze wordt alleen rond deze bepaalde t
 
 **Beschrijving:**
 
-Het is een mooie, rustige en groene route richting het dorpje Harmelen. Je vaart over de Oude Rijn en dat was vroeger de Romijnse Limes, de Noordgrens van het Romeinse rijk; In die tijd was dit water een stuk breder.
+Het is een mooie, rustige en groene route richting het dorpje Harmelen. Je vaart over de Oude Rijn en dat was vroeger de Romeinse Limes, de Noordgrens van het Romeinse rijk; In die tijd was dit water een stuk breder.
 
 Naast de Oude Rijn loopt het eeuwenoude Jaagpad van Woerden tot Harmelen.
 
-Je kan de sloep bij de blauwe brug of de sluis draaien of je kan de boot aanleggen en een stukje gaan wandelen; stoot willen tussen wal en boot, goed vast leggen en neem de sleutel mee.)
+Je kan de sloep bij de blauwe brug of de sluis draaien of je kan de boot aanleggen en een stukje gaan wandelen; stootwillen tussen wal en boot, goed vast leggen en neem de sleutel mee.)
 
 Vanaf de sluis en loop je over het jaagpad in ong. 7 minuten naar het centrum, of je loopt over de Hollandse kade naar natuurgebied De Kievit.(10 minuten lopen)
 [](https://www.dekievitharmelen.nl/)
 
-Door de bomen langs het water, is er op warme dagen ook wat schaduw.
+Doordat er bomen staan langs het water, is er op warme dagen ook wat schaduw.
 
 
 ### Linschoten, Oudewater 
@@ -75,6 +74,7 @@ In al deze mooie oude dorpjes/stadjes is er de mogelijkheid om aan te leggen voo
 
 In Linschoten is het vrij smal dus vaar rustig en voorzichtig;
 
+
 ### Nieuwerbrug, Bodegraven
 #### Tijd: Heen en weer, +/- 4 uur
 
@@ -94,6 +94,8 @@ Je vaart over de Romeinse Limes; Dit was de echte noordgrens van het Romeinse Ri
 ### Montfoort
 
 #### Tijd: Heen en weer, 3 uur varen
+Tot de sluis en terug.
+
 [Klik hier voor de routekaart naar Montfoort](/uploads/route%20Montfoort%20De%20Scheepsjongens.pdf)
 
 
@@ -103,7 +105,8 @@ De sluis in Montfoort wordt op afroep door vrijwilligers, bediend; De sluis door
 
 **Beschrijving:**
 
-Geniet van een mooie, rustige en groene route via Linschoten, door de weilanden naar het dorpje Montfoort, je kan een stukje voor de sluis aanleggen of als je meer tijd hebt net na de sluis rechtsaf, aan de overkant is ook een steiger.( Houd de tijd in de gaten, Door de sluis terug kost tijd.)
+Geniet van een mooie, rustige en groene route via Linschoten, door de weilanden naar het dorpje Montfoort, je kan een stukje voor de sluis aanleggen of als je meer tijd hebt net achter de sluis rechtsaf, aan de overkant is ook een steiger.( Houd de tijd in de gaten, Door de sluis terug kost tijd ...en 2 x sluisgeld.)
+
 
 ### Woerdenseverlaat over de Grecht
 #### Tijd: Heen en weer, 4,5 uur
@@ -129,7 +132,9 @@ In het begin na ongeveer 200 meter kom je de Hofbrug tegen,
 (blauwe brug) Deze kan open op verzoek op bepaalde schuttijden, Bediening om de 2 uur (10.00-12.00-15.00-17.00 uur) 
 Denk erom: 20 minuten voor de tijd aanvragen bij de brugwachter via tel. 06 51383461
 
-Als de brug dicht is kán je er aan de noordelijke onder door (middendoor niet mogelijk!) **heel rustig** door de meest **rechtse** kant als je vanuit Harmelen komt. 
+Als de brug dicht is kan je er voorzichtig onder door maar middendoor is niet mogelijk!
+ 
+Vaar **heel rustig** door de meest **rechtse** kant als je vanuit Harmelen komt. 
  
 Rechts is de hoogste doorgang.(**wel bukken**) gebruik de afzetstok in geval van bijna tegen de kanten; Vanuit Woerden op de terugweg, neem dezelfde, dan linker doorgang en wees voorzichtig. 
 
