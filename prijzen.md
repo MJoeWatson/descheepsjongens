@@ -39,6 +39,7 @@ Harmelen:
 ### 11.00-19.00 (8 uur) 
 
 
+Nieuw is dat de borg vooraf overgemaakt moet worden,  al bij de reservering, de huur kan aan de kade, of evt. ook via de bank, vóór vertrek. 
 
 ### De Borg is €160,-  dat is inclusief €10,- schoonmaakborg.
 
