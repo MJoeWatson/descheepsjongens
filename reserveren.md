@@ -18,18 +18,13 @@ Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **
 [Klik **hier** voor alle voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
 
-Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder. 
-
-Willen jullie a.u.b de samenstelling van het gezelschap in het berichtvak vermelden? 
-Bijvoorbeeld: 1 huishouden, vrienden groep, samenwonende stellen of hoeveel kinderen onder 13 jaar er meegaan, etc.  dit i.v.m. de corona regels.
+Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je **altijd** een bericht **of** er plaats is.
 Bij een gemaakte reservering sturen we de **bevestiging met de informatie die je nodig hebt**,
 We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
 
-**Er zijn nu speciale nazomer tijden te reserveren! 
-varen dit weekend van 11.00-17.00 uur €100,-**
 
 nog niet aan te vinken in het formulier maar vermeld het in het berichtvak
 
