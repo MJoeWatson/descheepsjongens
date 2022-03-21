@@ -8,4 +8,4 @@ Begin april kunnen ze het water weer in en kan er weer gereserveerd worden!
 De precieze datum is nog niet bekend
 maar we zetten het zsm op de site als het zover is.
 
-Dit jaar is het mogelijk om de stad helemaal rond te varen en er is van alles te zien en te beleven in Woerden want Woerden 650 jaar! 
+Dit jaar is het mogelijk om de stad helemaal rond te varen en er is van alles te zien en te beleven in Woerden want Woerden is 650 jaar! 
