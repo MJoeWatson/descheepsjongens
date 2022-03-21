@@ -11,7 +11,7 @@ layout: reserveren
 ---
 
 
-Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **goed** door; [](https://descheepsjongens.nl/voorwaarden)
+Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **goed** door;
 
 *Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van hoe het werkt, wat **echt** belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden.
 
@@ -22,11 +22,14 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je **altijd** een bericht **of** er plaats is.
+
+Nieuw is dat de borg vooraf overgemaakt moet worden,  al bij de reservering(
+De huur kan aan de kade, 
+of evt. ook via de bank, vóór vertrek. 
+
 Bij een gemaakte reservering sturen we de **bevestiging met de informatie die je nodig hebt**,
 We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
 
 
-nog niet aan te vinken in het formulier maar vermeld het in het berichtvak
-
-**Avonden zijn te vroeg donker dus helaas niet meer mogelijk**
+**Avonden zijn te vroeg donker dus helaas nog niet mogelijk**
 
