@@ -23,6 +23,7 @@ Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formul
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je **altijd** een bericht **of** er plaats is.
 
+
 Nieuw is dat de borg vooraf overgemaakt moet worden,  al bij de reservering(
 De huur kan aan de kade, 
 of evt. ook via de bank, vóór vertrek. 
