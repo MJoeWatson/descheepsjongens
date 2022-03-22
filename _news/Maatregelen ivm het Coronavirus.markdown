@@ -13,3 +13,10 @@ maar we zetten het zsm op de site als het zover is.
 * De borg vragen we vanaf nu via de bank vooraf, na bevestiging dat de boot voor je beschikbaar is;
 Huur kan wel á contant aan de kade.
 of ook via de bank)
+
+* De middaghuur prijs is nu €110,- (van 13.30-18.00 uur)  De prijzen van de ochtend, middag en avond zijn nog het zelfde als anders.
+
+* In Harmelen hebben we andere tijden!
+
+11.00-17.00 uur (6 vaaruren) €145,-
+11.00-19.00 uur (8 vaaruren) €170,-
