@@ -8,7 +8,7 @@ Alle sloepen hebben de zelfde prijs, elektrische sloepen en benzine motorsloepen
 
 in Harmelen zijn dit jaar andere vaartijden; 
 
-Woerdrn:
+Woerden:
 
 ### ochtend €85,-
 
