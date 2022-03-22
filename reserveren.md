@@ -13,24 +13,32 @@ layout: reserveren
 
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **goed** door;
 
-*Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van hoe het werkt, wat **echt** belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden.
+*Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van wat **echt** belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden.
 
-[Klik **hier** voor alle voorwaarden. (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
+[Klik **hier** voor alle voorwaarden en instruktie (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
 
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
+Dit jaar is veranderd: 
+* De middag prijs is nu €110,- 
+Verder zijn alle prijzen het zelfde gebleven. 
+
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je **altijd** een bericht **of** er plaats is.
-
-
-Nieuw is dat de borg vooraf overgemaakt moet worden,  al bij de reservering(
-De huur kan aan de kade, 
-of evt. ook via de bank, vóór vertrek. 
-
 Bij een gemaakte reservering sturen we de **bevestiging met de informatie die je nodig hebt**,
-We verwachten **een Berichtje terug** of alles duidelijk is om misverstanden te voorkomen.
+
+* Nieuw is dat de borg na onze bevestiging dat de sloep gereserveerd is voor je, overgemaakt moet worden via de bank op nr NL 85 INGB0001797258
+onder vermelding van: 
+Borg, reserveringsnaam en de datum van de vaardag.
+Zodra de borg binnen is, is de reservering compleet,
+
+Het huurbedrag kan á contant aan de kade.
+
+of huur en borg beide via de bank, maar wel zo, dat het ruim van te voren binnen is. ovv Borg en huur, reserveringsnaam, datum van de vaardag.
 
 
-**Avonden zijn te vroeg donker dus helaas nog niet mogelijk**
+
+
+**Avonden zijn te vroeg donker dus helaas niet meer mogelijk**
 
