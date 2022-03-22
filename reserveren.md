@@ -13,7 +13,8 @@ layout: reserveren
 
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **goed** door;
 
-*Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van wat **echt** belangrijk is en wat de de regels zijn en gaat u **akkoord** met onze voorwaarden.
+*Als de reservering is gemaakt, gaan we er dus vanuit dat u op de hoogte bent van wat **echt** belangrijk is en wat de de regels zijn 
+en gaat u **akkoord** met onze voorwaarden.
 
 [Klik **hier** voor alle voorwaarden en instruktie (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
@@ -21,17 +22,19 @@ Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
 Dit jaar is veranderd: 
-* De middag prijs is nu €110,- 
+- De middag prijs is nu €110,- 
 Verder zijn alle prijzen het zelfde gebleven. 
 
 
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je **altijd** een bericht **of** er plaats is.
 Bij een gemaakte reservering sturen we de **bevestiging met de informatie die je nodig hebt**,
 
-* Nieuw is dat de borg na onze bevestiging dat de sloep gereserveerd is voor je, overgemaakt moet worden via de bank op nr NL 85 INGB0001797258
+- Nieuw is dat de borg, na onze bevestiging dat de sloep gereserveerd is voor je, overgemaakt moet worden via de bank op nr NL85INGB0001797258
 onder vermelding van: 
+
 Borg, reserveringsnaam en de datum van de vaardag.
-Zodra de borg binnen is, is de reservering compleet,
+
+Zodra de borg binnen is, is de reservering compleet.
 
 Het huurbedrag kan á contant aan de kade.
 
