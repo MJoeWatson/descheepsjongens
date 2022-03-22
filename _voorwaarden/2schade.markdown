@@ -11,14 +11,14 @@ Kleine beschadigingen worden van de borg ingehouden. ( meldt ook een kras, het i
 Grotere schade gaat via de verzekering, Het eigen risico bedrag wat de huurder dan betaald is €350,-
 Bij je eigen verzekering kun je nagaan of je hiervoor ook verzekerd bent.
 
-Bij aanvang wordt € 150,- borg én €10,- schoonmaakborg extra betaald, dat als de sloep **onbeschadigd en netjes** terug gebracht is weer **terug** ontvangen wordt.
+Na het reserveren wordt € 150,- borg én €10,- schoonmaakborg extra betaald,(via de bank) dat als de sloep **onbeschadigd en netjes** terug gebracht is weer **terug** gestort wordt.
 
 2) De sloep wordt in de **zelfde staat** terug gebracht als dat deze bij aanvang was. **Controleer de binnen en buitenkant** van de boot bij vertrek, zo willen we 'm ook weer terug:) 
 
 Schoonmaakspullen zijn beschikbaar bij terugkomst.  **Wij** willen het voor je doen als het redelijk is, dan wordt **€ 10,- **verrekend met de **borg.**.  Is de boot erg vies of de kussens nat, dan wordt er minimaal €20,- met de borg verrekend.
 
-We storten de borg dezelfde avond of in ieder geval **binnen enkele dagen** terug, kijk dit even na op uw bank ter controle,
-mocht het langer dan een week duren, **neem aub even contact met ons op**, want dan is er misschien is misgegaan.
+We storten de borg **binnen enkele dagen** terug, kijk dit even na op uw bank ter controle,
+mocht het langer dan een week duren, **neem aub even contact met ons op**, want dan is er misschien iets mis gegaan.
 
 3) Als de sloep in huurperiode ergens **tegenaan** gekomen is of andere bijzonderheden of **schade** moet dit **ALTIJD even gemeld** worden.
 Als er **rustig** gevaren wordt en goed **opgepast** wordt in de buurt van **kades, sluizen en bruggen** kun je schade meestal voorkomen. Met de afzetstok kun je schades helpen voorkomen.
