@@ -25,6 +25,6 @@ De prijzen van de ochtend, middag en avond zijn nog het zelfde.
 - In Harmelen hebben we andere tijden!
   “midden op de dag tijden”
 
-11.00-17.00 uur (6 vaaruren) €145,-
+11.00-17.00 uur (6 vaaruren) €140,-
 
 11.00-19.00 uur (8 vaaruren) €170,-
