@@ -10,6 +10,8 @@ buitenboordsoldout:
 layout: reserveren
 ---
 
+vanaf **begin april** kan er weer gevaren worden! 
+Dan begint bij ons het vaarseizoen 2022
 
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **goed** door;
 
