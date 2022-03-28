@@ -10,6 +10,7 @@ Om de stad Woerden heen varen door de singels is mooi,
 **Een heel rondje om de stad is nu mogelijk!**
 
 Let op:  In een Halve dag vanuit Woerden vaar je **tot** de sluizen en niet er doorheen! 
+Halverwege de tijd keer je weer om.
 
 
 ### Route tot Harmelen
