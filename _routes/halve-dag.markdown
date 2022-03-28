@@ -6,8 +6,8 @@ position: 1
 
 Rondom Woerden kun je mooi varen;  Er is veel te zien en je ervaart de omgeving vanuit een heel ander perspectief.
 
-Om de stad Woerden heen varen door de singels is mooi...
-**Een heel rondje om de stad is nu mogelijk!!**
+Om de stad Woerden heen varen door de singels is mooi,
+**Een heel rondje om de stad is nu mogelijk!**
 
 Let op:  In een Halve dag vanuit Woerden vaar je **tot** de sluizen en niet er doorheen! 
 
@@ -31,9 +31,9 @@ of (wel wat moeilijker) je kunt eventueel **heel voorzichtig** door de meest **l
 Links is de hoogste doorgang.(**wel bukken**) en **heel** rustig varen, gebruik de haakstok in geval van bijna tegen de kanten; 
 Vanuit Harmelen richting Woerden, neem dezelfde, dan rechter doorgang en wees voorzichtig. 
 
-De Haanwijkersluis is 200 meter verderop, Deze wordt alleen rond deze bepaalde tijden bediend (ook om de 2 uur)  Bellen tijdens kantooruren, 20 min van te voren op tel. 06 51383461 (bgg 06 52370200). bediend, op afroep.
+De Haanwijkersluis is 200 meter verderop, Deze wordt ook alleen rond deze bepaalde tijden bediend (om de 2 uur)  Bellen tijdens kantooruren, 20 min van te voren op tel. 06 51383461 (bgg 06 52370200). bediend, op afroep.
 
-**Door de sluis is in een halve dag niet zo goed haalbaar, dus voor de brug (of voor de sluis)  keer je weer om.**
+**Door de sluis is in deze tijd niet haalbaar, dus voor de brug (of voor de sluis)  keer je weer om.**
 
 **Beschrijving:**
 
