@@ -31,7 +31,7 @@ Verder zijn alle prijzen het zelfde gebleven.
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je **altijd** een bericht **of** er plaats is.
 Bij een gemaakte reservering sturen we de **bevestiging met de informatie die je nodig hebt**,
 
-- Nieuw is dat de borg, na onze bevestiging dat de sloep gereserveerd is voor je, overgemaakt moet worden via de bank op nr NL85INGB0001797258
+- Nieuw is dat de borg, na onze bevestiging dat de sloep gereserveerd is voor je, vooraf overgemaakt moet worden via de bank op nr NL85INGB0001797258
 onder vermelding van: 
 
 Borg, reserveringsnaam en de datum van de vaardag.
@@ -43,7 +43,5 @@ Het huurbedrag kan á contant aan de kade.
 of huur en borg beide via de bank, maar wel zo, dat het ruim van te voren binnen is. ovv Borg en huur, reserveringsnaam, datum van de vaardag.
 
 
-
-
-**Avonden zijn te vroeg donker dus helaas niet meer mogelijk**
+**Avonden zijn te vroeg donker dus helaas nog niet mogelijk**
 
