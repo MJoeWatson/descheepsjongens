@@ -41,16 +41,16 @@ Voor wie van rust en natuur houdt, is dit een mooie groene route langs de rietkr
 Je vaart over de Grecht naar de Nieuwkoopse plassen.
 Vervolgens vaar de plassen over en ga je richting Zwammerdam.
  Over de Rijn via Boegraven en Nieuwerbrug weer terug. 
-  Let wel onze sloepen varen **overal 6 km /uur** en het is 8 vaaruren.
+  Let wel onze sloepen varen **overal 6 km /uur** en het is ruim 7 á 8 vaaruren.
 
 OHWL
-**Het is ook  de Oude Hollandse Waterlinie route; De zgn. "Luxembourg vaarroute". Deze is te zien via onderstaande link .
+**Het is ook de Oude Hollandse Waterlinie route; De zgn. "Luxembourg vaarroute". Deze is te zien via onderstaande link .
 
-Het is eigenlijk een route die wat meer tijd kost dan 1 vaardag,  
+De route aldaar beschreven is eigenlijk een route die wat meer tijd kost dan 1 vaardag,  
 De route is oorspronkelijk via de Meije, dat is een klein riviertje met heel veel bruggetjes die allemaal open moeten met de hand.
 In plaats daarvan vaar je over de Nieuwkoopse plassen.
 
-In een dag kun je dan dus (meest van) deze route doen.
+In een dag kun je dan dus deze aangepaste route doen.
 Dat is bij ons de bovenstaande "Nieuwkoopseplassen vaarroute".
 
 De informatie van OHWL is heel interessant bij deze route.   
@@ -61,9 +61,6 @@ De informatie van OHWL is heel interessant bij deze route.
 
 ### Linschoten, Oudewater, Montfoort 
 
-ma-vr : Stremming tussen Woerden en linschoten 
-
-***Alleen in het weekend mogelijk, na 2 juli ook door de weeks**
 
 #### Tijd: 6 uur varen,  dan heb je nog 2 uur vrije tijd op een dag van 8 uur.
 
@@ -88,24 +85,17 @@ Je kan het nummer bellen dat op het bord aldaar staat en de kosten zijn  €3,- 
 Populaire en leuke route langs oude dorpen en stadjes, Linschoten, Montfoort, Oudewater en Woerden.
 
 
-### Rondje Oudewater, Hekendorp , Nieuwerbrug.
- 
-Dit rondje is niet mogelijk tot 2 juli ivm stremmingen.
-
-**ma-vr Stremming tussen Woerden en Linschoten 
-alleen in het weekend doorvaarbaar !
-ws tot 2 juli, daarna weer open.** 
+### Rondje Oudewater, Hekendorp, Nieuwerbrug, Woerden 
 
 
 #### Tijd: Rondje, 7,5 uur varen vanuit Woerden
 
 
-
 vaarkaart: [route Hekendorp De Scheepsjongens.pdf](/uploads/route%20Hekendorp%20De%20Scheepsjongens.pdf)
 
 
-Deze ronde is bijna 8 vaar uren, je komt 2 x een sluis tegen en een spoorbrug op de dubbele Wiericke 
-let op :deze spoorbrug  heeft beperkte openingstijden!. Door de weeks en zaterdag wordt deze tot 17.00 uur bediend.
+Deze ronde is 7 bijna 8 vaar uren, je komt 2 x een sluis tegen en een spoorbrug op de dubbele Wiericke 
+let op: deze spoorbrug  heeft beperkte openingstijden!. Door de weeks en zaterdag wordt deze tot 17.00 uur bediend.
 Op zondag alleen geopend van 14.00-16.00 uur!
 In Hekendorp kom je door de Goejanverwelle sluis.
 Bedieningstijden zondag en maandag 14.00-17.30 uur  
@@ -120,7 +110,7 @@ Deze kan je lezen/luisteren als je deze route over Hekendorp- Nieuwerbrug vaart.
 
 Je kan bv ook naar Alphen aan de Rijn, en op de terugweg de route van de andere kant af bekijken. Dan ben je ook een dag onderweg.
 
-Eventueel kan er op sommige dagen een uur bij gehuurd worden om bv wat meer vrije tijd te hebben; De kosten zijn €25,- per uur.
+Eventueel kan er op sommige dagen een uur bij gehuurd worden om bv wat meer vrije tijd te hebben; €30,- per extra uur.
 
 (https://oudehollandsewaterlinie.nl/routes/de-prins-willem-iii-vaarroute/)
 
@@ -134,10 +124,6 @@ wat mogelijk is , 8 uur varen is
 
 
 ### Linschoten, Oudewater, Montfoort
-
-**ma-vr Stremming tussen Woerden en Linschoten 
-alleen in het weekend doorvaarbaar !
-ws tot 2 of 7 juli** 
 
 #### Tijd: ongeveer 8 uur varen,
 
