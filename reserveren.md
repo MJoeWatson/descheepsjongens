@@ -10,8 +10,8 @@ buitenboordsoldout:
 layout: reserveren
 ---
 
-Vanaf **9 april** kan er weer gevaren worden! 
-Dan begint bij ons het vaarseizoen 2022
+Er kan weer gevaren worden! 
+Het vaarseizoen 2022 is begonnen.
 
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **goed** door;
 
@@ -31,17 +31,18 @@ Verder zijn alle prijzen het zelfde gebleven.
 Wanneer de aanvraag voor de reservering is gemaakt sturen we je **altijd** een bericht **of** er plaats is.
 We sturen een **bevestiging email met de verdere informatie die je nodig hebt**,
 
-- Nieuw is dat de borg, na onze bevestiging dat de sloep gereserveerd is voor je, vooraf overgemaakt moet worden via de bank op rekeningnr. NL85INGB0001797258
-onder vermelding van: 
+- Nieuw is dat de borg, na onze bevestiging dat er een sloep beschikbaar is voor je, al bij het reserveren overgemaakt moet worden via de bank, Dán pas wordt de boot gereserveerd voor je.
 
-Borg, reserveringsnaam en de datum van de vaardag.
+Betaling borg op rekeningnr. NL85INGB0001797258, 
+Onder vermelding van: 
+reserveringsnaam en de datum van de vaardag.
 
-Zodra de borg binnen is, is de reservering compleet.
+Zodra de borg binnen is, is de reservering compleet en zorgen we dat de sloep voor jullie klaarligt.
 
 Het huurbedrag kan á contant aan de kade, voor vertrek. 
 
-of huur en borg kunnen beide via de bank, maar wel zo, dat het ruim van te voren binnen is. ov.v. Borg en huur, reserveringsnaam, datum van de vaardag.
+of huur en borg kunnen beide via de bank, maar wel zo, dat het ruim van te voren binnen is. o.v.v. reserveringsnaam, en de datum van de vaardag.
 
 
-**Avonden zijn te vroeg donker dus helaas nog niet mogelijk**
+**Avonden zijn nog te vroeg donker en wat koud, daarom nog niet mogelijk**
 
