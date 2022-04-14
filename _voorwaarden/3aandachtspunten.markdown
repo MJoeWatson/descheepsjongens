@@ -15,7 +15,7 @@ en ook hier geldt altijd, **voorrang** moet je krijgen, **niet nemen**..
 
 Kinderen **zonder zwemdiploma** moeten een **zwemvest** dragen.
 
-1) Pas op voor **zwemmers** en de **hengels** van vissers! ze zijn soms moeilijk te zien in het water. **houdt afstand!** 
+1) Pas op voor **zwemmers** en de **hengels** van vissers! ze zijn soms moeilijk te zien in het water. **houd afstand!** 
 
 2) **géén afval** Onderweg achterlaten.  ~Afval zelf mee naar huis nemen.
 
