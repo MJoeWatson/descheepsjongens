@@ -19,7 +19,7 @@ Kinderen **zonder zwemdiploma** moeten een **zwemvest** dragen.
 
 2) **géén afval** Onderweg achterlaten.  ~Afval zelf mee naar huis nemen.
 
-3) **Hond** Kosten: **€ 20,- extra.** De hond mag niet op de kussens, kap ed., alleen op een eigen kleedje. 
+3) **Hond** Kosten: **€ 20,- extra.** De hond mag niet op de kussens, kap ed., maar op een eigen kleedje. 
 
 4) De **kappen** zijn netjes naar beneden gevouwen*, **graag zo houden.**  * Alleen bij hevige regen eventueel te gebruiken. - De kap moet altijd **binnenboord** netjes opgevouwen zijn (i.v.m. beschadigen)
 
