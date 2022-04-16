@@ -10,8 +10,9 @@ buitenboordsoldout:
 layout: reserveren
 ---
 
-Er kan weer gevaren worden! 
-Het vaarseizoen 2022 is begonnen.
+* Eerste Paasdag 17 april zijn alle sloepen in Woerden uit varen
+
+In Harmelen is er nog 1 sloep beschikbaar - vooralsnog - 
 
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **goed** door;
 
