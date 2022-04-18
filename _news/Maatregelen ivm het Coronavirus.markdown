@@ -9,9 +9,8 @@ En zo langzamerhand zijn ze weer te water en kan er weer gevaren worden!
 Reserveren kan via deze site bij reserveren, dan wijst het zich vanzelf.
 
 Update: 
-Eerste paasdag, as Zondag 17 april is er vooralsnog, nog 1 sloep vrij de andere zijn al gereserveerd, 
-
-Tweede paasdag  18 april zijn er nog een aantal sloepen vrij.
+Tweede paasdag, vandaag 18  april zijn de sloepen in Woerden niet meer beschikbaar 
+ er is vooralsnog, nog 1 sloep vrij in Harmelen , de Antaris, een buitenboord motor sloep
 
 **Nieuws**: 
 
