@@ -10,7 +10,14 @@ buitenboordsoldout:
 layout: reserveren
 ---
 
-Tweede paasdag, vandaag 18  april zijn er geen sloepen meer beschikbaar. 
+**Er is iets mis met het reserverings systeem Er wordt aan gewerkt!** 
+
+proberr het eerst maar 
+het kan zijn dat het niet lukt,
+als je wil reserveren dan kan je wel een email sturen naar descheepsjongens@gmail.com 
+of ons bellen:  06 81847272 
+
+naar verwachting is de storing morgen verholpen!  
 
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **goed** door;
 
