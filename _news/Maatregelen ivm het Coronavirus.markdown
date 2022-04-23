@@ -7,11 +7,13 @@ date: 2020-03-18 12:25:00 +01:00
 En zo langzamerhand zijn ze weer te water en kan er weer gevaren worden!
  
 Reserveren kan via deze site bij reserveren, dan wijst het zich vanzelf.
+Update:
 
-Update: 
-Tweede paasdag, vandaag 18  april zijn de sloepen in Woerden niet meer beschikbaar 
- er is vooralsnog, nog 1 sloep vrij in Harmelen , de Antaris, een buitenboord motor sloep
+**Het kan zijn dat er een storing is en reserveren via de site niet lukt,
+stuur dan een email naar  Descheepsjongens@gmail.com
+of bel ons 06 81847272** 
 
+—————————————————————
 **Nieuws**: 
 
 * Dit jaar is het mogelijk om de stad helemaal rond te varen en er is van alles te zien en te beleven in Woerden want Woerden is 650 jaar.
