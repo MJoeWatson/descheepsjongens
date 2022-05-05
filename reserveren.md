@@ -47,5 +47,9 @@ Het huurbedrag kan á contant aan de kade, voor vertrek.
 of huur en borg kunnen beide via de bank, maar wel zo, dat het ruim van te voren binnen is. o.v.v. reserveringsnaam, en de datum van de vaardag.
 
 
+
+**18 mei zijn alle sloepen verhuurd van 15.30 tot 18.00 uur 
+wilt u deze dag varen kan dat evt van 10.00-15.30 uur**
+
 **Avonden zijn nog te vroeg donker en wat koud, daarom nog niet mogelijk**
 
