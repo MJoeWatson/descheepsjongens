@@ -16,6 +16,11 @@ Reserveer eenvoudig:
 RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
 
+**15 mei zijn alle sloepen in de middag uit varen**
+
+in de ochtend nog wel sloepen vrij van 10.00-13.00 uur
+
+
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **goed** door;
 
 *Als de reservering is gemaakt, gaan we er vanuit dat u op de hoogte bent van wat **echt** belangrijk is en wat de de regels zijn 
@@ -50,6 +55,4 @@ of huur en borg kunnen beide via de bank, maar wel zo, dat het ruim van te voren
 
 **18 mei zijn alle sloepen verhuurd van 15.30 tot 18.00 uur 
 wilt u deze dag varen kan dat evt van 10.00-15.30 uur**
-
-**Avonden zijn nog te vroeg donker en wat koud, daarom nog niet mogelijk**
 
