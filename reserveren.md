@@ -16,7 +16,8 @@ Reserveer eenvoudig:
 RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
 
-**15 mei zijn vooralsnog alle sloepen in de middag uit varen**
+**15 mei zijn vooralsnog alle stille sloepen in de middag uit varen, 
+De buitenboordmotor sloep De Antaris is nog vrij voor de hele/halve dag**
 
 in de ochtend nog wel sloepen vrij van 10.00-13.00 uur
 
