@@ -16,8 +16,9 @@ Reserveer eenvoudig:
 RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
 
-**15 mei zijn er nog enkele sloepen vrij in Woerden**
+**15 mei zijn alle sloepen uit vare**
 
+Alle andere dagen zijn er nog sloepen vrij 
 
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie goed door;
 
