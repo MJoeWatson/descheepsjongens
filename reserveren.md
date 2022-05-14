@@ -16,23 +16,17 @@ Reserveer eenvoudig:
 RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
 
-**15 mei zijn vooralsnog alle stille sloepen in de middag uit varen, 
-De buitenboordmotor sloep De Antaris is nog vrij voor de hele/halve dag**
-
-in de ochtend nog wel sloepen vrij van 10.00-13.00 uur
+**15 mei zijn er nog enkele sloepen vrij in Woerden**
 
 
-Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie **goed** door;
+Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie goed door;
 
-*Als de reservering is gemaakt, gaan we er vanuit dat u op de hoogte bent van wat **echt** belangrijk is en wat de de regels zijn 
-en gaat u **akkoord** met onze voorwaarden.
+*Als de reservering is gemaakt, gaan we er vanuit dat u op de hoogte bent van wat **echt** belangrijk is en wat de regels zijn  en gaat u **akkoord** met onze voorwaarden.
 
 [Klik **hier** voor alle voorwaarden en instructie (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
 
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
-
-
 
 
 
