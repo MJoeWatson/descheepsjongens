@@ -25,6 +25,8 @@ Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie go
 
 [Klik **hier** voor alle voorwaarden en instructie (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
+Let op: 
+op een telefoon is de pagina van de voorwaarden eerst wit en moet je heel ver scrollen tot helemaal onderaan. 
 
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
 
