@@ -16,7 +16,7 @@ Reserveer eenvoudig:
 RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
 
-**15 mei is er nog 1 sloep vrij in Woerden**
+**15 mei zijn alle sloepen gereserveerd*
 
 
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie goed door;
