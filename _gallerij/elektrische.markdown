@@ -11,5 +11,5 @@ position: 0
 
 ### Nicky (2 in Woerden en 2 in Harmelen)
 ![nicky-far.jpeg]({{site.baseurl}}/assets/images/boats/nicky/nicky-far.jpeg){:class="centre"}
-1. 1.  Fluistersloep voor 8-10 personen.
+1. 1.  Fluistersloep voor max ongeveer 9 personen.
 
