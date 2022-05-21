@@ -16,8 +16,9 @@ Reserveer eenvoudig:
 RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
 
-**28 mei zijn alle elektrische sloepen gereserveerd in de middag, De Antaris,de  buitenboordmotor sloep  is vooralsnog vrij**
+**28 mei zijn alle sloepen gereserveerd in de middag**
 
+In de ochtend nog mogelijkheden om te varen. 
 
 Voor je reserveert, lees **éérst** de voorwaarden, reglementen & instructie goed door;
 
