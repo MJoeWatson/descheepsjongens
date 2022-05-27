@@ -16,9 +16,15 @@ Reserveer eenvoudig:
 RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
 
-**28 mei zijn alle sloepen gereserveerd in de middag**
+**28 mei zijn alle stille sloepen gereserveerd in de middag**
+
+De Antaris, de buitenboordmotorsloep  is nog beschikbaar 
 
 In de ochtend nog mogelijkheden om te varen. 
+
+4 juni zijn in Woerden alle sloepen vooralsnog gereserveerd in de middag; 
+
+Voor varen in de ochtend kan er nog  gereserveerd worden. 
 
 Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie goed door;
 
