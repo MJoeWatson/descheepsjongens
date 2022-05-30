@@ -16,10 +16,11 @@ Reserveer eenvoudig:
 RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
 
-**6 juni zijn alle sloepen gereserveerd in de middag**
+**6 juni zijn alle stille sloepen gereserveerd in de middag**
 
+1 Antaris, een fijne buitenboordmotor sloep voor 6 a 7 personen nog vrij.
 
-In de ochtend nog mogelijkheden om te varen. 
+In de ochtend nog allerlei mogelijkheden om te varen. 
  
 
 Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie goed door;
