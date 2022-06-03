@@ -17,8 +17,9 @@ RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR!
 
 Alle dagen zijn er vooralsnog sloepen beschikbaar behalve:
 
-** 4 juni zijn alle stille sloepen gereserveerd in de middag**
+** 4 juni zijn alle sloepen in Woerden gereserveerd in de middag**
 ochtend nog mogelijk 
+varen uit Harmelen nog mogelijk de hele dag 
 
 **6 juni zijn alle sloepen gereserveerd in de middag**
 
