@@ -17,6 +17,9 @@ RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR!
 
 Alle dagen zijn er vooralsnog sloepen beschikbaar behalve:
 
+** 4 juni zijn alle stille sloepen gereserveerd in de middag**
+ochtend nog mogelijk 
+
 **6 juni zijn alle sloepen gereserveerd in de middag**
 
 In de ochtend nog allerlei mogelijkheden om te varen. 
