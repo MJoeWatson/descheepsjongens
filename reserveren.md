@@ -22,7 +22,9 @@ Alle dagen zijn er vooralsnog sloepen beschikbaar behalve:
 
 In de ochtend nog allerlei mogelijkheden om te varen. 
  
-**19 juni in de middag geen elektrische sloep meer vrij** in de ochtend nog wel 
+**19 juni in de middag sloep meer vrij in Woerden** 
+
+in de ochtend nog wel 
 
 
 Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie goed door;
