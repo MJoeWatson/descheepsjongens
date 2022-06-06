@@ -18,11 +18,12 @@ RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR!
 Alle dagen zijn er vooralsnog sloepen beschikbaar behalve:
 
 
-**6 juni zijn alle sloepen gereserveerd in de middag**
+**6 en 11 juni zijn alle sloepen gereserveerd in de middag**
 
-In de ochtend nog allerlei mogelijkheden om te varen. 
+In de ochtend nog sloepen vrij 
  
-**19 juni in de middag sloep meer vrij in Woerden** 
+ 
+**19 juni in de middag geen sloep meer vrij in Woerden** 
 
 in de ochtend nog wel 
 
