@@ -25,7 +25,8 @@ In de ochtend nog sloepen vrij
  
 **19 juni in de middag geen sloep meer vrij in Woerden** 
 
-in de ochtend nog wel 
+**3 juli zijn alle stille sloepen in de middag al gereserveerd,
+in de ochtend is reserveren nog wel mogelijk!** 
 
 
 Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie goed door;
