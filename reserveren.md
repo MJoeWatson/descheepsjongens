@@ -18,9 +18,11 @@ RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR!
 Alle dagen zijn er vooralsnog sloepen beschikbaar behalve:
 
 
-**11 juni zijn alle stille sloepen gereserveerd in de middag, er is nog 1 Antaris voor je**
+**11 juni zijn alle stille sloepen gereserveerd in de middag**
 
-In de ochtend nog sloepen vrij 
+Er is nog 1 Antaris voor max 6 a 7 personen vrij.
+
+In de ochtend nog sloepen wel wat sloepen vrij 
  
  
 **19 juni in de middag is er nog 1 sloep vrij in Woerden** 
