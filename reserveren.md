@@ -25,7 +25,8 @@ Er is nog 1 Antaris voor max 6 a 7 personen vrij.
 In de ochtend nog sloepen wel wat sloepen vrij 
  
  
-**19 juni in de middag is er nog 1 sloep vrij in Woerden** 
+**19 juni in de middag nog 1 sloeo vrij in Harmelen  
+Woerden is vol in de middag**
 
 **2 en 3 juli zijn alle stille sloepen in de middag -vooralsnog-  gereserveerd**
 
