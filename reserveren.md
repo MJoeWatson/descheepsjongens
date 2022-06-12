@@ -16,26 +16,19 @@ Reserveer eenvoudig:
 RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
 Alle dagen zijn er vooralsnog sloepen beschikbaar behalve:
-
-
-**11 juni zijn alle stille sloepen gereserveerd in de middag**
-
-Er is nog 1 Antaris voor max 6 a 7 personen vrij.
-
-In de ochtend nog sloepen wel wat sloepen vrij 
  
- 
-**19 juni in de middag nog 1 sloeo vrij in Harmelen  
+**19 juni in de middag nog 1 sloeg vrij in Harmelen  
 Woerden is vol in de middag**
 
 **2 en 3 juli zijn alle stille sloepen in de middag -vooralsnog-  gereserveerd**
+.
+De Antaris voor 6 a 7 pers. is beschikbaar deze dag.
 
-in de ochtend is reserveren nog wel mogelijk!** en varen met de Antaris is ook mogelijk
-
+**In ochtenden zijn er nog sloepen wel sloepen vrij**
 
 Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie goed door;
 
-*Als de reservering is gemaakt, gaan we er vanuit dat u op de hoogte bent van wat **echt** belangrijk is en wat de regels zijn  en gaat u **akkoord** met onze voorwaarden.
+*Als de reservering is gemaakt, gaan we er vanuit dat u op de hoogte bent van wat de regels en voorwaarden zijn en gaat u daarmee  **akkoord**.
 
 [Klik **hier** voor alle voorwaarden en instructie (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
