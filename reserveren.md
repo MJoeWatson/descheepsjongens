@@ -16,9 +16,10 @@ Reserveer eenvoudig:
 RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
 Alle dagen zijn er vooralsnog sloepen beschikbaar behalve:
- 
-**19 juni in de middag nog 1 sloeg vrij in Harmelen  
-Woerden is vol in de middag**
+
+18 juni bijna alles gereserveerd in de middag 
+
+19 juni vooralsnog alles gereserveerd in de middag**
 
 **2 juli zijn alle stille sloepen in de middag -vooralsnog- gereserveerd**
 
