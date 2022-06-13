@@ -20,9 +20,11 @@ Alle dagen zijn er vooralsnog sloepen beschikbaar behalve:
 **19 juni in de middag nog 1 sloeg vrij in Harmelen  
 Woerden is vol in de middag**
 
-**2 en 3 juli zijn alle stille sloepen in de middag -vooralsnog-  gereserveerd**
-.
-De Antaris voor 6 a 7 pers. is beschikbaar deze dag.
+**2 juli zijn alle stille sloepen in de middag -vooralsnog- gereserveerd**
+
+**3 juli is vol in Woerden** 
+
+- in Harmelen nog 1 vrij
 
 **In ochtenden zijn er nog sloepen wel sloepen vrij**
 
