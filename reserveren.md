@@ -22,9 +22,9 @@ Woerden is vol in de middag**
 
 **2 juli zijn alle stille sloepen in de middag -vooralsnog- gereserveerd**
 
-**3 juli is vol in Woerden** 
+**3 juli: de middag is vol in Woerden** 
 
-- in Harmelen nog 1 vrij
+(in Harmelen nog 1 vrij)
 
 **In ochtenden zijn er nog sloepen wel sloepen vrij**
 
