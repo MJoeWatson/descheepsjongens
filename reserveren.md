@@ -17,7 +17,7 @@ RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR!
 
 Alle dagen zijn er vooralsnog sloepen beschikbaar behalve:
 
-**18 juni alles gereserveerd in de middag** 
+**18 juni is vooralsnog alles gereserveerd in de middag** 
 
 **19 juni vooralsnog alles gereserveerd in de middag**
 
