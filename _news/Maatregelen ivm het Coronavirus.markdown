@@ -17,7 +17,7 @@ Huur kan wel á contant aan de kade.
 (of ook via de bank)
 
 * De middaghuur prijs is nu €110,- (van 13.30-18.00 uur)  
-De prijzen van de ochtend, middag en avond zijn nog het zelfde.
+De prijzen van de ochtend,€(85,-) hele dag (€170,-) en en avond (€85,-) zijn nog het zelfde.
 
 * In Harmelen hebben we ook andere tijden waarop gevaren kan worden.
 
