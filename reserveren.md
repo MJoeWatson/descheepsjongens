@@ -21,7 +21,7 @@ Op de meeste dagen zijn er ook in de middag/ hele dag sloepen beschikbaar behalv
 
 **18 juni is er nog 1 sloep vrij in de middag / hele dag** 
 
-**19 juni is er ern sloep vrij gekomen voor de hele dag / ochtend/ middag**
+**19 juni is er in Harmelen een stille sloep vrij gekomen voor de hele dag / ochtend/ middag**
 
 **2 juli zijn alle stille sloepen in de middag -vooralsnog- gereserveerd**
 De 2 Antaris sloepen zijn nog wel vrij.
