@@ -19,7 +19,7 @@ RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR!
 
 Op de meeste dagen zijn er ook in de middag/ hele dag sloepen beschikbaar behalve:
 
-**as zaterdag 18 juni zijn alle sloepen gereserveerd in de middag.
+**as zaterdag 18 juni is er een sloep vrij gekomen in de middag! 
 In de ochtend zijn er nog enkele sloepen vrij van 10.00-13.00 uur.
 
 **as zondag 19 juni zijn alle sloepen gereserveerd de hele dag**
