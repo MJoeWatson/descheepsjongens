@@ -19,14 +19,9 @@ RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR!
 
 Op de meeste dagen zijn er ook in de middag/ hele dag sloepen beschikbaar behalve:
 
-**as zaterdag 18 juni is de middag volgeboekt
-In de ochtend zijn er nog enkele sloepen vrij van 10.00-13.00 uur**
-
-**as zondag 19 juni zijn alle sloepen gereserveerd de hele dag**
-
 
 **2 juli zijn alle stille sloepen in de middag -vooralsnog- gereserveerd**
-De 2 Antaris sloepen zijn nog wel vrij.
+De 1 Antaris sloep zijn nog wel vrij.
 
 **3 juli: de middag is vol in Woerden, en in Harmelen nog 1 vrij vooralsnog**
 
