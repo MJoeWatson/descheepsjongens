@@ -22,7 +22,7 @@ Op de meeste dagen zijn er ook in de middag/ hele dag sloepen beschikbaar behalv
 
 -26 juni in Woerden in de middag alleen nog 1 buitenboordmotorsloep  De Antaris vrij, 
 
-in Harmelen 2 stille nicki sloepen vrij hele dag/ dagdeel
+in Harmelen 1 stille nicki sloepen vrij hele dag/ dagdeel
 
 2 juli zijn alle stille sloepen in de middag -vooralsnog- gereserveerd**
 De 1 Antaris sloep  nog wel vrij.
