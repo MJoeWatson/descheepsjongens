@@ -27,7 +27,8 @@ in Harmelen 2 stille nicki sloepen vrij hele dag/ dagdeel
 2 juli zijn alle stille sloepen in de middag -vooralsnog- gereserveerd**
 De 1 Antaris sloep  nog wel vrij.
 
-**3 juli: de middag is vol in de middag 
+**3 juli: de middag is vol 
+dus middag en hele dag kan niet worden gereserveerd
 
 
 Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie goed door;
