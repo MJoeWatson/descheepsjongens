@@ -29,7 +29,7 @@ Woerden:
 
 #### 18.30 - 21.00 uur (2,5 uur) (alleen mogelijk op sommige dagen)
 
-Harmelen:
+Harmelen zijn erook andere tijden mogelijk: 
 
 ### Midden op de dag: €140,-
 
@@ -52,6 +52,7 @@ Wij willen het ook voor je doen, €10,- schoonmaakborg voor redelijke boot,
 Is de boot erg vies, minimaal €20,-
 
 ~ Kleine schade zoals een kras en andere onkosten worden van de borg afgehouden.
+dat sparen we op en kopen er een pot verf van om de boot weer mooi te maken.
 
 Kleine kras €20,- aub zelf melden als er wat geraakt is. 
 
@@ -66,7 +67,7 @@ In overleg met ons tot een uur voor de vertrek tijd.
 
 Als er om een **andere reden** geannuleerd wordt vragen we **€20,- service kosten**.
 
-Indien wij speciaal voor de vaartocht bij de sloep aanwezig zijn en je komt niet opdagen, wordt de borg ingehouden.
+Indien wij speciaal voor de vaartocht bij de sloep aanwezig zijn en je komt niet opdagen, wordt de huurprijs van de borg ingehouden.
 
 
 ~ Een extra uur bij huren is soms mogelijk, dit in overleg, 
