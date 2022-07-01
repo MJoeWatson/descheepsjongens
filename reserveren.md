@@ -22,8 +22,7 @@ Op de meeste dagen zijn er ook in de middag/ hele dag sloepen beschikbaar behalv
 
 
 
-**2 juli is er een Antaris, een buitenboordmotor sloep vrij!
-
+**2 juli is in de middag alles verhuurden ook, 
 3 juli zijn alle sloepen in de middag gereserveerd**
 
 **in de ochtend zijn er nog boten beschikbaar**
