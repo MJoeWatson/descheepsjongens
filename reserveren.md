@@ -20,10 +20,10 @@ REGELS/VOORWAARDEN LEZEN, RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN 
 Op de meeste dagen zijn er ook in de middag/ hele dag sloepen beschikbaar behalve: 
 
 
-
-
-**2 juli is in de middag alles verhuurden ook, 
+**2 juli is in de middag alles verhuurden ook en 
 3 juli zijn alle sloepen in de middag gereserveerd**
+
+7 juli is er nog 1 Antaris vrij de hele dag/ in de middag De stille sloepen zijn uit varen in de middag.
 
 **in de ochtend zijn er nog boten beschikbaar**
 
