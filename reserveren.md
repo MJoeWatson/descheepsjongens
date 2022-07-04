@@ -19,15 +19,12 @@ REGELS/VOORWAARDEN LEZEN, RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN 
 
 Op de meeste dagen zijn er ook in de middag/ hele dag sloepen beschikbaar behalve: 
 
-
-**2 juli is in de middag alles verhuurden ook en 
-3 juli zijn alle sloepen in de middag gereserveerd**
-
 **7 juli is er nog 1 Antaris vrij de hele dag/dagdeel.  De stille sloepen zijn uit varen in de middag**
 
+**9 juli is er nog 1 Antaris in Woerden vrij de hele dag/dagdeel.  en 1 elektrische sloep in Harmelen is nog vrij.
+De stille sloepen in Woerden zijn uit varen in de middag**
+
 **10 juli is er nog een Antaris vrij de hele dag/dagdeel. De stille sloepen zijn uit varen in de middag**
-
-
 
 **17 juli zijn de elektrische sloepen in Wierden uit varen
 Er is nog een buitenboordmotor sloep vrij 
