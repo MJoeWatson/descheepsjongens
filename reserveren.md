@@ -26,9 +26,9 @@ De stille sloepen in Woerden zijn uit varen in de middag**
 
 **10 juli is er nog een Antaris vrij de hele dag/dagdeel. De stille sloepen zijn uit varen in de middag**
 
-**17 juli zijn de elektrische sloepen in Wierden uit varen
+**17 juli zijn de elektrische sloepen in Woerden uit varen
 Er is nog een buitenboordmotor sloep vrij 
-of in Harmelen daar zijn nog wel elektrische sloepen vrij voor de hele dag/ dagdeel**
+of in Harmelen daar zijn nog wel elektrische sloepen vrij voor de hele dag/dagdeel**
 
 **in de ochtend zijn er nog boten beschikbaar**
 
@@ -38,7 +38,7 @@ Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie goed d
 
 [Klik **hier** voor alle voorwaarden en instructie (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
-Let op als je via smartphone reserveert: 
+Let o: als je via smartphone reserveert: 
 
 Je moet héel ver scrollen tot helemaal onderaan om alle voorwaarden te lezen, er is veel wit, Op een computer wel goed te zien., 
 
