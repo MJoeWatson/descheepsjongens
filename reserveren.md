@@ -29,11 +29,13 @@ De stille sloepen in Woerden zijn uit varen in de middag**
 
 **10 juli is er nog een Antaris vrij de hele dag/dagdeel. De stille sloepen zijn uit varen in de middag**
 
-**17 juli zijn de elektrische sloepen in Woerden uit varen
-Er is nog een buitenboordmotor sloep vrij 
+**17 juli zijn in de middag de sloepen in Woerden uit varen,
+
+in de ochtend zijn er nog boten vrij, 
+
 of in Harmelen daar zijn nog wel elektrische sloepen vrij voor de hele dag/dagdeel**
 
-**in de ochtend zijn er nog boten beschikbaar**
+**in de ochtend zijn er altijd nog boten beschikbaar**
 
 Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie goed door;
 
