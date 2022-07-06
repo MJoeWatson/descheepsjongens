@@ -79,6 +79,9 @@ Indien wij **speciaal** naar het vertrekpunt komen en de vaartocht blijkt **niet
 
 Het **hele gereserveerde dagdeel**  (óf de **service kosten á €20,-**, Dit voor ons om te bepalen.)
 
+Er is meestal genoeg gratis parkeerplek bij de kade (geen garantie!)
+ max 2 auto s per sloep. 
+
 14) Als de reservering gemaakt is gaat de huurder **akkoord** met **al deze voorwaarden.**
 
 Als je bovenstaande allemaal weet, komt het helemaal goed!
