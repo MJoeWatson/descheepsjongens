@@ -21,21 +21,13 @@ Op de meeste dagen zijn er ook in de middag/ hele dag sloepen beschikbaar behalv
 
 **7 juli is er nog 2 Antarissen  vrij de hele dag/dagdeel.  De stille sloepen zijn uit varen in de middag**
 
-** 21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
-in Harmelen zijn er nog enkele sloepen vrij voor de hele dag/ dagdelen**
+**9 en 10 juli zijn er geen sloepen meer beschikbaar**
 
-**9 juli is er nog 1 Antaris in Woerden vrij de hele dag/dagdeel.  en 1 elektrische sloep in Harmelen is nog vrij.
-De stille sloepen in Woerden zijn uit varen in de middag**
-
-**10 juli is er nog een Antaris vrij de hele dag/dagdeel. De stille sloepen zijn uit varen in de middag**
 
 **17 juli zijn in de middag de sloepen in Woerden uit varen,
 
-in de ochtend zijn er nog boten vrij, 
-
-of in Harmelen daar zijn nog wel elektrische sloepen vrij voor de hele dag/dagdeel**
-
-**in de ochtend zijn er altijd nog boten beschikbaar**
+** 21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
+in Harmelen zijn er nog enkele sloepen vrij voor de hele dag/ dagdelen.
 
 Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie goed door;
 
