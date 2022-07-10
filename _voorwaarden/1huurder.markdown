@@ -9,18 +9,19 @@ Zodat iedereen zoveel mogelijk plezier blijft hebben van het varen in onze sloep
 
 ~Als je de reservering maakt ga je akkoord met al deze voorwaarden, dus lees ze goed.~
 
-1.) Vanaf **24 jaar** mag je bij ons een sloep huren.
+1.) Vanaf 24 jaar mag je bij ons een sloep huren.
 Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.
 
-2.) Blijf helder en alert, De bestuurder mag **niet** **onder invloed** van alcohol of andere verdovende middelen in een sloepen **varen**. Overmatig alcohol in onze sloepen wordt sowieso **niet** toegestaan,(•door ons te bepalen). Dus ook **niet** ergens anders drank in laden.... Er wordt op gecontroleerd.
+2.) Blijf helder en alert, De bestuurder mag niet onder invloed van alcohol of andere verdovende middelen in een sloepen varen. Overmatig alcohol in onze sloepen wordt sowieso niet toegestaan,(•door ons te bepalen). Dus ook niet ergens anders drank in laden.... Er wordt op gecontroleerd.
 
-Houdt de **sloep netjes**, we zijn er **zuinig** op … Ook dient men ervoor te zorgen dat er **geen overlast** voor de **omgeving** veroorzaakt wordt, dus geen harde muziek enz.
+Houdt de sloep netjes, 
+we zijn er zuinig op … Ook dient men ervoor te zorgen dat er geen overlast voor de omgeving veroorzaakt wordt, dus geen harde muziek enz.
 Let op, De borg wordt ingehouden als men zich niet aan deze afspraken houdt)
 
-3.) De toegestane **maximum** snelheid is **6 km/uur**, dat is echt **heel** rustig (wandelsnelheid).
-Dat geldt **overal** bij ons, **ook** als het anders aangegeven staat.
+3.) De toegestane **maximum** snelheid is **6 km/uur** dat is echt heel rustig (wandelsnelheid).
+Dat geldt overal bij ons, ook als het anders aangegeven staat.
 
--Het is **belangrijk** je aan de max snelheid van 6 km/uur te houden, Het is ook om beschadiging aan de natuur (denk om de nesten bv!), de oevers, andere boten én een boete te voorkomen.
+-Het is belangrijk je aan de max snelheid van 6 km/uur te houden, Het is ook om beschadiging aan de natuur (denk om de nesten bv!), de oevers, andere boten én een boete te voorkomen.
 
 * en, Elektrische sloepen:  Als je harder dan 6 km/u gaat trek je de **accu leeg**.
 
