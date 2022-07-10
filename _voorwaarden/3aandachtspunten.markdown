@@ -5,44 +5,48 @@ date: 2020-03-18 12:25:00 +01:00
 
 Bij ons op het water gelden uiteraard ook de algemene landelijke vaarregels;
 
-Vaar **in het midden**, dit i.v.m. de soms **ondiepe kanten** (bv richting kasteel en onder spoorwegtunnels)  en de vele planten waarin je vast kan komen te zitten. maar, als er **tegenliggers** komen of als een sloep wil **passeren** moet je wat **rechts houden**. (net zoals in het normale verkeer)
+Vaar in het midden, dit i.v.m. de soms ondiepe kanten (bv richting kasteel en onder spoorwegtunnels)  en de vele planten waarin je vast kan komen te zitten. maar, als er tegenliggers komen of als een sloep wil **passeren** moet je wat rechts houden (net zoals in het normale verkeer)
 
-Vaarverkeer dat komt vanaf **Stuurboord (rechts)** heeft **voorrang.**
+Vaarverkeer dat komt vanaf Stuurboord (rechts) heeft voorrang.
 
-Geef **grote boten voorrang**, maar ook roeibootjes, kano's suppers en zwemmers hebben voorrang want **spierkracht gaat voor motorboot**.
+Geef grote boten voorrang, maar ook roeibootjes, kano's suppers en zwemmers hebben voorrang want spierkracht gaat voor motorboot.
 
-en ook hier geldt altijd, **voorrang** moet je krijgen, **niet nemen**..
+en ook hier geldt altijd, voorrang moet je krijgen, niet nemen..
 
-Kinderen **zonder zwemdiploma** moeten een **zwemvest** dragen.
+Kinderen zonder zwemdiploma moeten een zwemvest dragen.
 
-1) Pas op voor **zwemmers** en de **hengels** van vissers! ze zijn soms moeilijk te zien in het water. **houd afstand!** 
+1) Pas op voor zwemmers en de **hengels** van vissers! ze zijn soms moeilijk te zien in het water. houd afstand!
 
-2) **géén afval** Onderweg achterlaten.  ~Afval zelf mee naar huis nemen.
+2) Géén afval Onderweg achterlaten.  ~Afval zelf mee naar huis nemen.
 
-3) **Hond** Kosten: **€ 20,- extra.** De hond mag niet op de kussens, kap ed., maar op een eigen kleedje. 
+3) Hond mee? Liever niet en op sommige boten helemaal niet ivm allergieën. 
+In nood kan het evt in overleg maar Kost € 20,- extra.
+ De hond mag niet op de kussens, kap ed., maar op een eigen kleedje. 
 
-4) De **kappen** zijn netjes naar beneden gevouwen*, **graag zo houden.**  * Alleen bij hevige regen eventueel te gebruiken. - De kap moet altijd **binnenboord** netjes opgevouwen zijn (i.v.m. beschadigen)
+4) De kappen zijn netjes naar beneden gevouwen*, graag zo houden. Alleen bij hevige regen eventueel te gebruiken. - De kap moet altijd binnenboord netjes opgevouwen zijn (i.v.m. beschadigen)
 
-*Je hebt weinig/geen zicht onder de kap, sommige bruggen kan je zo **niet** onderdoor!, en het is net zo warm daaronder.. dus beter zo opgevouwen te laten.
+*Je hebt weinig/geen zicht onder de kap, sommige bruggen kan je zo niet onderdoor!, en het is net zo warm daaronder.. dus beter zo opgevouwen te laten.
 
-5) **Touwen binnenboord**! Anders komen ze in de schroef terecht en draait de **motor stuk!**
+5) **Touwen binnenboord**! Anders komen ze in de schroef terecht en draait de motor stuk!
 
-- **Op de rand/ punt/ achterkant** van de boot zitten of staan is **te gevaarlijk**; Iets of iemand achter de boot hangen is niet toegestaan. **Zwemmen** kan overal in het water **vanaf een kade of steiger** langs de route, en **niet vanaf de boot**.
+- Op de rand/ punt/ achterkant van de boot zitten of staan is **te gevaarlijk**; Iets of iemand achter de boot hangen is niet toegestaan. Zwemmen kan overal in het water vanaf een kade of steiger langs de route, en **niet vanaf de boot.
 
-6) Als de sloep **in de schroef** lijkt te hebben en niet goed / te langzaam vaart, dan kun je de sloep een klein moment vol in z’n **achteruit** zetten. Meestal draait het weer los. Zo niet of als er een storings melding verschijnt op het display  bv een "C" dan **motor uitzetten!** en **ons bellen** om te voorkomen dat de motor onherstelbaar kapot draait!! We geven dan instructies of komen naar je toe.
+6) Als de sloep in de schroef lijkt te hebben en niet goed / te langzaam vaart, dan kun je de sloep een klein moment vol in z’n achteruit zetten. Meestal draait het weer los. Zo niet of als er een storings melding verschijnt op het display  bv een "C" dan **motor uitzetten!** en **ons bellen** om te voorkomen dat de motor onherstelbaar kapot draait!! We geven dan instructies of komen naar je toe.
 
-7) De **hendel/joystick** van de stille sloepen is gevoelig,  
-Altijd beginnen in **neutraal**, en ** 5 tellen wachten** voordat je de hendel beweegt. (ivm anders storing)
+7) De hendel/joystick** van de stille sloepen is gevoelig,  
+Altijd beginnen in neutraal, en  5 tellen wachten** voordat je de hendel beweegt. (ivm anders storing)
 
-en pas op, Als je de hendel **aanstoot** of er langs loopt, anders **vaart de sloep naar voor (of achter)**
+en pas op, Als je de hendel aanstoot of er langs loopt, anders vaart de sloep naar voor (of achter)
 Bij uitstappen/ langslopen daarom de sloep **uitzetten** met de sleutel.
 
-8) Als je door een **sluis of brug** vaart, houdt rekening met de **openingstijden**:   ~sluizen en bruggen worden soms op vaste tijden geopend. Let goed op de laatste doorvaar mogelijkheid en dat je de **goede route** vaart.
-Wijk niet van de vaarroutes af ivm **ondiepe** sloten en te lage bruggen.-> schade
+De sloep geeft eerst paar tellen extra power en gaat dan op 6 km/ u stand. hendel **niet** steeds heen en weer halen om harder te gaan, dan trekt de accu leeg en krijg je storing.
+
+8) Als je door een sluis of brug vaart, houdt rekening met de openingstijden:   ~sluizen en bruggen worden soms op vaste tijden geopend. Let goed op de laatste doorvaar mogelijkheid en dat je de **goede route** vaart.
+Wijk niet van de vaarroutes af ivm ondiepe sloten en te lage bruggen.-> schade
 -Een heel rondje om de stad Woerden kan dit jaar via de Oostam!  
 (de brug bij het kasteel is te laag)
 
-In de **sluis** de sloep **niet vast binden** maar laten vieren.
+In de sluis de sloep **niet vast binden** maar laten vieren.
 U mag bij het naderen van de sluis geen andere boten voorbijvaren. Bij de wachtplaats van een sluis mag je ligplaats nemen alleen om te schutten. Binnenvaren gaat in volgorde van aankomst.
 
 9) Er wordt bij sluizen en bruggen vaak een paar euro **tol** gevraagd en bij de Nieuwkoopse plassen een bijdrage voor natuurbeheer.
@@ -60,12 +64,8 @@ Pas op uw hoofd onder de bruggen, buk tijdig wanneer nodig.
 13) Als het slecht weer is, regen / veel wind kan de vaartocht **in overleg op de dag zelf** kosteloos verplaatst of geannuleerd worden; 
 let wel: in **alle** andere gevallen worden er kosten berekend.
 
-We houden de sloep namelijk speciaal voor u bezet, 
+We houden de sloep namelijk speciaal voor u gereserveerd, 
 
-Annuleren met droog weer?,
-
-* Tot 24 uur van tevoren en geen slecht weer:
-€20,- wordt in rekening gebracht.
 
 * Korter dan 24 uur van te voren en geen slecht weer:  
 50 % van de huurprijs wordt in rekening gebracht.
@@ -75,12 +75,12 @@ op de dag zelf.
  (niet 1 of 2 dagen ervoor, omdat je dan nog niets kan zeggen over het werkelijke weer namelijk.
 Dan kost annuleren €20,- 
 
-Indien wij **speciaal** naar het vertrekpunt komen en de vaartocht blijkt **niet door**, te gaan, dan rekenen we de gemaakte **kosten**. 
+Indien wij **speciaal** naar het vertrekpunt komen en je komt niet opdagen dan rekenen we de gemaakte kosten.
 
-Het **hele gereserveerde dagdeel**  (óf de **service kosten á €20,-**, Dit voor ons om te bepalen.)
+Het hele gereserveerde dagdeel wordt in rekening gebracht.
 
 Er is meestal genoeg gratis parkeerplek bij de kade (geen garantie!)
- max 2 auto s per sloep. 
+Voor max 2 auto s per sloep. 
 
 14) Als de reservering gemaakt is gaat de huurder **akkoord** met **al deze voorwaarden.**
 
