@@ -15,22 +15,14 @@ Reserveer eenvoudig:
 
 REGELS/VOORWAARDEN LEZEN, RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
-**Op alle ochtenden zijn er nog sloepen vrij**
+Op de meeste dagen zijn er sloepen beschikbaar behalve: 
 
-Op de meeste dagen zijn er ook in de middag/ hele dag sloepen beschikbaar behalve: 
+**Zondag 10 juli is er een Antaris voor 6 á 7 personen vrij de hele dag / dagdeel.
+verder zijn alle sloepen uit varen;**
 
-**9 juli is er in Harmelen weer een sloep vrij een hele dag, speciale tijd,
-van 11.00–19.00 uur €170,-
-Of 6 uren van 11.00-17.00 uur €140,- 
+**17 juli zijn -vooralsnog-in de middag de sloepen in Woerden gereserveerd, in Harmelen is nog een sloep vrij**
 
-In Woerden is er een Antaris vrij
-De stille sloepen in Woerden zijn uit varen in de middag**
-
-Zondag 10 juli is er een Antaris voor 6 á 7 personen vrij de hele dag / dagdeel.
-
-**17 juli zijn in de middag de sloepen in Woerden uit varen,
-
-** 21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
+**21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
 in Harmelen zijn er nog enkele sloepen vrij voor de hele dag/ dagdelen.
 
 Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie goed door;
