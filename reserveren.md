@@ -17,10 +17,7 @@ REGELS/VOORWAARDEN LEZEN, RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN 
 
 Op de meeste dagen zijn er sloepen beschikbaar behalve: 
 
-**Zondag 10 juli is er een Antaris voor 6 á 7 personen vrij de hele dag / dagdeel.
-verder zijn alle sloepen uit varen;**
-
-**17 juli zijn -vooralsnog-in de middag de sloepen in Woerden gereserveerd, in Harmelen is nog een sloep vrij**
+**17 juli is er -vooralsnog- in de middag een buitenboordmotor sloep in Woerden vrij hele dag / dagdeel en in Harmelen is nog een stille sloep vrij voor de hele dag / dagdeel**
 
 **21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
 in Harmelen zijn er nog enkele sloepen vrij voor de hele dag/ dagdelen.
