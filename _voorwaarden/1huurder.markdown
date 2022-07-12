@@ -23,17 +23,18 @@ Dat geldt overal bij ons, ook als het anders aangegeven staat.
 
 -Het is belangrijk je aan de max snelheid van 6 km/uur te houden, Het is ook om beschadiging aan de natuur (denk om de nesten bv!), de oevers, andere boten én een boete te voorkomen.
 
-* en, Elektrische sloepen:  Als je harder dan 6 km/u gaat trek je de **accu leeg**.
+*Elektrische sloepen:  Als je harder dan 6 km/u gaat trek je de accu leeg.
 
-* en, Buitenboordmotor sloepen:  Bij te hard varen wordt €10,- in rekening gebracht voor de extra benzine.
-. Let op, De borg wordt ingehouden als je te hard vaart.
+*Buitenboordmotor sloepen:  Bij te hard varen wordt €10,- in rekening gebracht voor de extra benzine.
+. Let op, De borg wordt helemaal ingehouden als je te hard vaart.
+ivm schadeclaims en de te verwachtte boetes.
 
 Elke boot is uitgerust met een GPS volg systeem. Zorg dat je bij ons het **goede **telefoon nummer achterlaat en **bereikbaar** bent.
 
 4.) De sloep wordt op de **afgesproken tijd** opgehaald en weer teruggebracht.
 
-Moeten we op je **wachten** dan zijn er **kosten** aan verbonden, €10,- per kwartier, want we zijn daar speciaal voor jullie, **ook bij vertrek.**
+Moeten we op je wachten dan zijn er **kosten** aan verbonden, €10,- per kwartier, want we zijn daar speciaal voor jullie, ook bij vertrek.
 
-Als de sloep naderhand verhuurd is, brengen we het volgende dagdeel **in rekening** 
+Als de sloep naderhand verhuurd is, brengen we het volgende dagdeel in rekening.
 
 Langer varen kan soms, maar dit in overleg van tevoren.
