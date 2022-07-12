@@ -19,9 +19,9 @@ Op de meeste dagen zijn er sloepen beschikbaar behalve:
 
 **16 juli is er nog 1 sloep beschikbaar in Woerden voor de hele dag / dagdeel**
 
-**17 juli is er -vooralsnog- in de middag een buitenboordmotor sloep in Woerden vrij hele dag / dagdeel**
+**17 juli is er -vooralsnog- in de ochtend een buitenboordmotor sloep in Woerden vri.   In de middag zijn de boten in Woerden uit varen**
 
-**in Harmelen zijn er nog enkele sloepen vrij voor de hele dag/ dagdelen**
+**in Harmelen is er nog 1 sloep vrij vooralsnog voor de hele dag/ dagdelen**
 
 **21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
 
