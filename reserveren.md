@@ -17,7 +17,8 @@ REGELS/VOORWAARDEN LEZEN, RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN 
 
 Op de meeste dagen zijn er sloepen beschikbaar behalve: 
 
-**16 juli is er nog 1 sloep beschikbaar in Woerden voor de hele dag / dagdeel**
+**16 juli is er nog 1 sloep beschikbaar in Woerden in de ochtend, 
+in de middag is alles gereserveerd**
 
 **17 juli is er -vooralsnog- in de ochtend een buitenboordmotor sloep in Woerden vri.   In de middag zijn de boten in Woerden en Harmelen uit varen**
 
