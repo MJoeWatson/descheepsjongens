@@ -21,10 +21,13 @@ Op de meeste dagen zijn er sloepen beschikbaar behalve:
 
 **17 juli zijn de boten in Woerden en Harmelen al uit varen**
 
+18 en 19 juli zijn er geen elektrische sloepen meer beschikbaar in Woerden in de middag. 
+wel in de ochtend en 1 in Harmelen 
+
 23 juli zijn de sloepen in Woerden gereserveerd in de middag
 In de ochtend nog bootjes vrij  en in Harmelen nog bootjes voor de hele dag/ dagdelen 
 
-19 juni zijn er geen elektrische sloepen meer beschikbaar in Woerden in de middag. 
+
 
 **21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
 **in Harmelen zijn er nog enkele sloepen vrij voor de hele dag/ dagdelen**
