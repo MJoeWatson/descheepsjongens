@@ -17,8 +17,6 @@ REGELS/VOORWAARDEN LEZEN, RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN 
 
 Op de meeste dagen zijn er sloepen beschikbaar behalve: 
 
-**vanmiddag 19 juli toch nog 1 elektrische sloep vrij!** 
-
 **28-30-31 juli zijn er geen elektrische sloepen meer beschikbaar in Woerden in de middag. alleen een buitenboordmotor sloep, 
 wel in de ochtend nog elektra vrij, 
 en een elektrische sloep in Harmelen voor de hele dag/dagdeel**
