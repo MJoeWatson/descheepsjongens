@@ -23,7 +23,7 @@ elektrische sloep vrij,
 
 en een elektrische sloep in Harmelen voor de hele dag/dagdeel**
 
-**23 en 24 juli zijn de sloepen gereserveerd in de middag**
+**23 en 24 juli zijn de sloepen - vooralsnog -gereserveerd in de middag**
 
 
 **21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
