@@ -1,7 +1,6 @@
 ---
 title: regels en meer..
 date: 2020-03-18 12:25:00 +01:00
-published: false
 ---
 
 Zodat iedereen zoveel mogelijk plezier blijft hebben van het varen in onze sloepen, en voor de veiligheid van onze gasten én omgeving is het belangrijk deze info **echt** te lezen, 
