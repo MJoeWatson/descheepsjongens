@@ -12,7 +12,7 @@ We hebben tips en aandachtspunten en ook belangrijke regels.
 ~Als je de reservering maakt ga je akkoord met al deze voorwaarden, dus lees ze goed.~
 
 1.) Vanaf 24 jaar mag je bij ons een sloep huren.
-Bij aanvang van de vaartocht noteren wij de gegevens van het geldig **identiteit bewijs** van de huurder.
+Bij aanvang van de vaartocht noteren wij de gegevens van het geldig identiteit bewijs van de huurder.
 
 2.) Blijf helder en alert, De bestuurder mag niet onder invloed van alcohol of andere verdovende middelen in een sloepen varen. Alcohol in onze sloepen wordt sowieso niet toegestaan. Helaas te veel vervelende ervaringen hiermee.. Dus ook niet ergens anders drank in laden.... Er wordt op gecontroleerd.
 
@@ -20,7 +20,7 @@ Houdt de sloep netjes,
 we zijn er zuinig op … Ook dient men ervoor te zorgen dat er geen overlast voor de omgeving veroorzaakt wordt, dus geen harde muziek enz.
 Let op, De borg wordt ingehouden als men zich niet aan deze afspraken houdt.
 
-3.) De toegestane **maximum** snelheid is **6 km/uur** dat is echt heel rustig (wandelsnelheid).
+3.) De toegestane maximum snelheid is **6 km/uur** dat is echt heel rustig (wandelsnelheid).
 Dat geldt overal bij ons, ook als het anders aangegeven staat.
 
 -Het is belangrijk je aan de max snelheid van 6 km/uur te houden, Het is ook om beschadiging aan de natuur (denk om de nesten bv!), de oevers, andere boten én een boete te voorkomen.
@@ -31,7 +31,7 @@ Dat geldt overal bij ons, ook als het anders aangegeven staat.
 . en de borg wordt helemaal ingehouden als je te hard vaart en /of je niet aan de regels houdt.
 ivm schadeclaims en de te verwachtte boetes.
 
-Elke boot is uitgerust met een GPS volg systeem. Zorg dat je bij ons het **goede **telefoon nummer achterlaat en **bereikbaar** bent.
+Elke boot is uitgerust met een GPS volg systeem. Zorg dat je bij ons het goede telefoon nummer achterlaat en bereikbaar bent.
 
 4.) De sloep wordt op de afgesproken tijd opgehaald en weer teruggebracht.
 
@@ -66,7 +66,7 @@ Altijd beginnen in neutraal, en  5 tellen wachten voordat je de hendel beweegt. 
 en pas op, Als je de hendel aanstoot of er langs loopt, anders vaart de sloep naar voor (of achter)
 Bij uitstappen/ langslopen daarom de sloep uitzetten met de sleutel.
 
-De sloep geeft eerst paar tellen extra power en gaat dan op 6 km/ u stand. hendel **niet** steeds heen en weer halen om harder te gaan, dan trekt de accu leeg en krijg je storing.
+De sloep geeft eerst paar tellen extra power en gaat dan op 6 km/ u stand. hendel niet steeds heen en weer halen om harder te gaan, dan trekt de accu leeg en krijg je storing.
 
 De Scheepsjongens zijn niet aansprakelijk voor geleden schade van de huurder;  het zij persoonlijk letsel of materiële schade, opgelopen in de verhuurperiode. 
 
