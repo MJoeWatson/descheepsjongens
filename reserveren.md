@@ -21,8 +21,9 @@ Op de meeste dagen zijn er sloepen beschikbaar behalve:
 wel in de ochtend nog elektra vrij, 
 en een elektrische sloep in Harmelen voor de hele dag/dagdeel**
 
-23 juli zijn de sloepen in Woerden gereserveerd in de middag
-In de ochtend nog bootjes vrij  en in Harmelen nog bootjes voor de hele dag/ dagdelen 
+23 en 24 juli zijn de sloepen in Woerden gereserveerd in de middag.
+
+In de ochtend zijn er nog bootjes vrij  en in Harmelen nog bootjes voor de hele dag/ dagdelen 
 
 
 **21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
@@ -36,6 +37,6 @@ Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie goed d
 
 Let o: als je via smartphone reserveert: 
 
-Je moet héel ver scrollen tot helemaal onderaan om alle voorwaarden te lezen, er is veel wit, Op een computer wel goed te zien., 
+Je moet héel ver scrollen tot helemaal onderaan om alle voorwaarden te lezen, er is veel wit en dan begint de tekst.., Op een computer wel gelijk te zien., 
 
 Reserveer daarna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder.
