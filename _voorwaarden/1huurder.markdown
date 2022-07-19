@@ -108,7 +108,7 @@ Bij verlies worden de volgende kosten van de borg ingehouden:
 
 Bij ons op het water gelden uiteraard ook de algemene landelijke vaarregels;
 
-Vaar in het midden, dit i.v.m. de soms ondiepe kanten (bv richting kasteel en onder spoorwegtunnels)  en de vele planten waarin je vast kan komen te zitten. maar, als er tegenliggers komen of als een sloep wil **passeren** moet je wat rechts houden (net zoals in het normale verkeer)
+Vaar in het midden, dit i.v.m. de soms ondiepe kanten (bv richting kasteel en onder spoorwegtunnels)  en de vele planten waarin je vast kan komen te zitten. maar, als er tegenliggers komen of als een sloep wil passeren moet je wat rechts houden (net zoals in het normale verkeer)
 
 Vaarverkeer dat komt vanaf Stuurboord (rechts) heeft voorrang.
 
@@ -119,7 +119,8 @@ en ook hier geldt altijd, voorrang moet je krijgen, niet nemen..
 Kinderen zonder zwemdiploma moeten een zwemvest dragen.
 
 Als je door een sluis of brug vaart, houdt rekening met de openingstijden:   ~sluizen en bruggen worden soms op vaste tijden geopend. Let goed op de laatste doorvaar mogelijkheid en dat je de goede route vaart.
-Wijk niet van de vaarroutes af ivm ondiepe sloten en te lage bruggen.-> schade
+Wijk niet van de vaarroutes af ivm ondiepe sloten en te lage bruggen.-> schade.
+
 -Een heel rondje om de stad Woerden kan dit jaar via de Oostam!  
 (de brug bij het kasteel is te laag)
 
@@ -145,10 +146,10 @@ We houden de sloep namelijk speciaal voor u gereserveerd,
 
 Geen annuleringskosten bij regen en harde wind tijdens de huurperiode. Dit overleggen we op de dag zelf en niet 1 of 2 dagen ervoor, omdat je dan nog niets kan zeggen over het werkelijke weer namelijk. 
 
-Indien wij **speciaal** naar het vertrekpunt komen en je komt niet opdagen dan rekenen we de gemaakte kosten.
+Indien wij speciaal naar het vertrekpunt komen en je komt niet opdagen dan rekenen we de gemaakte kosten.
 Het hele gereserveerde dagdeel wordt in rekening gebracht.
 
-Er is meestal genoeg gratis parkeerplek bij de kade *geen garantie! Voor max 2 auto s per sloep. 
+Er is meestal genoeg gratis parkeerplek bij de kade *geen garantie! Voor max 2 auto's per sloep. 
 
 Als de reservering gemaakt is gaat de huurder akkoord met al deze voorwaarden.
 
