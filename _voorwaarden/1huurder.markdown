@@ -7,7 +7,8 @@ Zodat iedereen zoveel mogelijk plezier blijft hebben van het varen in onze sloep
 Eerder kan je niet vertrekken.
 We hebben tips en aandachtspunten en ook belangrijke regels.
 
-### Voorwaarden, regels en aandachtspunten:
+
+ Voorwaarden, regels en aandachtspunten:
 
 ~Als je de reservering maakt ga je akkoord met al deze voorwaarden, dus lees ze goed.~
 
