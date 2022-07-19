@@ -34,7 +34,7 @@ ivm schadeclaims en de te verwachtte boetes.
 
 Elke boot is uitgerust met een GPS volg systeem. Zorg dat je bij ons het goede telefoon nummer achterlaat en bereikbaar bent.
 
-4.) De sloep wordt op de afgesproken tijd opgehaald en weer teruggebracht.
+De sloep wordt op de afgesproken tijd opgehaald en weer teruggebracht.
 
 Moeten we op je wachten dan zijn er kosten aan verbonden, €10,- per kwartier, want we zijn daar speciaal voor jullie, ook bij vertrek.
 
