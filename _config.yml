@@ -11,6 +11,9 @@ collections:
   news:
     title: News
     output: true
+  onze-regels-en-voorwaarden:
+    title: Onze regels en voorwaarden
+    output: true
   posts:
     title: Posts
     output: true
