@@ -68,9 +68,9 @@ Bij uitstappen/ langslopen daarom de sloep uitzetten met de sleutel.
 
 De sloep geeft eerst paar tellen extra power en gaat dan op 6 km/ u stand. hendel niet steeds heen en weer halen om harder te gaan, dan trekt de accu leeg en krijg je storing.
 
-De Scheepsjongens zijn niet aansprakelijk voor geleden schade van de huurder;  het zij persoonlijk letsel of materiële schade, opgelopen in de verhuurperiode. 
+De Scheepsjongens zijn niet aansprakelijk voor geleden schade van de huurder het zij persoonlijk letsel of materiële schade, opgelopen in de verhuurperiode. 
 
-Eventuele schade aan de sloep, kussenset, kap .ed. of aan derden wordt verhaald op de huurder. 
+Eventuele schade aan de sloep, kussenset, kap .ed. of aan anderen/ derden wordt verhaald op de huurder. 
 
 Grotere schade gaat via de verzekering, Het eigen risico bedrag wat de huurder dan betaald is €350,-
 Bij je eigen verzekering kun je nagaan of je hiervoor ook verzekerd bent.
