@@ -15,6 +15,14 @@ Reserveer eenvoudig:
 
 REGELS/VOORWAARDEN LEZEN, RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
+In Harmelen zijn er andere tijden 
+
+11.00-17.00 uur €140,-
+ of 
+van 11.00-19.00 uur €170,- 
+
+
+
 Op de meeste dagen zijn er sloepen beschikbaar behalve: 
 
 **28-30-31 juli zijn er geen elektrische sloepen meer beschikbaar in Woerden in de middag. alleen een buitenboordmotor sloep, 
