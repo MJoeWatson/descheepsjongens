@@ -16,23 +16,24 @@ Reserveer eenvoudig:
 REGELS/VOORWAARDEN LEZEN, RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
 In Harmelen zijn er andere tijden 
-
 11.00-17.00 uur €140,-
  of 
 van 11.00-19.00 uur €170,- 
 
-Dit kun je niet aanvinken maar vermeld het in het berichtvak 
+Dit kun je niet aanvinken maar vermeld het in het berichtvak.
 
 
 Op de meeste dagen zijn er sloepen beschikbaar behalve: 
 
 **28-30-31 juli zijn er geen elektrische sloepen meer beschikbaar in Woerden in de middag. alleen een buitenboordmotor sloep, 
-wel in de ochtend ook nog een 
-elektrische sloep vrij, 
+wel in de ochtend ook nog elektrische sloepen vrij, 
 
 en een elektrische sloep in Harmelen voor de hele dag/dagdeel**
 
-**23 en 24 juli zijn de sloepen - vooralsnog -gereserveerd in de middag**
+**23 en 24 juli is er (alleen nog) de mogelijkheid in de ochtend in Woerden te varen van 10.00-13.00 uur 
+
+en met een elektrische sloep in Harmelen is nog vrij.
+- De hele dag van 11.00-19.00 uur €170,- - of 6 uren 11.00-17.00 uur €140,-** 
 
 
 **21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
@@ -40,7 +41,7 @@ en een elektrische sloep in Harmelen voor de hele dag/dagdeel**
 
 Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie goed door;
 
-*Als de reservering is gemaakt, gaan we er vanuit dat u op de hoogte bent van wat de regels en voorwaarden zijn en gaat u daarmee  **akkoord**.
+*Als de reservering is gemaakt, gaan we er vanuit dat u op de hoogte bent van wat de regels en voorwaarden zijn en gaat u daarmee **akkoord**.
 
 [Klik **hier** voor alle voorwaarden en instructie (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
