@@ -21,6 +21,7 @@ In Harmelen zijn er andere tijden
  of 
 van 11.00-19.00 uur €170,- 
 
+Dit kun je niet aanvinken maar vermeld het in het berichtvak 
 
 
 Op de meeste dagen zijn er sloepen beschikbaar behalve: 
