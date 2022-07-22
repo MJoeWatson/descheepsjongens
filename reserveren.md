@@ -33,9 +33,9 @@ en een elektrische sloep in Harmelen voor de hele dag/dagdeel**
 22 juli varen is in Harmelen niet mogelijk.
 
 **23 en 24 juli is er de mogelijkheid in de ochtend in Woerden te varen van 10.00-13.00 uur 
-De Middag is vol in Woerden
+De Middag is vol 
 
-Een elektrische sloep in Harmelen is nog vrij.
+23 juli is er nog een elektrische sloep in Harmelen vrij
 - De hele dag van 11.00-19.00 uur €170,- - of 6 uren 11.00-17.00 uur €140,-** 
 
 **21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
