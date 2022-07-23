@@ -30,8 +30,7 @@ Op de meeste dagen zijn er sloepen beschikbaar behalve:
 **23 en 24 juli is er de mogelijkheid in de ochtend in Woerden te varen van 10.00-13.00 uur 
 De Middag is vol in Woerden**
 
-**in Harmelen een boot beschikbaar van 
-11.00-19.00 €170,- of van 14.30-19.00 uur €110,-**
+**in Harmelen een boot beschikbaar van 14.30-19.00 uur €110,-**
 
 **28-30-31 juli en 7 augustus zijn er geen elektrische sloepen meer beschikbaar in Woerden in de middag. alleen een buitenboordmotor sloep, 
 wel in de ochtend ook nog elektrische sloepen vrij** 
