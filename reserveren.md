@@ -25,8 +25,9 @@ Dit kun je niet aanvinken maar vermeld het in het berichtvak.
 
 Op de meeste dagen zijn er sloepen beschikbaar behalve: 
 
-**28 is er in de middag nog 1 Antaris bbms vrij in de middag 
-In de ochtend en in Harmelen meer mogelijk**
+**28 is er in de middag nog 1 Antaris buitenboordmotor sloep vrij in de middag 
+
+In de ochtend en in Harmelen sliepen vrij**
 
 **30 en 31 juli zijn in Woerden alle sloepen in de middag verhuurd. 
 In de ochtend en in Harmelen nog reserveren mogelijk**
