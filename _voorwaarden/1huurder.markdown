@@ -35,7 +35,7 @@ Elke boot is uitgerust met een GPS volg systeem. Zorg dat je bij ons het goede t
 
 De sloep wordt op de afgesproken tijd opgehaald en weer teruggebracht.
 
-Moeten we op je wachten dan zijn er kosten aan verbonden, €10,- per kwartier, want we zijn daar speciaal voor jullie, ook bij vertrek.
+Moeten we op je wachten dan zijn er kosten aan verbonden, €10,- per kwartier, want we zijn daar speciaal voor jullie, ook bij vertrek! 
 
 Als de sloep naderhand verhuurd is, brengen we het volgende dagdeel in rekening.
 Langer varen kan soms, maar dit in overleg van tevoren.
@@ -46,7 +46,7 @@ Géén afval Onderweg achterlaten.  ~Afval zelf mee naar huis nemen.
 
 Hond mee? Liever niet en op sommige boten helemaal niet ivm allergieën. bv niet in de buitenboordmotorsloep de Antaris.
 
-In nood kan het evt. in overleg maar Kost € 20,- extra.
+In nood kan het evt.alleen in sommige sloepen En alleen in overleg! Een hond Kost € 20,- extra.
 De hond mag niet op de kussens, kap ed., maar op een eigen kleedje. 
 
 De kappen zijn netjes naar beneden gevouwen*, graag zo houden. Alleen bij hevige regen eventueel te gebruiken. - De kap moet altijd binnenboord netjes opgevouwen zijn (i.v.m. beschadigen)
