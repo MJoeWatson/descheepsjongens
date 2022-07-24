@@ -25,9 +25,13 @@ Dit kun je niet aanvinken maar vermeld het in het berichtvak.
 
 Op de meeste dagen zijn er sloepen beschikbaar behalve: 
 
-**23 en 24 juli: Alle bootjes zijn uit varen 
+**28 is er in de middag nog 1 Antaris bbms vrij in de middag 
+In de ochtend en in Harmelen meer mogelijk**
 
-**28-30 juli en 7 augustus zijn er geen elektrische sloepen meer beschikbaar in Woerden in de middag. alleen een buitenboordmotor sloep, 
+**30 en 31 juli zijn in Woerden alle sloepen in de middag verhuurd. 
+In de ochtend en in Harmelen nog reserveren mogelijk**
+
+en 7 augustus zijn er geen elektrische sloepen meer beschikbaar in Woerden in de middag. alleen een buitenboordmotor sloep, 
 wel in de ochtend ook nog elektrische sloepen vrij en een elektrische sloep in Harmelen voor de hele dag/ dagdeel**
 
 
