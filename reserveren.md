@@ -15,10 +15,10 @@ Reserveer eenvoudig:
 
 REGELS/VOORWAARDEN LEZEN, RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
-In Harmelen zijn er andere tijden 
+**In Harmelen zijn er andere tijden 
 11.00-17.00 uur €140,-
  of 
-van 11.00-19.00 uur €170,- 
+hele dag: van 11.00-19.00 uur €170,-**
 
 Dit kun je niet aanvinken maar vermeld het in het berichtvak.
 
