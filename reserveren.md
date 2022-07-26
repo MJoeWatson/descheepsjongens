@@ -26,25 +26,15 @@ Op de meeste dagen zijn er sloepen beschikbaar behalve:
 
 **28 juli is er in de middag nog 1 Antaris, buitenboordmotor sloep vrij in de middag.
 
-In de ochtend en in Harmelen nog 2 sloepen vrij**
+In de ochtend en in Harmelen nog 2 stille sloepen vrij**
 
-**30 juli zijn in Woerden alle sloepen in de middag verhuurd. 
+**30 en 31 juli zijn in Woerden alle sloepen in de middag verhuurd. 
 In de ochtend nog reserveren mogelijk,
 
-In Harmelen nog 1 sloep vrij voor de hele dag / dagdeel.  11.00-19.00 uur
+In Harmelen nog 1 sloep vrij voor de hele dag / dagdeel. 
 
-31 juli is in de middag alles uit varen;
-
-In de ochtend nog sloepen vrij van 10.00-13.00 uur in Woerden 
-
-In Harmelen is de ochtendtijd van 11.00-14.00 uur** 
- 
-**en 7 augustus zijn er geen elektrische sloepen meer beschikbaar in Woerden in de middag. alleen een buitenboordmotor sloep, 
-wel in de ochtend ook nog elektrische sloepen vrij en een elektrische sloep in Harmelen voor de hele dag/ dagdeel**
-
-
-**31 juli zijn in Woerden alle sloepen in de middag verhuurd 
-in Harmelen nog 1 stille sloep beschikbaar de hele dag 11.00-19.00 uur** 
+11.00-19.00 uur €170,-
+of 11.00-17.00 uur €140,-
 
 **21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
 **in Harmelen is er nog 1 sloep vrij voor de hele dag/ dagdelen**
