@@ -4,6 +4,8 @@ date: 2020-03-18 16:02:00 +01:00
 position: 1
 ---
 
+ter info: Op een telefoon kan het voorkomen dat je ver door witvlak moet scrollen oom de hele dag routes te vinden,  op de computer is het meteen te zien,)
+
 Rondom Woerden kun je mooi varen;  Er is veel te zien en je ervaart de omgeving vanuit een heel ander perspectief.
 
 Om de stad Woerden heen varen door de singels is mooi,
