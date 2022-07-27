@@ -26,7 +26,7 @@ Tot de blauwe Hofbrug, daar is keren het makkelijkst.
 Alle bruggen zijn hoog genoeg voor de sloep om eronderdoor te kunnen. Bereid jullie wel voor om te bukken! 
 
 De Hofbrug,(blauwe brug vlak voor Harmelen) kan eventueel wel open op bepaalde schuttijden, maar de bediening is om de 2 uur (10.00-12.00-15.00-17.00 uur) 
-en Denk erom: 20 minuten voor de tijd aanvragen bij de brugwachter via tel. 06 51383461
+en Denk erom: 30 minuten voor de tijd aanvragen bij de brugwachter via tel. 06 51383461
 
 Als de brug dicht is keer je om. dat is het beste;
 of (wel wat moeilijker) je kunt eventueel **heel voorzichtig** door de meest **linkse** smalle opening als je vanuit Woerden komt. (middendoor niet mogelijk!)
@@ -34,7 +34,7 @@ of (wel wat moeilijker) je kunt eventueel **heel voorzichtig** door de meest **l
 Links is de hoogste doorgang.(**wel bukken**) en **heel** rustig varen, gebruik de haakstok in geval van bijna tegen de kanten; 
 Vanuit Harmelen richting Woerden, neem dezelfde, dan rechter doorgang en wees voorzichtig. 
 
-De Haanwijkersluis is 200 meter verderop, Deze wordt ook alleen rond deze bepaalde tijden bediend (om de 2 uur)  Bellen tijdens kantooruren, 20 min van te voren op tel. 06 51383461 (bgg 06 52370200). bediend, op afroep.
+De Haanwijkersluis is 200 meter verderop, Deze wordt ook alleen rond deze bepaalde tijden bediend (om de 2 uur)  Bellen tijdens kantooruren, 30 min van te voren op tel. 06 51383461 (bgg 06 52370200). bediend, op afroep.
 
 **Door de sluis is in deze tijd niet haalbaar, dus voor de brug (of voor de sluis)  keer je weer om.**
 
