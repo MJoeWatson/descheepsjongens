@@ -17,12 +17,14 @@ Het borgbedrag kan dan overgemaakt worden op onze rekening.
 Huur kan wel á contant aan de kade. 
 (of via de bank)
 
-* De middaghuur prijs is nu €110,- (van 13.30-18.00 uur)  
-De prijzen van de ochtend,€(85,-) hele dag (€170,-) en en avond (€85,-) zijn nog het zelfde.
+ 
+De ochtend,€85,- (10.00-13.00 uur)
+De middag,€110,- (13.30-18.00 uur) 
+Hele dag €170,- (10.00-18.00 uur)
+Avond €85,- (18.30-21.00 uur)
 
-* In Harmelen hebben soms we andere tijden waarop gevaren kan worden.
+* In Harmelen hebben we andere tijden waarop gevaren kan worden. 
 
-bv 
-11.00-17.00 uur (6 vaaruren) €140,-
+Middag €140,- 11.00-17.00 uur (6 vaaruren)
 
-11.00-19.00 uur (8 vaaruren) €170,-
+Hele dag €170,- 11.00-19.00 uur (8 vaaruren) 
