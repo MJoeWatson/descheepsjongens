@@ -24,14 +24,14 @@ Dit kun je niet aanvinken maar vermeld het in het berichtvak.
 
 Op de meeste dagen zijn er sloepen beschikbaar behalve: 
 
-**28 juli is er in de middag nog 1 Antaris, buitenboordmotor sloep vrij in de middag.
+**28 juli in de middag: Vol
 
-In de ochtend en in Harmelen nog 2 stille sloepen vrij**
+In de ochtend en in Harmelen nog 1 sloep vrij**
 
 **30 en 31 juli zijn in Woerden alle sloepen in de middag verhuurd. 
 In de ochtend nog reserveren mogelijk,
 
-In Harmelen nog 1 sloep vrij voor de hele dag / dagdeel. 
+Zondag 31 juli In Harmelen nog 1 sloep vrij voor de hele dag / dagdeel. 
 
 11.00-19.00 uur €170,-
 of 11.00-17.00 uur €140,-
@@ -45,7 +45,7 @@ Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie goed d
 
 [Klik **hier** voor alle voorwaarden en instructie (opent in nieuw venster)](http://descheepsjongens.nl/voorwaarden)
 
-Let o: als je via smartphone reserveert: 
+Let op: als je via smartphone reserveert: 
 
 Je moet héel ver scrollen tot helemaal onderaan om alle voorwaarden te lezen, er is veel wit en dan begint de tekst.., Op een computer wel gelijk te zien., 
 
