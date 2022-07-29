@@ -39,6 +39,7 @@ Moeten we op je wachten dan zijn er kosten aan verbonden, €10,- per kwartier, 
 
 Als de sloep naderhand verhuurd is, brengen we het volgende dagdeel in rekening.
 Langer varen kan soms, maar dit in overleg van tevoren.
+Als je eerder terug wilt komen, bel even een half uurtje van te voren, dan zorgen we dat we er eerder zijn.
 
 Pas op voor zwemmers en de hengels van vissers! ze zijn soms moeilijk te zien in het water. houd afstand!
 
