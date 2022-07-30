@@ -74,6 +74,8 @@ In Linschoten is het vrij smal dus vaar rustig en voorzichtig;
 ### Nieuwerbrug, Bodegraven
 #### Tijd: Heen en weer, +/- 4 uur
 
+**De sluis in Bodegraven wordt nog maar vier keer per dag bediend: 10.00 uur, 12.00 uur, 16.00 uur en 19.00 uur**
+
 **Vaarkaarten**
 
 [Klik hier voor de routekaart naar Bodegraven](/uploads/route-Bodegraven-De-Scheepsjongens.pdf)
