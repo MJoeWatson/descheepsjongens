@@ -12,6 +12,8 @@ Houd bij het plannen van de route rekening met de actuele stremmingen , zie
 
 ### Nieuwkoopse plassen
 
+**De sluis in Bodegraven wordt nog maar vier keer per dag bediend: 10.00 uur, 12.00 uur, 16.00 uur en 19.00 uur**
+
 #### Tijd: Rondje, bijna 8 uur varen, (wachttijden bij de sluizen kunnen op drukke dagen nl. lang zijn, en op rustige dagen heb je soms wat tijd over.)
 
 **Vaarkaarten**
