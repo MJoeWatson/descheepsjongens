@@ -24,17 +24,10 @@ Dit kun je niet aanvinken maar vermeld het in het berichtvak.
 
 Op de meeste dagen zijn er sloepen beschikbaar behalve: 
 
-**28 juli in de middag: Vol
-
-In de ochtend en in Harmelen nog 1 sloep vrij**
-
-**30 en 31 juli zijn alle sloepen in de middag verhuurd. 
-In de ochtend nog reserveren mogelijk,
-
 **21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
 **in Harmelen is er nog 1 sloep vrij voor de hele dag/ dagdelen**
 
-Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie goed door;
+Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie (echt)goed door;
 
 *Als de reservering is gemaakt, gaan we er vanuit dat u op de hoogte bent van wat de regels en voorwaarden zijn en gaat u daarmee **akkoord**.
 
