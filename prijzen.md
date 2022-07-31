@@ -62,13 +62,12 @@ De huurder is verantwoordelijk voor de eerste €350,- eigen risico.
 We rekenen geen reserveringskosten. 
 
 Verplaatsen of annuleren als het **regent,hard waait of onweert** is altijd kosteloos.
-In overleg met ons tot een uur voor de vertrek tijd. 
+In overleg met ons **tot een uur** voor de vertrek tijd. 
+
+Als er binnen dat laatste uur bij regen wordt geannuleerd wordt rekenen we €20,- 
 
 
-Als er om een **andere reden** geannuleerd wordt vragen we **€20,- service kosten**.
-
-Indien wij speciaal voor de vaartocht bij de sloep aanwezig zijn en je komt niet opdagen, wordt de huurprijs van de borg ingehouden.
-
+Indien wij speciaal voor de vaartocht bij de sloep aanwezig zijn en je komt niet opdagen, wordt de hele huurprijs van de borg ingehouden.
 
 ~ Een extra uur bij huren is soms mogelijk, dit in overleg, 
 Kosten: €30,-per uur. Vooraf te reserveren.
