@@ -16,7 +16,7 @@ Bij aanvang van de vaartocht noteren wij de gegevens van het geldig identiteit b
 
 Blijf helder en alert, De bestuurder mag niet onder invloed van alcohol of andere verdovende middelen in een sloepen varen. Alcohol in onze sloepen wordt sowieso niet toegestaan. Helaas te veel vervelende ervaringen hiermee.. Dus ook niet ergens anders drank in laden.... Er wordt op gecontroleerd.
 
-Houdt de sloep netjes, 
+Houd de sloep netjes, 
 we zijn er zuinig op … Ook dient men ervoor te zorgen dat er geen overlast voor de omgeving veroorzaakt wordt, dus geen harde muziek enz.
 Let op, De borg wordt ingehouden als men zich niet aan deze afspraken houdt.
 
@@ -36,6 +36,7 @@ Elke boot is uitgerust met een GPS volg systeem. Zorg dat je bij ons het goede t
 De sloep wordt op de afgesproken tijd opgehaald en weer teruggebracht.
 
 Moeten we op je wachten dan zijn er kosten aan verbonden, €10,- per kwartier, want we zijn daar speciaal voor jullie, ook bij vertrek! 
+*verdere kosten bv bij annuleren zie elders op de site onder het kopje “prijzen”
 
 Als de sloep naderhand verhuurd is, brengen we het volgende dagdeel in rekening.
 Langer varen kan soms, maar dit in overleg van tevoren.
