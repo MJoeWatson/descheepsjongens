@@ -67,7 +67,7 @@ Altijd beginnen in neutraal, en  5 tellen wachten voordat je de hendel beweegt. 
 en pas op, Als je de hendel aanstoot of er langs loopt, anders vaart de sloep naar voor (of achter)
 Bij uitstappen/ langslopen daarom de sloep uitzetten met de sleutel.
 
-De sloep geeft eerst paar tellen extra power en gaat dan op 6 km/ u stand. hendel niet steeds heen en weer halen om harder te gaan, dan trekt de accu leeg en krijg je storing.
+De sloep geeft eerst paar tellen extra power en gaat dan op 6 km/ u stand. De hendel niet steeds heen en weer halen om harder te gaan, dan trekt de accu leeg en krijg je storing.
 
 De Scheepsjongens zijn niet aansprakelijk voor geleden schade van de huurder;  het zij persoonlijk letsel of materiële schade, opgelopen in de verhuurperiode. 
 
@@ -76,7 +76,7 @@ Eventuele schade aan de sloep, kussenset, kap .ed. of aan derden wordt verhaald 
 Grotere schade gaat via de verzekering, Het eigen risico bedrag wat de huurder dan betaald is €350,-
 Bij je eigen verzekering kun je nagaan of je hiervoor ook verzekerd bent.
 
-Na het reserveren wordt € 150,- borg én €10,- schoonmaakborg extra betaald,(via de bank) Dit krijg je als de sloep onbeschadigd en netjes terug gebracht is met evt aftrek van extra kosten, weer terug gestort.
+Na het reserveren wordt €150,- borg én €10,- schoonmaakborg extra betaald,(via de bank) Dit krijg je als de sloep onbeschadigd en netjes terug gebracht is met evt aftrek van extra kosten, weer terug gestort.
 
 De sloep wordt in de zelfde staat terug gebracht als dat deze bij aanvang was. Controleer de binnen en buitenkant van de boot bij vertrek, zo willen we 'm ook weer terug :) 
 
@@ -85,10 +85,9 @@ De sloep wordt in de zelfde staat terug gebracht als dat deze bij aanvang was. C
 Schoonmaakspullen zijn beschikbaar bij terugkomst. Wij willen het voor je doen als het redelijk is, dan wordt € 10,- verrekend met de borg.  
 Is de boot erg vies of de kussens nat, dan wordt er minimaal €20,- met de borg verrekend.
 
-We storten de borg binnen enkele dagen terug, kijk dit even na op uw bank ter controle,
-mocht het langer dan een week duren, neem aub even contact met ons op, want dan is er misschien iets mis gegaan.
+We storten de borg binnen enkele dagen terug, kijk dit even na op uw bank ter controle,Als het langer dan een week duurt, neem aub even contact met ons op, want dan is er misschien iets mis gegaan.
 
-Als de sloep in huurperiode ergens tegenaan gekomen is of andere bijzonderheden of schade moet dit **ALTIJD gemeld** worden.
+Als de sloep in huurperiode ergens tegenaan gekomen is of als er andere bijzonderheden zijn, schade, of iets verloren is, moet dit **ALTIJD gemeld** worden.
 Als er rustig gevaren wordt en goed opgepast wordt in de buurt van kades, sluizen en bruggen kun je schade meestal voorkomen. Met de afzetstok kun je schades helpen voorkomen.
 
 Kleine beschadigingen worden van de borg ingehouden. Meldt ook een kras, het is ong. €10,-  
@@ -141,11 +140,12 @@ We onderhouden de sloepen goed en het gebeurd niet vaak, maar een technische sto
 -Als er een sloep niet inzetbaar blijkt, dan zullen we degene van desbetreffende sloep, of indien mogelijk, de laatst geboekte reservering helaas moeten cancelen. gebeurd bijna nooit maar we vragen jullie begrip hiervoor.
 
 Als het slecht weer is, regen / veel wind kan de vaartocht in overleg op de dag zelf kosteloos verplaatst of geannuleerd worden; 
-let wel: in alle andere gevallen worden er kosten berekend.
+
+Dit overleggen we op de dag zelf en niet 1 of 2 dagen ervoor, omdat je dan nog niets kan zeggen over het werkelijke weer namelijk. 
+
+let wel: in andere gevallen kunnen er evt kosten worden berekend.
 
 We houden de sloep namelijk speciaal voor u gereserveerd, 
-
-Geen annuleringskosten bij regen en harde wind tijdens de huurperiode. Dit overleggen we op de dag zelf en niet 1 of 2 dagen ervoor, omdat je dan nog niets kan zeggen over het werkelijke weer namelijk. 
 
 Indien wij speciaal naar het vertrekpunt komen en je komt niet opdagen dan rekenen we de gemaakte kosten.
 Het hele gereserveerde dagdeel wordt in rekening gebracht.
@@ -156,6 +156,7 @@ Als de reservering gemaakt is gaat de huurder akkoord met al deze voorwaarden.
 
 Als je bovenstaande allemaal weet, komt het helemaal goed!
 Deze regels zijn allemaal ontstaan door onze ervaring:)
+Lees het aub echt om verassingen / misverstanden achteraf te voorkomen. 
 
 Dan is het in ieder geval duidelijk voor iedereen en hoeven wij niet veel meer uit te leggen als je vertrekt zodat je lekker gauw het water op kan!
 
