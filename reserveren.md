@@ -18,14 +18,15 @@ REGELS/VOORWAARDEN LEZEN, RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN 
 **In Harmelen zijn er andere tijden 
 11.00-17.00 uur €140,-
  of 
-Hele dag: van 9.00-17.00 uur €170,-**
+Hele dag: van 9.00-17.00 uur €170,-
 
 Dit kun je niet aanvinken maar vermeld het in het berichtvak.
 
 Op de meeste dagen zijn er sloepen beschikbaar behalve: 
 
 
-**13, 20 en 21 augustus zijn - vooralsnog- in Woerden alle sloepen gereserveerd in de middag.
+
+** 3 augustus ( morgen), 13 en 21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
 in de ochtend kan je nog reserveren en in Harmelen is er nog 1 sloep vrij van 11.00-17.00 uur €140,- 
 9.00-17.00 uur €170,- 
 
