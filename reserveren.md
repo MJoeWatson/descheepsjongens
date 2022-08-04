@@ -15,7 +15,7 @@ Reserveer eenvoudig:
 
 REGELS/VOORWAARDEN LEZEN, RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN EN KLAAR! 
 
-**In Harmelen zijn er andere tijden 
+**In Harmelen zijn er andere tijden ivm de tijdelijke sterkere stroming aldaar en de tijden van de brugbediening.
 11.00-17.00 uur €140,-
  of 
 Hele dag: van 9.00-17.00 uur €170,-
