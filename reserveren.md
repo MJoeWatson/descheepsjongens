@@ -22,16 +22,9 @@ Hele dag: van 9.00-17.00 uur €170,-
 
 Dit kun je niet aanvinken maar vermeld in het berichtvak welke tijd je wil varen.
 
-Op de meeste dagen zijn er sloepen beschikbaar behalve: 
+Op de meeste dagen zijn er sloepen beschikbaar behalve:   
 
-**zondag 7 aug is er nog 1 buitenboordmotor sloep vrij gekomen voor de hele dag/ dagdeel.     
-
-En in de ochtend nog een sloep vrij in Woerden.
-Verder is alles in de middag verhuurd** 
-
-
-**6 augustus zijn in de middag alle sloepen in Woerden gereserveerd 
-In Harmelen nog 1 vrij van 12.30-17.00 uur** 
+**7 augustus is alles in de middag verhuurd** 
 
 **13 en 21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
 in de ochtend zijn er nog wat sloepen vrij 
@@ -42,7 +35,7 @@ van 11.00-17.00 uur €140,-
 of van 
 9.00-17.00 uur €170,-**
 
-**3 september zijn de elektrische sloepen in Woerden al uit varen in de middag**
+**28 augustus en 3 september zijn de elektrische sloepen in Woerden al uit varen in de middag**
 
 Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie (echt)goed door om misverstanden te voorkomen;
 
