@@ -26,10 +26,13 @@ Op de meeste dagen zijn er sloepen beschikbaar behalve:
 
 **7 augustus is alles in de middag verhuurd** 
 
-**13 en 21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.
-in de ochtend zijn er nog wat sloepen vrij 
+**13, 20 en 21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.**
 
-in Harmelen is er nog 1 sloep vrij tot 17.00 uur  
+**20 augustus ook alles uit aren in de ochtend**
+ 
+**13 en 21 aug zijn er in de ochtend nog wat sloepen vrij** 
+
+**in Harmelen is er nog 1 sloep vrij tot 17.00 uur**  
 
 van 11.00-17.00 uur €140,- 
 of van 
