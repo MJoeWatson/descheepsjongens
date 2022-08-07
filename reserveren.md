@@ -20,6 +20,8 @@ REGELS/VOORWAARDEN LEZEN, RESERVEREN, BESCHIKBAARHEID AFWACHTEN, BORG OVERMAKEN 
  of 
 Hele dag: van 9.00-17.00 uur €170,-
 
+-Varen in de avond is niet altijd mogelijk-
+
 Dit kun je niet aanvinken maar vermeld in het berichtvak welke tijd je wil varen.
 
 Op de meeste dagen zijn er sloepen beschikbaar behalve:   
