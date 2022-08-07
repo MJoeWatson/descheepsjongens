@@ -27,4 +27,7 @@ Avond €85,- (18.30-21.00 uur)
 
 Harmelen:
 Middag €140,- 11.00-17.00 uur (6 vaaruren)
-Hele dag €170,- 11.00-19.00 uur (8 vaaruren) 
+Hele dag €170,- 9.00-17.00 uur (8 vaaruren) 
+
+
+Gevonden voorwerpen: Tas met handdoeken
