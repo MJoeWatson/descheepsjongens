@@ -24,7 +24,7 @@ Dit kun je niet aanvinken maar vermeld in het berichtvak welke tijd je wil varen
 
 Op de meeste dagen zijn er sloepen beschikbaar behalve:   
 
-**7 augustus is alles in de middag verhuurd** 
+**Zondag 7 augustus zijn alle bootjes al uit varen** 
 
 **13, 20 en 21 augustus zijn in Woerden alle sloepen gereserveerd in de middag.**
 
