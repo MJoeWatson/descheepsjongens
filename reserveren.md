@@ -32,7 +32,7 @@ Op de meeste dagen zijn er sloepen beschikbaar behalve:
 
 **Zaterdag 13 augustus zijn alle bootjes al uit varen in de middag, reserveren voor de ochtend kan nog wel** 
 —————————————
-**20 augustus zijn in Woerden alle sloepen gereserveerd**
+**20 augustus zijn in Woerden alle sloepen gereserveerd**(vooralsnog) 
 
 **in Harmelen is er nog 1 sloep vrij tot 17.00 uur**  
 —————————————
