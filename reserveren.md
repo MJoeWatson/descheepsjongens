@@ -30,7 +30,8 @@ Deze optie kun je niet aanvinken maar vermeld in het berichtvak welke tijd je wi
 
 Op de meeste dagen zijn er sloepen beschikbaar behalve:   
 
-**Zaterdag 13 augustus zijn alle bootjes al uit varen in de middag, reserveren voor de ochtend kan nog wel** 
+
+**Zaterdag 10, 11 13 augustus zijn alle bootjes al uit varen in de middag, reserveren voor de ochtend kan nog wel** 
 —————————————
 **20 augustus zijn in Woerden alle sloepen gereserveerd**(vooralsnog) 
 
