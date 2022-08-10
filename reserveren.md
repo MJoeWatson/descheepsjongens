@@ -54,4 +54,9 @@ Let op: als je via smartphone reserveert:
 
 Je moet héel ver scrollen tot helemaal onderaan om alle voorwaarden te lezen, er is veel wit en dan begint de tekst en dan weer veel wit en nog meer tekst... Op een computer wel gelijk te zien... Wordt hopelijk spoedig opgelost
 
+•let op stremmingen ivm droogte 
+- sluis Bodegraven wordt beperkt bediend. 
+-Blauwe Hofbrug Harmelen kun je niet onderdoor en de stroming is sterk van Harmelen naar Woerden. 
+
+
 Reserveer hierna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder:
