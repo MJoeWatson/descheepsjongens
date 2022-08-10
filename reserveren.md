@@ -31,7 +31,7 @@ Deze optie kun je niet aanvinken maar vermeld in het berichtvak welke tijd je wi
 Op de meeste dagen zijn er sloepen beschikbaar behalve:   
 
 
-**Zaterdag 10, 11,12 en 13 augustus zijn alle bootjes al uit varen in de middag, reserveren voor de ochtend kan nog wel**
+**Zaterdag 10, 11,12, 13 en 14 augustus zijn alle bootjes al uit varen in de middag, reserveren voor de ochtend kan nog wel**
 
 In Harmelen nog in overleg mogelijkheden van 11.00-17.00 uur 6 uren €140,-  
 —————————————
