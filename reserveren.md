@@ -31,16 +31,11 @@ Deze optie kun je niet aanvinken maar vermeld in het berichtvak welke tijd je wi
 Op de meeste dagen zijn er sloepen beschikbaar behalve:   
 
 
-**11, 12, 13 en 14 augustus zijn alle bootjes in de middag al uit varen** 
+**12, 13 en 14 augustus zijn alle bootjes al uit varen** 
 
-**11 en 13 augustus kan reserveren voor de ochtend nog wel, De Antaris,  een buitenboordmotor sloep is nog vrij**
- 
-** vrijdag 12e en Zondag 14e is alles de hele dag al gereserveerd In Woerden **
- 
-12 augustus is er in Harmelen nog wel 1 sloep van 11.00-14.00 uur €85,-
-of van 11.00-17.00 uur €140,-
+**13 augustus kan reserveren voor de ochtend nog wel, De Antaris,  een buitenboordmotor sloep is nog vrij**
 
-Donderdag 11 en vrijdag 12 kan er nog gevaren worden in de avond 18.30-21.00 uur
+**Donderdag 11 en vrijdag 12 kan er nog gevaren worden in de avond 18.30-21.00 uur**
 
 —————————————
 **20 augustus zijn in Woerden alle sloepen gereserveerd**(vooralsnog) 
