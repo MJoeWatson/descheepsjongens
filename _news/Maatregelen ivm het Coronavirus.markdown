@@ -4,9 +4,10 @@ date: 2020-03-18 12:25:00 +01:00
 ---
 
 
-Reserveren kan via deze site bij de button “reserveren” dan wijst het zich vanzelf.
 
 **Nieuws**: 
+
+* Binnenkort krijgen we een hele nieuwe website! 
 
 * Dit jaar is het mogelijk om de stad helemaal rond te varen en er is van alles te zien en te beleven in Woerden want Woerden is 650 jaar.
 
