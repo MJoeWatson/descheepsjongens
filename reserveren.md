@@ -31,7 +31,7 @@ Deze optie kun je niet aanvinken maar vermeld in het berichtvak welke tijd je wi
 Op de meeste dagen zijn er sloepen beschikbaar behalve:   
 
 
-**Zaterdag 10, 11,12, 13 en 14 augustus zijn alle bootjes al uit varen** 
+**11, 12, 13 en 14 augustus zijn alle bootjes in de middag al uit varen** 
 
 **11,12,13 augustus kan reserveren voor de ochtend nog wel**
  
