@@ -40,6 +40,8 @@ Op de meeste dagen zijn er sloepen beschikbaar behalve:
 12 augustus is er in Harmelen nog wel 1 sloep van 11.00-14.00 uur €85,-
 of van 11.00-17.00 uur €140,-
 
+Donderdag 11 en vrijdag 12 kan er nog gevaren worden in de avond 18.30-21.00 uur
+
 —————————————
 **20 augustus zijn in Woerden alle sloepen gereserveerd**(vooralsnog) 
 
