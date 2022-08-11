@@ -33,7 +33,7 @@ Op de meeste dagen zijn er sloepen beschikbaar behalve:
 
 **11, 12, 13 en 14 augustus zijn alle bootjes in de middag al uit varen** 
 
-**11,12,13 augustus kan reserveren voor de ochtend nog wel**
+**11,12,13 augustus kan reserveren voor de ochtend nog wel, De Antaris,  een buitenboordmotor sloep is nog vrij**
  
 **Zondag de 14e is alles de hele dag al gereserveerd**
  
