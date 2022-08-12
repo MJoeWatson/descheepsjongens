@@ -59,10 +59,14 @@ en eerdaags is onze nieuwe website online!
 •let op stremmingen ivm droogte 
 - sluis Bodegraven wordt beperkt bediend. 
 
+
 -Blauwe Hofbrug Harmelen kun je tijdelijk niet onderdoor en de stroming is sterk van Harmelen naar Woerden. 
+
 
 - Bij Oudewater wordt gewerkt Het kan zijn dat je max  20-30 minuten moet wachten voor ze het ponton aan de kant hebben voor je.
 
+
 - De sluis in Bodegraven wordt maar 4x per dag beperkt bediend. 
+
 
 Reserveer hierna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder
