@@ -31,11 +31,7 @@ Deze optie kun je niet aanvinken maar vermeld in het berichtvak welke tijd je wi
 Op de meeste dagen zijn er sloepen beschikbaar behalve:   
 
 
-**12, 13 en 14 augustus zijn alle bootjes al uit varen** 
-
-**13 augustus kan reserveren voor de ochtend nog wel, De Antaris,  een buitenboordmotor sloep is nog vrij**
-
-**Donderdag 11 en vrijdag 12 kan er nog gevaren worden in de avond 18.30-21.00 uur**
+**11, 12, 13 en 14 augustus zijn alle bootjes al gereserveerd** 
 
 —————————————
 **20 augustus zijn in Woerden alle sloepen gereserveerd**(vooralsnog) 
@@ -57,11 +53,16 @@ Voor je reserveert, lees éérst de voorwaarden, reglementen & instructie (echt)
 
 Let op: als je via smartphone reserveert: 
 
-Je moet héel ver scrollen tot helemaal onderaan om alle voorwaarden te lezen, er is veel wit en dan begint de tekst en dan weer veel wit en nog meer tekst... Op een computer wel gelijk te zien... Wordt hopelijk spoedig opgelost
+Je moet héel ver scrollen tot helemaal onderaan om alle voorwaarden te lezen, er is veel wit en dan begint de tekst en dan weer veel wit en nog meer tekst... Op een computer wel gelijk te zien... Wordt hopelijk spoedig opgelost,
+en eerdaags is onze nieuwe website online! 
 
 •let op stremmingen ivm droogte 
 - sluis Bodegraven wordt beperkt bediend. 
--Blauwe Hofbrug Harmelen kun je niet onderdoor en de stroming is sterk van Harmelen naar Woerden. 
-- Bij Oudewater wordt gewerkt Het kan zijn dat je max  20-30 minuten moet wachten voor ze het ponton aan de kant hebben voor je 
+
+-Blauwe Hofbrug Harmelen kun je tijdelijk niet onderdoor en de stroming is sterk van Harmelen naar Woerden. 
+
+- Bij Oudewater wordt gewerkt Het kan zijn dat je max  20-30 minuten moet wachten voor ze het ponton aan de kant hebben voor je.
+
+- De sluis in Bodegraven wordt maar 4x per dag beperkt bediend. 
 
 Reserveer hierna eenvoudig door je gegevens en wensen in te vullen op het formulier hieronder
